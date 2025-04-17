@@ -58,11 +58,11 @@ description: 最适合中国用户访问 ChatGPT、YouTube、GitHub 的 VPN 工�
 
 | 品牌 | 推荐理由 | 适合人群 | 缺点 | 官网链接 |
 |------|-----------|-----------|------|-----------|
-| **ExpressVPN** | 超高稳定性，解锁能力强，全天候畅通 | 对速度与安全性要求高的用户 | 价格略贵，不定期促销 | （官网可能被墙） |
-| **Surfshark** | 无限设备连接 + 较高性价比，支持多平台 | 家庭成员多、设备多的用户 | 高峰期略有波动 | 👉 [点击注册](https://chatgpt-helper.com/surfshark) |
-| **NordVPN** | 多重加密 + 强隐私保护 + 智能分流 | 重视隐私 / 多用途用户 | 英文界面为主 | 👉 [点击注册](https://chatgpt-helper.com/nordvpn) |
-| **StrongVPN** | 老品牌，界面简洁，专为解锁设计 | 新手、轻量使用者 | 节点数量不多 | 👉 [点击注册](https://chatgpt-helper.com/strongvpn) |
-| **PIA VPN** | 开源客户端 + 可定制规则 + 支持端口转发 | 高阶开发者 / 重度下载 | 界面偏技术向 | 👉 [点击注册](https://chatgpt-helper.com/pia) |
+| **ExpressVPN** | 超高稳定性，解锁能力强，全天候畅通 | 对速度与安全性要求高的用户 | 价格略贵，不定期促销 | 👉 [点击注册](https://www.expressvpn.com/) |
+| **Surfshark** | 无限设备连接 + 较高性价比，支持多平台 | 家庭成员多、设备多的用户 | 高峰期略有波动 | 👉 [点击注册](https://surfshark.com/zh) |
+| **NordVPN** | 多重加密 + 强隐私保护 + 智能分流 | 重视隐私 / 多用途用户 | 英文界面为主 | 👉 [点击注册](https://nordvpn.com/zh/) |
+| **StrongVPN** | 老品牌，界面简洁，专为解锁设计 | 新手、轻量使用者 | 节点数量不多 | 👉 [点击注册](https://strongvpn.com/) |
+| **PIA VPN** | 开源客户端 + 可定制规则 + 支持端口转发 | 高阶开发者 / 重度下载 | 界面偏技术向 | 👉 [点击注册](https://www.privateinternetaccess.com/) |
 
 ---
 
@@ -70,7 +70,7 @@ description: 最适合中国用户访问 ChatGPT、YouTube、GitHub 的 VPN 工�
 
 - [📝 ChatGPT 注册教程](https://chatgpt-helper-tech.github.io/chatgpt-register-guide/)
 - [💳 ChatGPT Plus 升级教程](https://chatgpt-helper-tech.github.io/chatgpt-plus-guide/)
-- [✈️ 科学上网机场榜单](https://chatgpt-helper-tech.github.io/airport-access/)
+- [✈️ 科学上网 机场 榜单](https://chatgpt-helper-tech.github.io/airport-access/)
 - [📘 ChatGPT 中文主站导航](https://chatgpt-helper-tech.github.io)
 
 ---
