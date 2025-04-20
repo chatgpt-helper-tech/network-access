@@ -110,7 +110,7 @@ ExpressVPN 采用 256‑bit AES 加密 和 ChaCha20 算法，支持 OpenVPN（TC
 | **ExpressVPN**  👉 [点击注册](https://www.expressvpn.com/) |
 
 
-![ExpressVPN](/network-access/assets/ExpressVPN.jpg)
+![ExpressVPN](./assets/ExpressVPN.jpg)
 
 
  
