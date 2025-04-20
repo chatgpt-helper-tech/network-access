@@ -318,5 +318,7 @@ WireGuard 下速度可达 400+ Mbps，OpenVPN 下稳定在 200–300 Mbps。
 
 ---
 
-📬 本项目由 [chatgpt-helper-tech](https://github.com/chatgpt-helper-tech) 团队维护。  
-如果你觉得内容实用，欢迎 ⭐Star 支持项目发展，并推荐给更多需要使用 AI 和外网服务的朋友。
+📬 本项目由 [chatgpt-helper-tech](https://github.com/chatgpt-helper-tech) 维护，面向中文用户持续更新  
+📂 GitHub Pages 主站地址：[https://chatgpt-helper-tech.github.io](https://chatgpt-helper-tech.github.io)  
+⭐ 如果你觉得本站有帮助，请点击 Star 或分享给有需要的朋友  
+---
