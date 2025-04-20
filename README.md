@@ -110,7 +110,7 @@ ExpressVPN 采用 256‑bit AES 加密 和 ChaCha20 算法，支持 OpenVPN（TC
 | **ExpressVPN**  👉 [点击注册](https://www.expressvpn.com/) |
 
 
-![ExpressVPN](./assets/ExpressVPN.jpg)
+![ExpressVPN](./assets/expressVPN.jpg)
 
 
  
@@ -156,6 +156,7 @@ Surfshark 使用 256‑bit AES‑GCM 加密，支持 WireGuard、OpenVPN、IKEv2
 
 
 | **Surfshark**  👉 [点击注册](https://surfshark.com/zh) |
+![Surfshark](./assets/surfshark.jpg)
 
 
 ---
@@ -201,6 +202,7 @@ NordVPN 支持 AES‑256‑GCM，加自研 NordLynx（基于 WireGuard）协议�
 
 
 | **NordVPN**  👉 [点击注册](https://nordvpn.com/zh/) |
+![NordVPN](./assets/nordVPN.jpg)
 
 
 ---
@@ -245,6 +247,7 @@ WireGuard 下速度可达 400+ Mbps，OpenVPN 下稳定在 200–300 Mbps。
 - 高级配置对非技术用户略有门槛
 
 | **PIA VPN** 👉 [点击注册](https://www.privateinternetaccess.com/) |
+![PIA VPN](./assets/pia.jpg)
 
 ---
 
@@ -290,6 +293,7 @@ WireGuard 下速度可达 400+ Mbps，OpenVPN 下稳定在 200–300 Mbps。
 - 缺少浏览器扩展
 
 | **StrongVPN** 👉 [点击注册](https://strongvpn.com/) |
+![StrongVPN](./assets/strongVPN.jpg)
 
 ---
 
