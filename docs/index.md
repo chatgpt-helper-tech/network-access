@@ -208,7 +208,7 @@ NordVPN 支持 AES‑256‑GCM，加自研 NordLynx（基于 WireGuard）协议�
 - 部分功能对新手不够友好
 
 
-| **NordVPN**  👉 [点击注册](https://nordvpn.com/zh/) |
+| **NordVPN**  👉 [点我获取限时优惠]( https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613) |
 
 
 ![NordVPN](./assets/nordVPN.jpg)
