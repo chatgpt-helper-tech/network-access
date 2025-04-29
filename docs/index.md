@@ -60,7 +60,7 @@ description: 最新2025年适合中国大陆用户的科学上网VPN工具推荐
 
 ## 🆓 免费跳板推荐：V2Free 免费机场
 
-如果你连 VPN 官网或 ChatGPT 都打不开，我们推荐你先用一个免费的机场作为跳板,每日可领取免费流量：
+如果你连 VPN 官网或 ChatGPT 都打不开，我们推荐你先用一个免费的机场作为跳板,每日可领取免费流量,内含教程：
 
 👉 [点击这里注册 V2Free（每日免费流量）](https://w1.v2free.cc/auth/register?code=i0A3)
 
@@ -168,7 +168,7 @@ Surfshark 使用 256‑bit AES‑GCM 加密，支持 WireGuard、OpenVPN、IKEv2
 
 ---
 
-### 3. NordVPN
+### 3. [NordVPN](https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613)
 
 **安全与加密**  
 NordVPN 支持 AES‑256‑GCM，加自研 NordLynx（基于 WireGuard）协议，同时兼容 OpenVPN、IKEv2/IPSec。提供双重 VPN、Onion Over VPN 和服务器混淆功能。
@@ -262,7 +262,7 @@ WireGuard 下速度可达 400+ Mbps，OpenVPN 下稳定在 200–300 Mbps。
 
 ---
 
-### 5. StrongVPN
+### 5. [StrongVPN](https://strongvpn.com/?tr_aid=68066b25e52d2)
 
 **安全与加密**  
 提供 AES‑256 加密，支持 WireGuard、OpenVPN、IKEv2/IPSec 协议。内置 Kill Switch，无日志且无 IP/DNS/WebRTC 泄漏。
@@ -303,7 +303,7 @@ WireGuard 下速度可达 400+ Mbps，OpenVPN 下稳定在 200–300 Mbps。
 - WireGuard 速度低于顶级对手  
 - 缺少浏览器扩展
 
-| **StrongVPN** 👉 [点击注册](https://strongvpn.com/) |
+| **StrongVPN** 👉 [点击注册](https://strongvpn.com/?tr_aid=68066b25e52d2) |
 
 
 ![StrongVPN](./assets/strongVPN.jpg)
@@ -319,7 +319,6 @@ WireGuard 下速度可达 400+ Mbps，OpenVPN 下稳定在 200–300 Mbps。
 | NordVPN   | AES-256-GCM   | NordLynx, OpenVPN, IKEv2     | 6000+／111+ 国      | 10           | \$3.09/月（2年） | 优秀（全平台）     | ✅             | Threat Protection, Meshnet, Onion Over VPN    |
 | PIA       | AES-128/256   | WireGuard, OpenVPN, IKEv2    | 35000+／91+ 国      | ∞            | \$2.03/月（2年） | 良好（大多数）    | ✅             | PIA MACE, Port Forwarding, Open Source        |
 | StrongVPN | AES-256       | WireGuard, OpenVPN, IKEv2    | 950／30+ 国         | 12           | \$3.66/月（年付）| 良好（Netflix）| ✅             | SugarSync (250 GB), Router Guides             |
-
 
 
 ---
