@@ -320,10 +320,10 @@ WireGuard 下速度可达 400+ Mbps，OpenVPN 下稳定在 200–300 Mbps。
 
 ## 📚 推荐配套教程
 
-- [📝 ChatGPT 注册流程（免手机号）](https://chatgpt-helper-tech.github.io/chatgpt-register-guide/)
-- [💳 ChatGPT Plus 升级教程](https://chatgpt-helper-tech.github.io/chatgpt-plus-guide/)
-- [✈️ 科学上网 机场 推荐榜单](https://chatgpt-helper-tech.github.io/airport-access/)
-- [📘 中文导航主站](https://chatgpt-helper-tech.github.io)
+- [📝 ChatGPT 注册流程（免手机号）](https://gptvpnhelper.com/chatgpt-register-guide/)
+- [💳 ChatGPT Plus 升级教程](https://gptvpnhelper.com/chatgpt-plus-guide/)
+- [✈️ 科学上网 机场 推荐榜单](https://gptvpnhelper.com/airport-access/)
+- [📘 中文导航主站](https://gptvpnhelper.com)
 
 ---
 
