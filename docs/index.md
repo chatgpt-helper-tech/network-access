@@ -326,14 +326,14 @@ WireGuard 下速度可达 400+ Mbps，OpenVPN 下稳定在 200–300 Mbps。
 
 ## 📚 推荐配套教程
 
-- [📝 ChatGPT 注册教程](https://chatgpt-helper-tech.github.io/chatgpt-register-guide/)
-- [💳 ChatGPT Plus 升级教程](https://chatgpt-helper-tech.github.io/chatgpt-plus-guide/)
-- [✈️ 科学上网 机场 榜单](https://chatgpt-helper-tech.github.io/airport-access/)
-- [📘 ChatGPT 中文主站导航](https://chatgpt-helper-tech.github.io)
+- [📝 ChatGPT 注册教程](https://gptvpnhelper.com/chatgpt-register-guide/)
+- [💳 ChatGPT Plus 升级教程](https://gptvpnhelper.com/chatgpt-plus-guide/)
+- [✈️ 科学上网 机场 榜单](https://gptvpnhelper.com/airport-access/)
+- [📘 ChatGPT 中文主站导航](https://gptvpnhelper.com)
 
 ---
 
 📬 本项目由 [chatgpt-helper-tech](https://github.com/chatgpt-helper-tech) 维护，面向中文用户持续更新  
-📂 GitHub Pages 主站地址：[https://chatgpt-helper-tech.github.io](https://chatgpt-helper-tech.github.io)  
+📂 GitHub Pages 主站地址：[https://gptvpnhelper.com](https://gptvpnhelper.com)  
 ⭐ 如果你觉得本站有帮助，请点击 Star 或分享给有需要的朋友  
 ---
