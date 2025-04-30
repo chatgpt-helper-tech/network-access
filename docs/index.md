@@ -185,10 +185,6 @@ description: 最新2025年适合中国大陆用户的科学上网VPN工具推荐
 
 ### 1. [StrongVPN](https://strongvpn.com/?tr_aid=68066b25e52d2)
 
-<a href="https://strongvpn.com/?tr_aid=68066b25e52d2" target="_blank">
-  <img src="https://strongvpn.com/images/affiliates/banners/728x90-1-blue.png" alt="StrongVPN Banner" width="600" />
-</a>
-
 
 **安全与加密**  
 提供 AES‑256 加密，支持 WireGuard、OpenVPN、IKEv2/IPSec 协议。内置 Kill Switch，无日志且无 IP/DNS/WebRTC 泄漏。
