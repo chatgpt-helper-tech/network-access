@@ -165,7 +165,7 @@ description: 最新2025年适合中国大陆用户的科学上网VPN工具推荐
 
 ---
 
-### 1. ExpressVPN
+### 1. [ExpressVPN](https://www.expressvpn.com/)
 
 **安全与加密**  
 ExpressVPN 采用 256‑bit AES 加密 和 ChaCha20 算法，支持 OpenVPN（TCP/UDP）、IKEv2/IPSec 以及自研的 Lightway 协议。Lightway 以速度快、连接稳定著称，还提供 NAT 心跳功能，提升移动端通知及时性。
@@ -209,7 +209,7 @@ ExpressVPN 采用 256‑bit AES 加密 和 ChaCha20 算法，支持 OpenVPN（TC
  
 ---
 
-### 2. Surfshark
+### 2. [Surfshark](https://surfshark.com/zh)
 
 **安全与加密**  
 Surfshark 使用 256‑bit AES‑GCM 加密，支持 WireGuard、OpenVPN、IKEv2/IPSec 协议。内置 CleanWeb 广告和恶意网站拦截，提供 MultiHop（双 VPN）和 NoBorders 模式，自动规避审查。
@@ -304,7 +304,7 @@ NordVPN 支持 AES‑256‑GCM，加自研 NordLynx（基于 WireGuard）协议�
 
 ---
 
-### 4. Private Internet Access (PIA)
+### 4. [Private Internet Access (PIA)](https://www.privateinternetaccess.com/)
 
 **安全与加密**  
 支持 AES‑128 和 AES‑256 加密，提供 WireGuard、OpenVPN、IKEv2/IPSec 协议。内置 MACE 广告/恶意软件拦截，支持 SOCKS5 代理和端口转发。
