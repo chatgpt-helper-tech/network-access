@@ -30,7 +30,7 @@ description: 最新2025年适合中国大陆用户的科学上网VPN工具推荐
 - [🥊 VPN vs SS/Clash 机场：全面对比，谁更适合你？](#-vpn-vs-ssclash-机场全面对比谁更适合你)
 - [🎯 购买 VPN 前，必须掌握的 9 项关键指标（避坑指南）](#-购买-vpn-前必须掌握的-9-项关键指标避坑指南)
 - [🆓 免费跳板推荐：V2Free 免费机场](#-免费跳板推荐v2free-免费机场)
-- [🛡️ 深度评测：2025 年度五大 VPN 服务](#-深度评测2025-年度五大-vpn-服务)
+- [🛡️ 深度评测：2025 年度五大 VPN 服务](#fivebestvpn)
    - [1. StrongVPN](#strongvpn)
    - [2. NordVPN](#2-nordvpn)
    - [3. ExpressVPN](#3-expressvpn)
@@ -177,7 +177,7 @@ description: 最新2025年适合中国大陆用户的科学上网VPN工具推荐
 - 可用于访问 ChatGPT、YouTube、GitHub、VPN 官网等
 
 ---
-
+<a id="fivebestvpn"></a>
 ## 🛡️ 深度评测：2025 年度五大 VPN 服务
 
 下面汇总了五款常见 VPN（StrongVPN、NordVPN、ExpressVPN、SurfShark、Private Internet Access）的详细参数与实测表现，帮助你快速选出最适合访问 ChatGPT、YouTube、GitHub 等海外服务的方案。
