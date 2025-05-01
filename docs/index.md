@@ -9,7 +9,7 @@ description: 最新2025年适合中国大陆用户的科学上网VPN推荐，精
 - [🎯 购买 VPN 前，必须掌握的 9 项关键指标（避坑指南）](#-购买-vpn-前必须掌握的-9-项关键指标避坑指南)
 - [🆓 免费跳板推荐：V2Free 免费机场](#-免费跳板推荐v2free-免费机场)
 - [🛡️ 深度评测：2025 年度 VPN 服务 TOP5](#fivebestvpn)
-   - [1. [StrongVPN 推荐指数:⭐️⭐⭐⭐⭐](#strongvpn)
+   - [1. StrongVPN 推荐指数:⭐️⭐⭐⭐⭐](#strongvpn)
    - [2. NordVPN    推荐指数:⭐️⭐⭐⭐⭐](#nordvpn)
    - [3. ExpressVPN 推荐指数:⭐️⭐⭐⭐](#3-expressvpn)
    - [4. Surfshark  推荐指数:⭐️⭐⭐⭐](#4-surfshark)
