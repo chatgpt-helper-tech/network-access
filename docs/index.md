@@ -202,11 +202,15 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
 ---
 
 ### ⚠️⚠️ 使用说明 tips ⚠️⚠️
-- 官网有教程,先按教程走
-- 如果连接不上,一定要勾选  Optimize The VPN for China,它专门设计用来绕过中国的封锁
-- 如果最后还是连接不上,找客户处理,问他们该如何处理,肯定是能使用的
+- 1.购买后会发邮件给你中文教程,先按教程走,全平台的教程这里都有,包含Mac,ios,Android,Windows等,[****点我查看使用教程*****](https://support.strongtech.org/hc/zh-cn/categories/21046621598619-%E5%AE%89%E8%A3%85-%E8%AE%BE%E7%BD%AE%E4%BB%A5%E5%8F%8A%E6%8A%80%E6%9C%AF%E6%96%B9%E9%9D%A2%E7%9A%84%E9%97%AE%E9%A2%98)
+- 2.如果连接不上,一定要勾选  Optimize The VPN for China,它专门设计用来绕过中国的封锁
+- [IOS单独教程,需要自行够买外区AppleId](https://support.strongvpn.com/hc/en-us/articles/25818598193819-How-to-Set-Up-OpenVPN-on-ios-Using-OpenVPN-Connect-App-For-Restricted-Countries)
+- 3.如果最后还是连接不上,找客户客服处理,问他们该如何处理,肯定是能使用的
 
 [![strongvpnspeedtest](./assets/strongvpnforchina.png)](https://strongvpn.com/?tr_aid=68066b25e52d2)
+- 4.Mac连接成功
+  [![strongvpnspeedtest](./assets/strongvpnok.png)](https://strongvpn.com/?tr_aid=68066b25e52d2)
+
 
 ---
 
