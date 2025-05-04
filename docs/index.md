@@ -1,6 +1,6 @@
 ---
 title: 2025 TOP5 VPN 推荐 | 科学上网 |  VPN 实测 | 免费机场跳板 | 快速稳定
-description: 精选 2025 年快速、稳定 VPN 服务，助你突破防火墙流畅访问 YouTube、ChatGPT、Netflix、Google 等全球互联网。还提供免费机场跳板，保障隐私与安全。
+description: 2025 年 VPN 推荐榜单，深度测评 StrongVPN、NordVPN、ExpressVPN、Surfshark、PIA，助你突破防火墙流畅访问 YouTube、ChatGPT、Netflix、Google，另有免费机场推荐，保障隐私与安全。
 ---
 ## 📖 目录
 
