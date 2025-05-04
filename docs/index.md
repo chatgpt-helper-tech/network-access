@@ -183,7 +183,7 @@ description: 精选 2025 年快速、稳定 VPN 服务，助你突破防火墙�
 
 ---
 <a id="strongvpn"></a>
-### 1. [StrongVPN 安全稳定老牌厂商,新用户立享6.6折](https://strongvpn.com/?tr_aid=68066b25e52d2)
+### 1. [StrongVPN 安全稳定老牌厂商,新用户立享6.6折,实测可用](https://strongvpn.com/?tr_aid=68066b25e52d2)
 ### 推荐指数:⭐️⭐⭐⭐⭐
 <script type="text/javascript">document.write("<iframe name='banner' src='https://affiliate.strongvpn.com/pap/scripts/banner.php?tr_aid=68066b25e52d2&amp;a_bid=3eb8c61f&amp;w=1&refx2s6d="+encodeURIComponent(encodeURIComponent(document.URL))+"' framespacing='0' frameborder='no' scrolling='no' width='729' height='90' allowtransparency='true'><a href='https://strongvpn.com/?tr_aid=68066b25e52d2&amp;a_bid=3eb8c61f' target='_top'>STR 2020</a></iframe>");
 </script>
