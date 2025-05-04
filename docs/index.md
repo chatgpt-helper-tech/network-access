@@ -110,7 +110,8 @@ description: 2025 年 VPN 推荐榜单，深度测评 StrongVPN、NordVPN、Expr
 
 如果你是新手、跨境用户、内容创作者、AI开发者——**优先选 VPN 保命+省心+效率高**  
 等熟练后可考虑搭配优质机场，实现“主干 VPN + 末端机场”双重保障，速度和自由都不落下！
-附上2025最新机场推荐评测:[✈️ 2025 机场推荐 科学上网](https://gptvpnhelper.com/airport-access/)
+- 附上2025最新机场推荐评测:
+- [✈️ 2025 机场推荐 科学上网](https://gptvpnhelper.com/airport-access/)
 
 ---
 
@@ -203,7 +204,8 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
 ---
 
 ### ⚠️⚠️ 使用说明 tips ⚠️⚠️
-- 1.购买后会发邮件给你中文教程,先按教程走,全平台的教程这里都有,包含Mac,ios,Android,Windows等,[****点我查看使用教程*****](https://support.strongtech.org/hc/zh-cn/categories/21046621598619-%E5%AE%89%E8%A3%85-%E8%AE%BE%E7%BD%AE%E4%BB%A5%E5%8F%8A%E6%8A%80%E6%9C%AF%E6%96%B9%E9%9D%A2%E7%9A%84%E9%97%AE%E9%A2%98)
+- 1.购买后会发邮件给你中文教程,先按教程走,全平台的教程这里都有,包含Mac,ios,Android,Windows等,
+- [⚠️⚠️⚠️⚠️点我查看使用教程(很重要)⚠️⚠️⚠️⚠️](https://support.strongtech.org/hc/zh-cn/categories/21046621598619-%E5%AE%89%E8%A3%85-%E8%AE%BE%E7%BD%AE%E4%BB%A5%E5%8F%8A%E6%8A%80%E6%9C%AF%E6%96%B9%E9%9D%A2%E7%9A%84%E9%97%AE%E9%A2%98)
 - 2.如果连接不上,一定要勾选  Optimize The VPN for China,它专门设计用来绕过中国的封锁
 - [IOS单独教程,需要自行够买外区AppleId](https://support.strongvpn.com/hc/en-us/articles/25818598193819-How-to-Set-Up-OpenVPN-on-ios-Using-OpenVPN-Connect-App-For-Restricted-Countries)
 - 3.如果最后还是连接不上,找客户客服处理,问他们该如何处理,肯定是能使用的
