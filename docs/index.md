@@ -329,10 +329,10 @@ NordVPN 由 Tefincom & Co., S.A. 公司开发和运营，成立至今，已经�
 
 ---
 ### ⚠️⚠️ 使用说明 tips ⚠️⚠️
-- 1. 先购买, 30天内免费退款
-- 2. 国内对vpn封锁比较严重,所以一定要按教程去使用,要手动连接vpn
+- 先购买, 30天内免费退款
+- 国内对vpn封锁比较严重,所以一定要按教程去使用,要手动连接vpn
 - [⚠️⚠️⚠️⚠️点我查看Nordvpn使用教程(很重要)⚠️⚠️⚠️⚠️](https://support.nordvpn.com/hc/en-us/articles/19572011021457-Connecting-to-NordVPN-from-country-with-internet-restrictions#macOS)
-- 3. 我是在这个列表里面连接上NordVPN服务器的,这些服务器中国区连接成功率比较高(注意时效性)
+- 我是在这个列表里面连接上NordVPN服务器的,这些服务器中国区连接成功率比较高(注意时效性)
   -    66.175.219.21 - us5783.nordvpn.com
   -    50.116.9.72 - us5783.nordvpn.com
   -    45.56.89.149 - us5783.nordvpn.com
@@ -341,10 +341,11 @@ NordVPN 由 Tefincom & Co., S.A. 公司开发和运营，成立至今，已经�
   -    45.33.43.91 - us5784.nordvpn.com
   -    172.104.110.252 - jp558.nordvpn.com
   -    139.162.99.117 - jp560.nordvpn.com
-- 4. 有任何问题,找客户客服处理,问他们该如何处理,肯定是能使用的,我就是靠客服解决的
-- 5. 如果觉得翻墙麻烦,或者最终还是无法连接,请自行去退款,避免损失
+- 有任何问题,找客户客服处理,问他们该如何处理,肯定是能使用的,我就是靠客服解决的
+- 如果觉得翻墙麻烦,或者最终还是无法连接,请自行去退款,避免损失
 --- 
 ![NordVpnSetting](./assets/nordvpnsetting.png)
+![NordVpnSetting](./assets/nordvpnok.png)
 
 ---
 
@@ -359,17 +360,16 @@ NordVPN 由 Tefincom & Co., S.A. 公司开发和运营，成立至今，已经�
 - 下载速度在500Mb的宽带下能达到300+Mb,这对于一些需要高速下载的用户来说是非常理想的
   ,特别是对流媒体视频质量要求比较高的用户,Youtube 8K视频秒开
 
-
 <div align="center">
   <div style="margin-bottom:5px; font-weight:bold;">NordVPN Youtube  8K视频 测试</div>
-  <a href="">
+  <a href="https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613">
     <img src="./assets/nordvpn8kvideo.png" alt="NordVPN Youtube  8K视频 测试" >
   </a>
 </div>
 
 <div align="center" style="margin-top:20px;">
   <div style="margin-bottom:5px; font-weight:bold;">NordVPN Speedtest 测试</div>
-  <a href="">
+  <a href="https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613">
     <img src="./assets/nordvpnspeedtest.png" alt="NordVPN Speedtest 测试" >
   </a>
 </div>
