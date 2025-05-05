@@ -64,3 +64,8 @@ img[loading="lazy"] {
 img[loading="lazy"].loaded {
     filter: blur(0);
 }
+
+.page-header {
+    background-image: none;
+}
+
