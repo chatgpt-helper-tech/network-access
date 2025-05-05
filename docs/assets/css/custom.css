@@ -1,23 +1,66 @@
-/* custom.css - 自定义样式覆盖主题 */
-h1, h2, h3 {
-    font-family: 'Arial', sans-serif;
+/* custom.css - 针对 PageSpeed 优化 */
+
+body {
+    background-color: #fff;
+    font-family: -apple-system, BlinkMacSystemFont, 'Segoe UI', Roboto, 'Helvetica Neue', Arial, sans-serif;
+    line-height: 1.6;
+}
+
+h1, h2, h3, h4, h5, h6 {
+    font-weight: 600;
+    margin-bottom: 0.5em;
 }
 
 img {
     max-width: 100%;
     height: auto;
-}
-
-body {
-    font-size: 16px;
-    line-height: 1.6;
+    display: block;
+    /* 启用懒加载支持（搭配 HTML lazy 属性） */
 }
 
 a {
-    text-decoration: none;
     color: #007acc;
+    text-decoration: none;
 }
 
 a:hover {
     text-decoration: underline;
+}
+
+.container, .page-header, .main-content {
+    max-width: 960px;
+    margin: 0 auto;
+    padding: 0 1rem;
+}
+
+button, .btn {
+    cursor: pointer;
+    background-color: #007acc;
+    color: #fff;
+    padding: 0.5rem 1rem;
+    border: none;
+    border-radius: 4px;
+    transition: background-color 0.3s ease;
+}
+
+button:hover, .btn:hover {
+    background-color: #005fa3;
+}
+
+@media (prefers-reduced-motion: reduce) {
+    * {
+        animation: none !important;
+        transition: none !important;
+        scroll-behavior: auto !important;
+    }
+}
+
+/* 图片延迟加载的辅助样式（如果需要） */
+img[loading="lazy"] {
+    filter: blur(4px);
+    transition: filter 0.3s;
+}
+
+img[loading="lazy"].loaded {
+    filter: blur(0);
 }
