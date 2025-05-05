@@ -345,7 +345,7 @@ NordVPN 由 Tefincom & Co., S.A. 公司开发和运营，成立至今，已经�
 - 如果觉得翻墙麻烦,或者最终还是无法连接,请自行去退款,避免损失
 --- 
 ![NordVpnSetting](./assets/nordvpnsetting.png)
-![NordVpnSetting](./assets/nordvpnok.png)
+![nordvpnok](./assets/nordvpnok.png)
 
 ---
 
