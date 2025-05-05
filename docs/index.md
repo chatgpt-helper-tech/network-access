@@ -329,6 +329,7 @@ NordVPN 由 Tefincom & Co., S.A. 公司开发和运营，成立至今，已经�
 
 ---
 ### ⚠️⚠️ 使用说明 tips ⚠️⚠️
+- 很多人说2025年国内NordVPN不可用,是错误的,是打开方式不对, NordVPN 是支持手动连接的,
 - 先购买, 30天内免费退款
 - 国内对vpn封锁比较严重,所以一定要按教程去使用,要手动连接vpn
 - [⚠️⚠️⚠️⚠️点我查看NordVPN使用教程(很重要)⚠️⚠️⚠️⚠️](https://support.nordvpn.com/hc/en-us/articles/19572011021457-Connecting-to-NordVPN-from-country-with-internet-restrictions#macOS)
