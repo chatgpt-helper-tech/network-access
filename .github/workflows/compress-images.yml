@@ -1,0 +1,21 @@
+name: Compress Images
+
+on:
+  push:
+    branches:
+      - main  # 或者你的主分支，比如 master
+
+jobs:
+  compress:
+    runs-on: ubuntu-latest
+
+    steps:
+      - name: Checkout repository
+        uses: actions/checkout@v4
+
+      - name: Compress images
+        uses: calibreapp/image-actions@v1
+        with:
+          githubToken: ${{ secrets.GITHUB_TOKEN }}
+          jpegQuality: '80'
+          pngQuality: '80'
