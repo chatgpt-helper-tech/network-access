@@ -1,0 +1,23 @@
+name: Compress Images
+
+on:
+  push:
+    branches:
+      - main
+    paths:
+      - '**/*.png'
+      - '**/*.jpg'
+      - '**/*.jpeg'
+
+jobs:
+  compress-images:
+    runs-on: ubuntu-latest
+
+    steps:
+      - name: Checkout repository
+        uses: actions/checkout@v4
+
+      - name: Compress Images
+        uses: mikeal/imagemin-action@master
+        with:
+          github_token: ${{ secrets.GITHUB_TOKEN }}
