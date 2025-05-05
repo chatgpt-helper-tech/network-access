@@ -21,3 +21,5 @@ jobs:
         uses: mikeal/imagemin-action@master
         with:
           github_token: ${{ secrets.GITHUB_TOKEN }}
+
+
