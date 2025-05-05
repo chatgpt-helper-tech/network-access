@@ -317,7 +317,7 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
 ---
 
 <a id="nordvpn"></a>
-### 2. [NordVPN 2025年顶级VPN,实测可用](https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613)
+### 2. [NordVPN 2025年顶级VPN,73% 折扣 + 3 个月额外时长](https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613)
 推荐指数:⭐️⭐⭐⭐⭐
 [![NordVPN Banner](./assets/affiliate-spring-global-2025-campaign-1200x628-zh.png)](https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613)
 
