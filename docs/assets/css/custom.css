@@ -87,20 +87,21 @@ a:hover {
 .page-header {
     background: none;
     padding: 10px;
-    display: flex;
-    flex-direction: column;
-    align-items: center;
+    display: block;  /* 先用 block，排除 flex 影响 */
     text-align: center;
 }
+
 .project-name {
     font-size: 1.5rem;
     font-weight: bold;
     margin-bottom: 0.5rem;
 }
+
 .project-tagline {
     font-size: 1rem;
     margin-bottom: 0.5rem;
 }
+
 
 
 
