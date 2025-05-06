@@ -321,7 +321,7 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
 [![NordVPN Banner](./assets/affiliate-spring-global-2025-campaign-1200x628-zh.webp)](https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613)
 
 **简介**
-NordVPN 成立于 2012 年，由三位朋友在 拉脱维亚 创办，他们当时的目标是创建一个能够保护用户在线隐私和安全的 VPN 服务。这些创始人深受网络安全和隐私保护问题的启发，决心为全球用户提供一个快速、安全、可靠的解决方案。
+- NordVPN 成立于 2012 年，由三位朋友在 拉脱维亚 创办，他们当时的目标是创建一个能够保护用户在线隐私和安全的 VPN 服务。这些创始人深受网络安全和隐私保护问题的启发，决心为全球用户提供一个快速、安全、可靠的解决方案。
 NordVPN 是全球领先的虚拟私人网络（VPN）服务提供商之一，以其卓越的安全性、隐私保护、以及高效的性能而闻名。
 NordVPN 由 Tefincom & Co., S.A. 公司开发和运营，成立至今，已经成为全球数百万用户的首选 VPN 服务商。其强大的加密技术、全球服务器网络和用户友好的应用界面，使其成为安全上网的可靠伙伴。
 
@@ -478,8 +478,15 @@ ExpressVPN 采用 256‑bit AES 加密 和 ChaCha20 算法，支持 OpenVPN（TC
  
 ---
 
-### 4. [Surfshark](https://surfshark.com/zh)
+### 4. [SurfShark 极高性价比,新用户立省87%](https://get.surfshark.net/aff_c?offer_id=926&aff_id=38237)
 推荐指数:⭐️⭐⭐⭐
+
+**简介**
+- Surfshark 是一家知名的 VPN 服务提供商，总部位于荷兰，致力于为用户提供高速、安全、隐私保护的网络连接。
+自创立以来，Surfshark 凭借出色的性能、亲民的价格和丰富的功能，迅速崛起为全球最受欢迎的 VPN 品牌之一。
+凭借极具竞争力的性价比和多样化的功能，Surfshark 特别适合需要翻墙访问、注重隐私、或对流媒体有需求的用户。
+如果你正在寻找一款值得长期投资的 VPN，Surfshark 无疑是值得考虑的选择。
+
 **安全与加密**  
 Surfshark 使用 256‑bit AES‑GCM 加密，支持 WireGuard、OpenVPN、IKEv2/IPSec 协议。内置 CleanWeb 广告和恶意网站拦截，提供 MultiHop（双 VPN）和 NoBorders 模式，自动规避审查。
 
@@ -490,7 +497,7 @@ Surfshark 使用 256‑bit AES‑GCM 加密，支持 WireGuard、OpenVPN、IKEv2
 在 100+ 个国家/地区运营 3200+ 台服务器，所有服务器均允许 P2P 流量。
 
 **无限设备连接**  
-支持无限台设备同时登录，家庭和多设备用户理想之选。
+> 支持无限台设备同时登录，家庭和多设备用户理想之选。
 
 **速度实测**  
 基于 WireGuard，下载速度平均可达 400+ Mbps，高清视频流畅无缓冲。
@@ -504,9 +511,9 @@ Surfshark 使用 256‑bit AES‑GCM 加密，支持 WireGuard、OpenVPN、IKEv2
 - Smart DNS：兼容不支持 VPN 的设备
 
 **价格方案**  
-- 两年套餐：$2.49/月（含 30 天退款）  
-- 一年套餐：$3.99/月  
-- 月付：$12.95/月
+- 两年套餐：$1.99/月（含 30 天退款）  
+- 一年套餐：$3.19/月  
+- 月付：$15.45/月
 
 **优点**  
 - 极高性价比  
@@ -517,7 +524,7 @@ Surfshark 使用 256‑bit AES‑GCM 加密，支持 WireGuard、OpenVPN、IKEv2
 - 部分高级功能对新手略显复杂
 
 <div align="center" style="margin-top:20px;">
-  <a href="https:https://surfshark.com/zh" style="background-color:#ffc107; color:#212529; padding:10px 20px; border-radius:5px; text-decoration:none; font-weight:bold;">
+  <a href="https://get.surfshark.net/aff_c?offer_id=926&aff_id=38237" style="background-color:#ffc107; color:#212529; padding:10px 20px; border-radius:5px; text-decoration:none; font-weight:bold;">
     🚀 点击前往 SurfShark 官网注册
   </a>
 </div>  
