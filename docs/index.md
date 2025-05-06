@@ -210,9 +210,10 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
 - > [IOS单独教程,需要自行够买外区AppleId](https://support.strongvpn.com/hc/en-us/articles/25818598193819-How-to-Set-Up-OpenVPN-on-ios-Using-OpenVPN-Connect-App-For-Restricted-Countries)
 - > 3.如果最后还是连接不上,找客户客服处理,问他们该如何处理,肯定是能使用的
 
-[![StrongVpn 速度测试](./assets/strongvpnforchina.webp)](https://strongvpn.com/?tr_aid=68066b25e52d2)
+  ![StrongVpn 速度测试](./assets/strongvpnforchina.webp)
+
 > 4.Mac连接成功
-  [![StrongVpn 连接成功](./assets/strongvpnok.webp)](https://strongvpn.com/?tr_aid=68066b25e52d2)
+  ![StrongVpn 连接成功](./assets/strongvpnok.webp)
 
 
 ---
@@ -229,16 +230,12 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
 
 <div align="center">
   <div style="margin-bottom:5px; font-weight:bold;">StrongVPN Youtube BBC 4K视频 测试</div>
-  <a href="https://strongvpn.com/?tr_aid=68066b25e52d2">
     <img src="./assets/strongvpnbbctest.webp" alt="StrongVPN Youtube 4K视频 测试" >
-  </a>
 </div>
 
 <div align="center" style="margin-top:20px;">
   <div style="margin-bottom:5px; font-weight:bold;">StrongVPN Speedtest 测试</div>
-  <a href="https://strongvpn.com/?tr_aid=68066b25e52d2">
     <img src="./assets/strongvpnspeedtest.webp" alt="StrongVPN Speedtest 测试" >
-  </a>
 </div>
 
 --- 
@@ -249,7 +246,8 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
 - **无日志政策**：StrongVPN 承诺不记录用户的活动日志，增强用户的隐私保护。
 - **自动断线保护（Kill Switch）**：在 VPN 连接意外断开时，自动切断互联网连接，防止数据泄露。
 - **多种协议支持**：包括 WireGuard、IKEv2、OpenVPN 和 IPSec 等，满足不同用户的需求。
-  [![StrongVPN 协议](./assets/strongvpnprotocls.webp)](https://strongvpn.com/?tr_aid=68066b25e52d2)
+
+  <img src="./assets/strongvpnprotocls.webp" alt="StrongVPN 协议" loading="lazy">
 
 --- 
 
@@ -319,7 +317,7 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
 <a id="nordvpn"></a>
 ### 2. [NordVPN 2025年顶级VPN,73% 折扣 + 3 个月额外时长](https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613)
 推荐指数:⭐️⭐⭐⭐⭐
-[![NordVPN Banner](./assets/affiliate-spring-global-2025-campaign-1200x628-zh.png)](https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613)
+[![NordVPN Banner](./assets/affiliate-spring-global-2025-campaign-1200x628-zh.webp)](https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613)
 
 **简介**
 NordVPN 成立于 2012 年，由三位朋友在 拉脱维亚 创办，他们当时的目标是创建一个能够保护用户在线隐私和安全的 VPN 服务。这些创始人深受网络安全和隐私保护问题的启发，决心为全球用户提供一个快速、安全、可靠的解决方案。
@@ -363,16 +361,12 @@ NordVPN 由 Tefincom & Co., S.A. 公司开发和运营，成立至今，已经�
 
 <div align="center">
   <div style="margin-bottom:5px; font-weight:bold;">NordVPN Youtube  8K视频 测试</div>
-  <a href="https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613">
     <img src="./assets/nordvpn8kvideo.webp" alt="NordVPN Youtube  8K视频 测试" >
-  </a>
 </div>
 
 <div align="center" style="margin-top:20px;">
   <div style="margin-bottom:5px; font-weight:bold;">NordVPN Speedtest 测试</div>
-  <a href="https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613">
     <img src="./assets/nordvpnspeedtest.webp" alt="NordVPN Speedtest 测试" >
-  </a>
 </div>
 
 ---

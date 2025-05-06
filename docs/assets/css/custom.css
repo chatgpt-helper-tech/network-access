@@ -84,6 +84,11 @@ a:hover {
     text-decoration: none;
     border-bottom: 1px dashed #004080;
 }
+.page-header {
+    background-color: #f5f5f5;
+}
+.btn { display: none; }
+
 
 
 
