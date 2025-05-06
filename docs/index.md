@@ -210,9 +210,9 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
 - [IOS单独教程,需要自行够买外区AppleId](https://support.strongvpn.com/hc/en-us/articles/25818598193819-How-to-Set-Up-OpenVPN-on-ios-Using-OpenVPN-Connect-App-For-Restricted-Countries)
 - 3.如果最后还是连接不上,找客户客服处理,问他们该如何处理,肯定是能使用的
 
-[![StrongVpn 速度测试](./assets/strongvpnforchina.png)](https://strongvpn.com/?tr_aid=68066b25e52d2)
+[![StrongVpn 速度测试](./assets/strongvpnforchina.webp)](https://strongvpn.com/?tr_aid=68066b25e52d2)
 - 4.Mac连接成功
-  [![StrongVpn 连接成功](./assets/strongvpnok.png)](https://strongvpn.com/?tr_aid=68066b25e52d2)
+  [![StrongVpn 连接成功](./assets/strongvpnok.webp)](https://strongvpn.com/?tr_aid=68066b25e52d2)
 
 
 ---
@@ -230,14 +230,14 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
 <div align="center">
   <div style="margin-bottom:5px; font-weight:bold;">StrongVPN Youtube BBC 4K视频 测试</div>
   <a href="https://strongvpn.com/?tr_aid=68066b25e52d2">
-    <img src="./assets/strongvpnbbctest.png" alt="StrongVPN Youtube 4K视频 测试" >
+    <img src="./assets/strongvpnbbctest.webp" alt="StrongVPN Youtube 4K视频 测试" >
   </a>
 </div>
 
 <div align="center" style="margin-top:20px;">
   <div style="margin-bottom:5px; font-weight:bold;">StrongVPN Speedtest 测试</div>
   <a href="https://strongvpn.com/?tr_aid=68066b25e52d2">
-    <img src="./assets/strongvpnspeedtest.jpg" alt="StrongVPN Speedtest 测试" >
+    <img src="./assets/strongvpnspeedtest.webp" alt="StrongVPN Speedtest 测试" >
   </a>
 </div>
 
@@ -249,7 +249,7 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
 - **无日志政策**：StrongVPN 承诺不记录用户的活动日志，增强用户的隐私保护。
 - **自动断线保护（Kill Switch）**：在 VPN 连接意外断开时，自动切断互联网连接，防止数据泄露。
 - **多种协议支持**：包括 WireGuard、IKEv2、OpenVPN 和 IPSec 等，满足不同用户的需求。
-  [![StrongVPN 协议](./assets/strongvpnprotocls.jpg)](https://strongvpn.com/?tr_aid=68066b25e52d2)
+  [![StrongVPN 协议](./assets/strongvpnprotocls.webp)](https://strongvpn.com/?tr_aid=68066b25e52d2)
 
 --- 
 
@@ -312,7 +312,7 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
   </a>
 </div>
 
-[![StrongVPN 购买套餐](./assets/strongVPN.jpg)](https://strongvpn.com/?tr_aid=68066b25e52d2)
+[![StrongVPN 购买套餐](./assets/strongVPN.webp)](https://strongvpn.com/?tr_aid=68066b25e52d2)
 
 ---
 
@@ -345,8 +345,8 @@ NordVPN 由 Tefincom & Co., S.A. 公司开发和运营，成立至今，已经�
 - 有任何问题,找客户客服处理,问他们该如何处理,肯定是能使用的,我就是靠客服解决的
 - 如果觉得翻墙麻烦,或者最终还是无法连接,请自行去退款,避免损失
 --- 
-![NordVPN 手动连接设置](./assets/nordvpnsetting.png)
-![NordVPN 手动设置连接成功](./assets/nordvpnok.png)
+![NordVPN 手动连接设置](./assets/nordvpnsetting.webp)
+![NordVPN 手动设置连接成功](./assets/nordvpnok.webp)
 
 ---
 
@@ -364,14 +364,14 @@ NordVPN 由 Tefincom & Co., S.A. 公司开发和运营，成立至今，已经�
 <div align="center">
   <div style="margin-bottom:5px; font-weight:bold;">NordVPN Youtube  8K视频 测试</div>
   <a href="https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613">
-    <img src="./assets/nordvpn8kvideo.png" alt="NordVPN Youtube  8K视频 测试" >
+    <img src="./assets/nordvpn8kvideo.webp" alt="NordVPN Youtube  8K视频 测试" >
   </a>
 </div>
 
 <div align="center" style="margin-top:20px;">
   <div style="margin-bottom:5px; font-weight:bold;">NordVPN Speedtest 测试</div>
   <a href="https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613">
-    <img src="./assets/nordvpnspeedtest.png" alt="NordVPN Speedtest 测试" >
+    <img src="./assets/nordvpnspeedtest.webp" alt="NordVPN Speedtest 测试" >
   </a>
 </div>
 
@@ -429,7 +429,7 @@ NordVPN 拥有 **5500 多个服务器**，分布在全球超过 **60 个国家**
   </a>
 </div>
 
-[![NordVPN 套餐价格](./assets/nordVPN.jpg)](https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613)
+[![NordVPN 套餐价格](./assets/nordVPN.webp)](https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613)
 
 ---
 
@@ -471,7 +471,7 @@ ExpressVPN 采用 256‑bit AES 加密 和 ChaCha20 算法，支持 OpenVPN（TC
 | **ExpressVPN**  👉 [点击注册](https://www.expressvpn.com/) |
 
 
-![ExpressVPN 套餐价格](./assets/expressVPN.jpg)
+![ExpressVPN 套餐价格](./assets/expressVPN.webp)
 
 
  
@@ -519,7 +519,7 @@ Surfshark 使用 256‑bit AES‑GCM 加密，支持 WireGuard、OpenVPN、IKEv2
 | **Surfshark**  👉 [点击注册](https://surfshark.com/zh) |
 
 
-![Surfshark 套餐价格](./assets/surfshark.jpg)
+![Surfshark 套餐价格](./assets/surfshark.webp)
 
 
 ---
@@ -567,7 +567,7 @@ WireGuard 下速度可达 400+ Mbps，OpenVPN 下稳定在 200–300 Mbps。
 | **PIA VPN** 👉 [点击注册](https://www.privateinternetaccess.com/) |
 
 
-![PIA VPN 套餐价格](./assets/pia.jpg)
+![PIA VPN 套餐价格](./assets/pia.webp)
 
 ---
 
