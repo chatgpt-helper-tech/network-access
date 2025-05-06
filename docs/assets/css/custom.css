@@ -18,16 +18,9 @@ img {
     /* 启用懒加载支持（搭配 HTML lazy 属性） */
 }
 
-a {
-    color: #007acc;
-    text-decoration: none;
-}
 
-a:hover {
-    text-decoration: underline;
-}
 
-.container, .page-header, .main-content {
+.container, .main-content {
     max-width: 960px;
     margin: 0 auto;
     padding: 0 1rem;
