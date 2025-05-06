@@ -85,6 +85,11 @@ a:hover {
     line-height: 1.4;
     text-align: center;
 }
+.main-content p.intro {
+    font-size: 1.1rem;
+    line-height: 1.6;
+    margin-top: 0.5rem;
+}
 
 
 
