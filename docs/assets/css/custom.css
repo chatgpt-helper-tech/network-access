@@ -65,3 +65,12 @@ img[loading="lazy"].loaded {
     filter: blur(0);
 }
 
+blockquote {
+    background-color: #f1f3f5;
+    color: #212529;
+    padding: 10px;
+    border-left: 4px solid #0d6efd;
+    border-radius: 4px;
+}
+
+
