@@ -204,11 +204,11 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
 ---
 
 ### ⚠️⚠️ 使用说明 tips ⚠️⚠️
-> 1.国内对vpn封锁比较严重,购买后会发邮件给你中文教程,先按教程走,全平台的教程这里都有,包含Mac,ios,Android,Windows等,
-> [⚠️⚠️⚠️⚠️点我查看使用教程(很重要)⚠️⚠️⚠️⚠️](https://support.strongtech.org/hc/zh-cn/categories/21046621598619-%E5%AE%89%E8%A3%85-%E8%AE%BE%E7%BD%AE%E4%BB%A5%E5%8F%8A%E6%8A%80%E6%9C%AF%E6%96%B9%E9%9D%A2%E7%9A%84%E9%97%AE%E9%A2%98)
-> 2.如果连接不上,一定要勾选  Optimize The VPN for China,它专门设计用来绕过中国的封锁
-> [IOS单独教程,需要自行够买外区AppleId](https://support.strongvpn.com/hc/en-us/articles/25818598193819-How-to-Set-Up-OpenVPN-on-ios-Using-OpenVPN-Connect-App-For-Restricted-Countries)
-> 3.如果最后还是连接不上,找客户客服处理,问他们该如何处理,肯定是能使用的
+- > 1.国内对vpn封锁比较严重,购买后会发邮件给你中文教程,先按教程走,全平台的教程这里都有,包含Mac,ios,Android,Windows等,
+- > [⚠️⚠️⚠️⚠️点我查看使用教程(很重要)⚠️⚠️⚠️⚠️](https://support.strongtech.org/hc/zh-cn/categories/21046621598619-%E5%AE%89%E8%A3%85-%E8%AE%BE%E7%BD%AE%E4%BB%A5%E5%8F%8A%E6%8A%80%E6%9C%AF%E6%96%B9%E9%9D%A2%E7%9A%84%E9%97%AE%E9%A2%98)
+- > 2.如果连接不上,一定要勾选  Optimize The VPN for China,它专门设计用来绕过中国的封锁
+- > [IOS单独教程,需要自行够买外区AppleId](https://support.strongvpn.com/hc/en-us/articles/25818598193819-How-to-Set-Up-OpenVPN-on-ios-Using-OpenVPN-Connect-App-For-Restricted-Countries)
+- > 3.如果最后还是连接不上,找客户客服处理,问他们该如何处理,肯定是能使用的
 
 [![StrongVpn 速度测试](./assets/strongvpnforchina.webp)](https://strongvpn.com/?tr_aid=68066b25e52d2)
 > 4.Mac连接成功
@@ -329,10 +329,10 @@ NordVPN 由 Tefincom & Co., S.A. 公司开发和运营，成立至今，已经�
 
 ---
 ### ⚠️⚠️ 使用说明 tips ⚠️⚠️
-> 很多人说2025年国内NordVPN不可用,是错误的,是打开方式不对, NordVPN 是支持手动连接的.
-> 先购买, 30天内免费退款
-> 国内对vpn封锁比较严重,所以一定要按教程去使用,要手动连接vpn
-> [⚠️⚠️⚠️⚠️点我查看NordVPN使用教程(很重要)⚠️⚠️⚠️⚠️](https://support.nordvpn.com/hc/en-us/articles/19572011021457-Connecting-to-NordVPN-from-country-with-internet-restrictions#macOS)
+- > 很多人说2025年国内NordVPN不可用,是错误的,是打开方式不对, NordVPN 是支持手动连接的.
+- > 先购买, 30天内免费退款
+- > 国内对vpn封锁比较严重,所以一定要按教程去使用,要手动连接vpn
+- > [⚠️⚠️⚠️⚠️点我查看NordVPN使用教程(很重要)⚠️⚠️⚠️⚠️](https://support.nordvpn.com/hc/en-us/articles/19572011021457-Connecting-to-NordVPN-from-country-with-internet-restrictions#macOS)
 - 我是在这个列表里面连接上NordVPN服务器的,这些服务器中国区连接成功率比较高(注意时效性)
   -    66.175.219.21 - us5783.nordvpn.com
   -    50.116.9.72 - us5783.nordvpn.com
@@ -342,8 +342,8 @@ NordVPN 由 Tefincom & Co., S.A. 公司开发和运营，成立至今，已经�
   -    45.33.43.91 - us5784.nordvpn.com
   -    172.104.110.252 - jp558.nordvpn.com
   -    139.162.99.117 - jp560.nordvpn.com
-> 有任何问题,找客户客服处理,问他们该如何处理,肯定是能使用的,我就是靠客服解决的
-> 如果觉得翻墙麻烦,或者最终还是无法连接,请自行去退款,避免损失
+- > 有任何问题,找客户客服处理,问他们该如何处理,肯定是能使用的,我就是靠客服解决的
+- > 如果觉得翻墙麻烦,或者最终还是无法连接,请自行去退款,避免损失
 --- 
 ![NordVPN 手动连接设置](./assets/nordvpnsetting.webp)
 ![NordVPN 手动设置连接成功](./assets/nordvpnok.webp)
