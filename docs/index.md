@@ -248,7 +248,7 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
 - **自动断线保护（Kill Switch）**：在 VPN 连接意外断开时，自动切断互联网连接，防止数据泄露。
 - **多种协议支持**：包括 WireGuard、IKEv2、OpenVPN 和 IPSec 等，满足不同用户的需求。
 
-  <img src="./assets/strongvpnprotocls.webp" alt="StrongVPN 协议" loading="lazy">
+  <img src="./assets/strongvpnprotocls.webp" alt="StrongVPN 协议">
 
 --- 
 
