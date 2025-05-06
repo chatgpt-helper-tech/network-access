@@ -65,12 +65,13 @@ img[loading="lazy"].loaded {
     filter: blur(0);
 }
 
-blockquote {
-    background-color: #ffffff;
-    color: #000000;
-    padding: 10px;
-    border-left: 4px solid #0d6efd;
-    border-radius: 4px;
+body blockquote {
+    background-color: #ffffff !important;
+    color: #000000 !important;
+    padding: 10px !important;
+    border-left: 4px solid #0d6efd !important;
+    border-radius: 4px !important;
 }
+
 
 
