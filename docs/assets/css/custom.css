@@ -76,6 +76,16 @@ h3, h3 a {
     color: #004080 !important;
 }
 
+a {
+    text-decoration: underline;
+}
+
+a:hover {
+    text-decoration: none;
+    border-bottom: 1px dashed #004080;
+}
+
+
 
 
 
