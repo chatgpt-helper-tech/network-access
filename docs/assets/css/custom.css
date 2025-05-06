@@ -84,23 +84,6 @@ a:hover {
     text-decoration: none;
     border-bottom: 1px dashed #004080;
 }
-.page-header {
-    background: none;
-    padding: 10px;
-    display: block;  /* 先用 block，排除 flex 影响 */
-    text-align: center;
-}
-
-.project-name {
-    font-size: 1.5rem;
-    font-weight: bold;
-    margin-bottom: 0.5rem;
-}
-
-.project-tagline {
-    font-size: 1rem;
-    margin-bottom: 0.5rem;
-}
 
 
 
