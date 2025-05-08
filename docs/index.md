@@ -219,9 +219,8 @@ description: 2025 年 VPN工具推荐榜单，科学上网教程,深度测评 Su
 
 <div align="center">
   <div style="margin-bottom:5px; font-weight:bold;"> Surfshark Youtube 4K视频 测试</div>
-  {% picture surfsharkbbc4k测速.webp --alt "Surfshark Youtube 4K视频 测试" %}
+    <img src="./assets/surfsharkbbc4k测速.webp" alt="Surfshark Youtube 4K视频 测试" >
 </div>
-
 
 
 <div align="center" style="margin-top:20px;">
@@ -293,6 +292,7 @@ Surfshark 使用 256‑bit AES‑GCM 加密，支持 WireGuard、OpenVPN、IKEv2
 |  **流媒体**      | ⭐⭐⭐⭐⭐   | 流媒体是 NordVPN 的一大亮点,尤其是在 Netflix、Hulu、BBC iPlayer 等平台的解锁能力上 |
 |  **速度**       | ⭐⭐⭐⭐⭐   | 速度最快的VPN了                                                  |
 |  **安全与隐私**  | ⭐⭐⭐⭐⭐   | NordVPN 是全球用户隐私安全的守护者                                      |
+
 --- 
 [![NordVPN Banner](./assets/affiliate-spring-global-2025-campaign-1200x628-zh.webp)](https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613)
 --- 
@@ -411,14 +411,15 @@ NordVPN 拥有 **5500 多个服务器**，分布在全球超过 **60 个国家**
 <a id="strongvpn"></a>
 ### 3. [StrongVPN 安全稳定老牌厂商,新用户立享6.6折,实测可用](https://strongvpn.com/?tr_aid=68066b25e52d2)
 
-| 项目              | 评分    | 评分理由                                                       |
-|-------------------|-------|------------------------------------------------------------|
-|  **推荐指数**     | ⭐⭐⭐⭐  | 老牌稳定VPN                                                    |
-|  **中国地区易用性** | ⭐⭐⭐⭐  | 因为封锁严重,不能直接下载就能使用,需要单独下载软件,有教程                             |
-|  **价格**       | ⭐⭐⭐⭐  | 年付 $3.98/月 ,有一定优势                                          |
-|  **流媒体**      | ⭐⭐⭐⭐⭐ | 对于 P2P 下载提供良好的支持,主流流媒体全解锁 |
-|  **速度**       | ⭐⭐⭐⭐  | 速度完全够用,4K秒开,但是不是最快的                                                      |
-|  **安全与隐私**  | ⭐⭐⭐⭐⭐ | StrongVPN 提供了行业标准的安全功能                                     |
+| 项目              | 评分      | 评分理由                           |
+|-------------------|-----------|--------------------------------|
+| **推荐指数**      | ⭐⭐⭐⭐⭐     | 老牌稳定VPN,值得信赖                   |
+| **中国地区易用性**| ⭐⭐⭐⭐      | 因为封锁严重,不能直接下载就能使用,需要单独下载软件,有教程 |
+| **价格**         | ⭐⭐⭐⭐      | 年付 $3.98/月,有一定优势               |
+| **流媒体**       | ⭐⭐⭐⭐⭐     | 对于 P2P 下载提供良好的支持,主流流媒体全解锁      |
+| **速度**         | ⭐⭐⭐⭐      | 速度完全够用,4K 秒开,但是不是最快的           |
+| **安全与隐私**    | ⭐⭐⭐⭐⭐     | StrongVPN 提供了行业标准的安全功能         |
+
 --- 
 <script type="text/javascript">document.write("<iframe  name='banner' title='StrongVPN 横幅' src='https://affiliate.strongvpn.com/pap/scripts/banner.php?tr_aid=68066b25e52d2&amp;a_bid=3eb8c61f&amp;w=1&refx2s6d="+encodeURIComponent(encodeURIComponent(document.URL))+"' framespacing='0' frameborder='no' scrolling='no' width='729' height='90' allowtransparency='true'><a href='https://strongvpn.com/?tr_aid=68066b25e52d2&amp;a_bid=3eb8c61f' target='_top'>STR 2020</a></iframe>");
 </script>
