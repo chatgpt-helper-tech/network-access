@@ -6,15 +6,5 @@ url: "https://gptvpnhelper.com"
 baseurl: "/network-access"
 plugins:
   - jekyll-seo-tag
-  - jekyll-picture-tag
 github:
   is_project_page: true
-
-
-picture:
-  source: assets              # 你现在的图片目录
-  output: assets/generated    # 生成的响应式图片会放这里
-  markup: "auto"
-  formats:
-    - webp
-    - original
