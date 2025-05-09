@@ -282,7 +282,6 @@ Surfshark 使用 256‑bit AES‑GCM 加密，支持 WireGuard、OpenVPN、IKEv2
      loading="eager" fetchpriority="high" decoding="async" alt="Surfshark 套餐价格" >
 </div>
 
-[//]: # (![Surfshark 套餐价格]&#40;./assets/surfshark.webp&#41;{width="800" height="450" loading="eager" fetchpriority="high" decoding="async"})
 
 ---
 ***************************************************************************************************************
@@ -309,7 +308,6 @@ Surfshark 使用 256‑bit AES‑GCM 加密，支持 WireGuard、OpenVPN、IKEv2
     </a>
 </div>
 
-[//]: # ([![NordVPN Banner]&#40;./assets/affiliate-spring-global-2025-campaign-1200x628-zh.webp&#41;{width="800" height="450" loading="eager" fetchpriority="high" decoding="async"}]&#40;https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613&#41;)
 --- 
 **简介**
 - NordVPN 成立于 2012 年，由三位朋友在 拉脱维亚 创办，他们当时的目标是创建一个能够保护用户在线隐私和安全的 VPN 服务。这些创始人深受网络安全和隐私保护问题的启发，决心为全球用户提供一个快速、安全、可靠的解决方案。
@@ -346,9 +344,7 @@ Surfshark 使用 256‑bit AES‑GCM 加密，支持 WireGuard、OpenVPN、IKEv2
          loading="eager" fetchpriority="high" decoding="async" alt="NordVPN 手动设置连接成功" >
 </div>
 
-[//]: # (![NordVPN 手动连接设置]&#40;./assets/nordvpnsetting.webp&#41;{width="800" height="450" loading="eager" fetchpriority="high" decoding="async"})
 
-[//]: # (![NordVPN 手动设置连接成功]&#40;./assets/nordvpnok.webp&#41;{width="800" height="450" loading="eager" fetchpriority="high" decoding="async"})
 
 ---
 
@@ -434,7 +430,6 @@ NordVPN 拥有 **5500 多个服务器**，分布在全球超过 **60 个国家**
 </a>
 </div>
 
-[//]: # ([![NordVPN 套餐价格]&#40;./assets/nordVPN.webp&#41;{width="800" height="450" loading="eager" fetchpriority="high" decoding="async"}]&#40;https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613&#41;)
 
 
 ---
@@ -491,7 +486,6 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
     <img src="./assets/strongvpnok.webp" width="800" height="450" loading="eager" fetchpriority="high" decoding="async" alt="StrongVpn 连接成功" >
 </div>
 
-[//]: # (  ![StrongVpn 连接成功]&#40;./assets/strongvpnok.webp&#41;{width="800" height="450" loading="eager" fetchpriority="high" decoding="async"})
 
 
 ---
@@ -588,7 +582,8 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
   </a>
 </div>
 
-[![StrongVPN 购买套餐](./assets/strongVPN.webp){width="800" height="450" loading="eager" fetchpriority="high" decoding="async"}](https://strongvpn.com/?tr_aid=68066b25e52d2)
+<img src="./assets/strongVPN.webp" width="800" height="450" loading="eager" fetchpriority="high" decoding="async" alt="StrongVPN 购买套餐">
+
 
 ---
 ***************************************************************************************************************
@@ -642,7 +637,6 @@ ExpressVPN 采用 256‑bit AES 加密 和 ChaCha20 算法，支持 OpenVPN（TC
     <img src="./assets/expressVPN.webp" width="800" height="450" loading="eager" fetchpriority="high" decoding="async" alt="ExpressVPN 套餐价格" >
 </div>
 
-[//]: # (![ExpressVPN 套餐价格]&#40;./assets/expressVPN.webp&#41;{width="800" height="450" loading="eager" fetchpriority="high" decoding="async"})
 
 
 
@@ -700,7 +694,6 @@ WireGuard 下速度可达 400+ Mbps，OpenVPN 下稳定在 200–300 Mbps。
     <img src="./assets/pia.webp" width="800" height="450" loading="eager" fetchpriority="high" decoding="async" alt="PIA VPN 套餐价格" >
 </div>
 
-[//]: # (![PIA VPN 套餐价格]&#40;./assets/pia.webp&#41;{width="800" height="450" loading="eager" fetchpriority="high" decoding="async"})
 
 ---
 
