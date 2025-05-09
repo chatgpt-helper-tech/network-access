@@ -1,6 +1,5 @@
 /* custom.css - 针对 PageSpeed 优化 */
-/* 引入 cayman 主题基础样式 */
-@import url("https://cdnjs.cloudflare.com/ajax/libs/jekyll-theme-cayman/1.0.0/cayman.min.css");
+@import url('./cayman.css');
 
 body {
     background-color: #fff;
