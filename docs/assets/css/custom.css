@@ -1,5 +1,3 @@
-/* custom.css - 针对 PageSpeed 优化 */
-@import url('./cayman.css');
 
 body {
     background-color: #fff;
@@ -75,7 +73,6 @@ a:hover {
     line-height: 1.1;
 }
 
-img { aspect-ratio: 16/9; width:100%; height:auto; }
 
 
 
