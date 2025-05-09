@@ -11,9 +11,28 @@
 
   <!-- 重要！禁止seo-tag重复生成title -->
   {% seo title=false %}
+  <!-- 内联 Critical CSS -->
+  <style>
+    .page-header {
+      color: #fff;
+      text-align: center;
+      background: #159957 linear-gradient(120deg, #155799, #159957);
+    }
+    .project-name {
+      font-size: clamp(2rem, 6vw, 3.25rem);
+      margin: 0;
+      line-height: 1.1;
+    }
+  </style>
 
-  <link rel="stylesheet" href="{{ '/assets/css/style.css' | relative_url }}">
-  <link rel="stylesheet" href="{{ '/assets/css/custom.css' | relative_url }}">
+  <!-- 外部样式延迟加载 -->
+  <link rel="preload" href="{{ '/assets/css/style.css' | relative_url }}" as="style">
+  <link rel="stylesheet" href="{{ '/assets/css/style.css' | relative_url }}" media="print" onload="this.media='all'">
+  <noscript><link rel="stylesheet" href="{{ '/assets/css/style.css' | relative_url }}"></noscript>
+
+  <link rel="preload" href="{{ '/assets/css/custom.css' | relative_url }}" as="style">
+  <link rel="stylesheet" href="{{ '/assets/css/custom.css' | relative_url }}" media="print" onload="this.media='all'">
+  <noscript><link rel="stylesheet" href="{{ '/assets/css/custom.css' | relative_url }}"></noscript>
 
 
   <!-- Google tag (gtag.js) -->

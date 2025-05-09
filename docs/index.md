@@ -219,7 +219,7 @@ description: 2025 年 VPN工具推荐榜单，科学上网教程,深度测评 Su
 
 <div align="center">
   <div style="margin-bottom:5px; font-weight:bold;"> Surfshark Youtube 4K视频 测试</div>
-    <img src="./assets/surfsharkbbc4k测速.webp" alt="Surfshark Youtube 4K视频 测试" >
+    <img src="./assets/surfsharkbbc4k测速.webp"  alt="Surfshark Youtube 4K视频 测试" >
 </div>
 
 
