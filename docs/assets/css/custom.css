@@ -11,12 +11,6 @@ h1, h2, h3, h4, h5, h6 {
     margin-bottom: 0.5em;
 }
 
-img {
-    max-width: 100%;
-    height: auto;
-    display: block;
-    /* 启用懒加载支持（搭配 HTML lazy 属性） */
-}
 
 
 
@@ -48,15 +42,6 @@ button:hover, .btn:hover {
     }
 }
 
-/* 图片延迟加载的辅助样式（如果需要） */
-img[loading="lazy"] {
-    filter: blur(4px);
-    transition: filter 0.3s;
-}
-
-img[loading="lazy"].loaded {
-    filter: blur(0);
-}
 
 body blockquote {
     background-color: #ffffff !important;
@@ -77,6 +62,19 @@ a:hover {
     text-decoration: none;
     border-bottom: 1px dashed #004080;
 }
+
+/* custom.css */
+.page-header {
+    min-height: 5.5rem;    /* 等于 3.25rem 字号 + margin */
+}
+
+.project-name {
+    font-size: clamp(2rem, 6vw, 3.25rem); /* 宽度自适应，避免 MQ 抖动 */
+    margin: 0;               /* margin-top/bottom 都锁死 */
+    line-height: 1.1;
+}
+
+img { aspect-ratio: 16/9; width:100%; height:auto; }
 
 
 
