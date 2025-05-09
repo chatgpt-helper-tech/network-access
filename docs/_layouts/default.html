@@ -32,13 +32,9 @@
 
   <!-- Google tag (gtag.js) -->
   {% if site.google_analytics %}
-  <script async src="https://www.googletagmanager.com/gtag/js?id={{ site.google_analytics }}"></script>
-  <script>
-    window.dataLayer = window.dataLayer || [];
-    function gtag(){dataLayer.push(arguments);}
-    gtag('js', new Date());
-    gtag('config', '{{ site.google_analytics }}');
-  </script>
+  <!-- HEAD 区域：预连 GA -->
+  <link rel="preconnect" href="https://www.googletagmanager.com">
+  <link rel="dns-prefetch" href="//www.googletagmanager.com">
   {% endif %}
   <script>
     if ('speculationRules' in document) {
@@ -66,5 +62,23 @@
   {{ content }}
 </section>
 
+<!-- Google tag (gtag.js) -->
+{% if site.google_analytics %}
+<link rel="dns-prefetch" href="//www.googletagmanager.com">
+<!-- BODY 尾部：延迟插入 GA4 -->
+<script>
+  window.addEventListener('load', () => {
+    const s = document.createElement('script');
+    s.src = 'https://www.googletagmanager.com/gtag/js?id=G-XXXX';
+    s.async = true;
+    document.head.appendChild(s);
+
+    window.dataLayer = window.dataLayer || [];
+    function gtag(){dataLayer.push(arguments);}
+    gtag('js', new Date());
+    gtag('config', 'G-XXXX');
+  });
+</script>
+{% endif %}
 </body>
 </html>
