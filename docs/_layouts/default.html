@@ -40,6 +40,12 @@
     gtag('config', '{{ site.google_analytics }}');
   </script>
   {% endif %}
+  <script>
+    if ('speculationRules' in document) {
+      document.speculationRules = { rules: [] };
+    }
+  </script>
+
 </head>
 
 <body>
