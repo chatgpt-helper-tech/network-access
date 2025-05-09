@@ -25,14 +25,9 @@
     }
   </style>
 
-  <!-- 外部样式延迟加载 -->
-  <link rel="preload" href="{{ '/assets/css/style.css' | relative_url }}" as="style">
-  <link rel="stylesheet" href="{{ '/assets/css/style.css' | relative_url }}" media="print" onload="this.media='all'">
-  <noscript><link rel="stylesheet" href="{{ '/assets/css/style.css' | relative_url }}"></noscript>
-
+  <!-- 只加载你自己的 CSS -->
   <link rel="preload" href="{{ '/assets/css/custom.css' | relative_url }}" as="style">
-  <link rel="stylesheet" href="{{ '/assets/css/custom.css' | relative_url }}" media="print" onload="this.media='all'">
-  <noscript><link rel="stylesheet" href="{{ '/assets/css/custom.css' | relative_url }}"></noscript>
+  <link rel="stylesheet" href="{{ '/assets/css/custom.css' | relative_url }}">
 
 
   <!-- Google tag (gtag.js) -->
