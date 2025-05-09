@@ -276,8 +276,13 @@ Surfshark 使用 256‑bit AES‑GCM 加密，支持 WireGuard、OpenVPN、IKEv2
   </a>
 </div>  
 
+<div align="center" style="margin-top:20px;">
+  <div style="margin-bottom:5px; font-weight:bold;">Surfshark 套餐价格</div>
+    <img src="./assets/surfshark.webp" width="800" height="450"
+     loading="eager" fetchpriority="high" decoding="async" alt="Surfshark 套餐价格" >
+</div>
 
-![Surfshark 套餐价格](./assets/surfshark.webp){width="800" height="450" loading="eager" fetchpriority="high" decoding="async"}
+[//]: # (![Surfshark 套餐价格]&#40;./assets/surfshark.webp&#41;{width="800" height="450" loading="eager" fetchpriority="high" decoding="async"})
 
 ---
 ***************************************************************************************************************
@@ -296,7 +301,15 @@ Surfshark 使用 256‑bit AES‑GCM 加密，支持 WireGuard、OpenVPN、IKEv2
 |  **安全与隐私**  | ⭐⭐⭐⭐⭐   | NordVPN 是全球用户隐私安全的守护者                                      |
 
 --- 
-[![NordVPN Banner](./assets/affiliate-spring-global-2025-campaign-1200x628-zh.webp){width="800" height="450" loading="eager" fetchpriority="high" decoding="async"}](https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613)
+<div align="center" style="margin-top:20px;">
+  <div style="margin-bottom:5px; font-weight:bold;">NordVPN</div>
+    <a href="https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613">
+        <img src="./assets/affiliate-spring-global-2025-campaign-1200x628-zh.webp" width="800" height="450"
+         loading="eager" fetchpriority="high" decoding="async" alt="NordVPN" >
+    </a>
+</div>
+
+[//]: # ([![NordVPN Banner]&#40;./assets/affiliate-spring-global-2025-campaign-1200x628-zh.webp&#41;{width="800" height="450" loading="eager" fetchpriority="high" decoding="async"}]&#40;https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613&#41;)
 --- 
 **简介**
 - NordVPN 成立于 2012 年，由三位朋友在 拉脱维亚 创办，他们当时的目标是创建一个能够保护用户在线隐私和安全的 VPN 服务。这些创始人深受网络安全和隐私保护问题的启发，决心为全球用户提供一个快速、安全、可靠的解决方案。
@@ -322,8 +335,20 @@ Surfshark 使用 256‑bit AES‑GCM 加密，支持 WireGuard、OpenVPN、IKEv2
 - > 有任何问题,找客户客服处理,问他们该如何处理,肯定是能使用的,我就是靠客服解决的
 - > 如果觉得翻墙麻烦,或者最终还是无法连接,请自行去退款,避免损失
 --- 
-![NordVPN 手动连接设置](./assets/nordvpnsetting.webp){width="800" height="450" loading="eager" fetchpriority="high" decoding="async"}
-![NordVPN 手动设置连接成功](./assets/nordvpnok.webp){width="800" height="450" loading="eager" fetchpriority="high" decoding="async"}
+<div align="center" style="margin-top:20px;">
+  <div style="margin-bottom:5px; font-weight:bold;">NordVPN 手动连接设置</div>
+        <img src="./assets/nordvpnsetting.webp" width="800" height="450"
+         loading="eager" fetchpriority="high" decoding="async" alt="NordVPN 手动连接设置" >
+</div>
+<div align="center" style="margin-top:20px;">
+  <div style="margin-bottom:5px; font-weight:bold;">NordVPN 手动设置连接成功</div>
+        <img src="./assets/nordvpnok.webp" width="800" height="450"
+         loading="eager" fetchpriority="high" decoding="async" alt="NordVPN 手动设置连接成功" >
+</div>
+
+[//]: # (![NordVPN 手动连接设置]&#40;./assets/nordvpnsetting.webp&#41;{width="800" height="450" loading="eager" fetchpriority="high" decoding="async"})
+
+[//]: # (![NordVPN 手动设置连接成功]&#40;./assets/nordvpnok.webp&#41;{width="800" height="450" loading="eager" fetchpriority="high" decoding="async"})
 
 ---
 
@@ -401,8 +426,15 @@ NordVPN 拥有 **5500 多个服务器**，分布在全球超过 **60 个国家**
     🚀 点击前往 NordVPN 官网注册，享73% 折扣 + 3 个月额外时长
   </a>
 </div>
+<div align="center" style="margin-top:20px;">
+  <div style="margin-bottom:5px; font-weight:bold;">NordVPN 套餐价格</div>
+<a href="https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613">
+        <img src="./assets/nordVPN.webp" width="800" height="450"
+         loading="eager" fetchpriority="high" decoding="async" alt="NordVPN 套餐价格" >
+</a>
+</div>
 
-[![NordVPN 套餐价格](./assets/nordVPN.webp){width="800" height="450" loading="eager" fetchpriority="high" decoding="async"}](https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613)
+[//]: # ([![NordVPN 套餐价格]&#40;./assets/nordVPN.webp&#41;{width="800" height="450" loading="eager" fetchpriority="high" decoding="async"}]&#40;https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613&#41;)
 
 
 ---
@@ -446,10 +478,20 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
 - > [IOS单独教程,需要自行够买外区AppleId](https://support.strongvpn.com/hc/en-us/articles/25818598193819-How-to-Set-Up-OpenVPN-on-ios-Using-OpenVPN-Connect-App-For-Restricted-Countries)
 - > 3.如果最后还是连接不上,找客户客服处理,问他们该如何处理,肯定是能使用的
 
-  ![StrongVpn 速度测试](./assets/strongvpnforchina.webp){width="800" height="450" loading="eager" fetchpriority="high" decoding="async"}
+<div align="center" style="margin-top:20px;">
+  <div style="margin-bottom:5px; font-weight:bold;">StrongVpn 速度测试</div>
+    <img src="./assets/strongvpnforchina.webp" width="800" height="450" loading="eager" fetchpriority="high" decoding="async" alt="StrongVpn 速度测试" >
+</div>
+
+[//]: # (  ![StrongVpn 速度测试]&#40;./assets/strongvpnforchina.webp&#41;{width="800" height="450" loading="eager" fetchpriority="high" decoding="async"})
 
 > 4.Mac连接成功
-  ![StrongVpn 连接成功](./assets/strongvpnok.webp){width="800" height="450" loading="eager" fetchpriority="high" decoding="async"}
+ <div align="center" style="margin-top:20px;">
+  <div style="margin-bottom:5px; font-weight:bold;">StrongVpn 连接成功</div>
+    <img src="./assets/strongvpnok.webp" width="800" height="450" loading="eager" fetchpriority="high" decoding="async" alt="StrongVpn 连接成功" >
+</div>
+
+[//]: # (  ![StrongVpn 连接成功]&#40;./assets/strongvpnok.webp&#41;{width="800" height="450" loading="eager" fetchpriority="high" decoding="async"})
 
 
 ---
@@ -595,8 +637,12 @@ ExpressVPN 采用 256‑bit AES 加密 和 ChaCha20 算法，支持 OpenVPN（TC
 </div>  
 
 
+<div align="center" style="margin-top:20px;">
+  <div style="margin-bottom:5px; font-weight:bold;">ExpressVPN 套餐价格</div>
+    <img src="./assets/expressVPN.webp" width="800" height="450" loading="eager" fetchpriority="high" decoding="async" alt="ExpressVPN 套餐价格" >
+</div>
 
-![ExpressVPN 套餐价格](./assets/expressVPN.webp){width="800" height="450" loading="eager" fetchpriority="high" decoding="async"}
+[//]: # (![ExpressVPN 套餐价格]&#40;./assets/expressVPN.webp&#41;{width="800" height="450" loading="eager" fetchpriority="high" decoding="async"})
 
 
 
@@ -649,8 +695,12 @@ WireGuard 下速度可达 400+ Mbps，OpenVPN 下稳定在 200–300 Mbps。
     🚀 点击前往 PIA VPN 官网注册
   </a>
 </div>  
+<div align="center" style="margin-top:20px;">
+  <div style="margin-bottom:5px; font-weight:bold;">PIA VPN 套餐价格</div>
+    <img src="./assets/pia.webp" width="800" height="450" loading="eager" fetchpriority="high" decoding="async" alt="PIA VPN 套餐价格" >
+</div>
 
-![PIA VPN 套餐价格](./assets/pia.webp){width="800" height="450" loading="eager" fetchpriority="high" decoding="async"}
+[//]: # (![PIA VPN 套餐价格]&#40;./assets/pia.webp&#41;{width="800" height="450" loading="eager" fetchpriority="high" decoding="async"})
 
 ---
 
