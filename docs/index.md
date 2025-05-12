@@ -621,13 +621,13 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
 ### 4. <a href="https://billing.purevpn.com/aff.php?aff=49386641" target="_blank" rel="noopener noreferrer">PureVPN 老牌安全之选,全球6500+台服务器</a>
 
 | 项目              | 评分      | 评分理由                                             |
-|-------------------|-----------|--------------------------------------------------|
-| **推荐指数**     | ⭐⭐⭐⭐      | 历史悠久，功能全面，特别适合对隐私有较高要求的用户                        |
-| **中国地区易用性** | ⭐⭐⭐⭐⭐      | 下载即用,如果连接不上,设置里面换一下协议就可以,很简单                     |
-| **价格**         | ⭐⭐⭐⭐⭐      | 套餐低至 $2.14/月，支持31天退款保证                           |
-| **流媒体**       | ⭐⭐⭐⭐      | 可解锁 Netflix、BBC iPlayer、Disney+ 等流媒体平台，偶尔需要切换服务器 |
-| **速度**         | ⭐⭐⭐⭐      | 整体速度表现稳定，部分服务器速率一般，推荐连接距离较近的节点                   |
-| **安全与隐私**   | ⭐⭐⭐⭐      | 采用 AES-256 加密，支持多种协议，严格无日志政策，附加功能丰富              |
+|-------------------|----------|--------------------------------------------------|
+| **推荐指数**     | ⭐⭐⭐⭐     | 历史悠久，功能全面，特别适合对隐私有较高要求的用户                        |
+| **中国地区易用性** | ⭐⭐⭐⭐⭐    | 下载即用,如果连接不上,设置里面换一下协议就可以,很简单                     |
+| **价格**         | ⭐⭐⭐⭐⭐    | 套餐低至 $2.14/月，支持31天退款保证                           |
+| **流媒体**       | ⭐⭐⭐⭐     | 可解锁 Netflix、BBC iPlayer、Disney+ 等流媒体平台，偶尔需要切换服务器 |
+| **速度**         | ⭐⭐⭐⭐     | 整体速度表现稳定，部分服务器速率一般，推荐连接距离较近的节点                   |
+| **安全与隐私**   | ⭐⭐⭐⭐⭐    | 采用 AES-256 加密，支持多种协议，严格无日志政策，附加功能丰富              |
 
 ---
 
@@ -787,13 +787,14 @@ WireGuard 下速度可达 400+ Mbps，OpenVPN 下稳定在 200–300 Mbps。
 
 ## 📊 VPN 对比一览
 
-| 服务      | 加密算法       | 协议支持                      | 服务器覆盖           | 连接数        | 价格（长期）      | 流媒体解锁       | P2P 支持       | 特色功能                                       |
-|-----------|---------------|------------------------------|----------------------|--------------|------------------|-----------------|----------------|------------------------------------------------|
-| PureVPN| AES-256,ChaCha20 | Lightway, OpenVPN, IKEv2    | 3000+／94+ 国       | 8            | \$6.67/月（年付）| 顶级（Netflix 等）| ✅             | TrustedServer, MediaStreamer, Split Tunneling |
-| Surfshark | AES-256-GCM   | WireGuard, OpenVPN, IKEv2    | 3200+／100+ 国      | ∞            | \$2.49/月（2年） | 优秀（Netflix、HBO）| ✅             | CleanWeb, MultiHop, IP Rotator, Smart DNS     |
-| NordVPN   | AES-256-GCM   | NordLynx, OpenVPN, IKEv2     | 6000+／111+ 国      | 10           | \$3.09/月（2年） | 优秀（全平台）     | ✅             | Threat Protection, Meshnet, Onion Over VPN    |
-| PIA       | AES-128/256   | WireGuard, OpenVPN, IKEv2    | 35000+／91+ 国      | ∞            | \$2.03/月（2年） | 良好（大多数）    | ✅             | PIA MACE, Port Forwarding, Open Source        |
-| StrongVPN | AES-256       | WireGuard, OpenVPN, IKEv2    | 950／30+ 国         | 12           | \$3.66/月（年付）| 良好（Netflix）| ✅             | SugarSync (250 GB), Router Guides             |
+| 服务            | 加密算法           | 协议支持                      | 服务器覆盖        | 连接数 | 价格（长期）       | 流媒体解锁                    | P2P 支持 | 特色功能                                               |
+| ------------- | -------------- | ------------------------- | ------------ | --- | ------------ | ------------------------ | ------ | -------------------------------------------------- |
+| **Surfshark** | AES-256-GCM    | WireGuard, OpenVPN, IKEv2 | 3200+／100+ 国 | ∞   | \$1.99/月（2年） | 顶级（Netflix、Disney+ 等）    | ✅      | CleanWeb, MultiHop, IP Rotator, Smart DNS          |
+| **NordVPN**   | AES-256        | NordLynx, OpenVPN, IKEv2  | 5500+／60+ 国  | 10  | \$3.09/月（2年） | 顶级（Netflix、Hulu 等）       | ✅      | Threat Protection, 双重 VPN, Meshnet, Onion Over VPN |
+| **StrongVPN** | AES-256        | WireGuard, OpenVPN, IKEv2 | 950+／42 国    | 12  | \$3.98/月（年付） | 良好（Netflix、Disney+ 等）    | ✅      | SugarSync (250 GB), Smart DNS, Router 支持           |
+| **PureVPN**   | AES-256, 抗量子加密 | OpenVPN, WireGuard, IKEv2 | 6500+／65+ 国  | 10  | \$2.14/月（2年） | 优秀（Netflix、BBC、Amazon 等） | ✅      | 专用 IP, 端口转发, 抗量子加密, 广泛设备支持                         |
+| **PIA**       | AES-128/256    | WireGuard, OpenVPN, IKEv2 | 35000+／91+ 国 | ∞   | \$2.03/月（2年） | 良好（Netflix、Prime 等）      | ✅      | MACE, 开源客户端, 支持加密货币支付                              |
+
 
 
 ---
@@ -802,7 +803,7 @@ WireGuard 下速度可达 400+ Mbps，OpenVPN 下稳定在 200–300 Mbps。
 
 - [📝 ChatGPT 注册教程](https://gptvpnhelper.com/chatgpt-register-guide/)
 - [💳 ChatGPT Plus 升级教程](https://gptvpnhelper.com/chatgpt-plus-guide/)
-- [✈️ 2025 机场推荐 科学上网 ](https://gptvpnhelper.com/airport-access/)
+- [✈️ 2025 机场推荐 机场评测 ](https://gptvpnhelper.com/airport-access/)
 - [📘 ChatGPT 中文主站导航](https://gptvpnhelper.com)
 
 ---
