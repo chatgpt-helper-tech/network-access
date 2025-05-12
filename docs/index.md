@@ -340,24 +340,8 @@ Surfshark 使用 256‑bit AES‑GCM 加密，支持 WireGuard、OpenVPN、IKEv2
 - > 有任何问题,找客户客服处理,问他们该如何处理,肯定是能使用的,我就是靠客服解决的
 - > 如果觉得翻墙麻烦,或者最终还是无法连接,请自行去退款,避免损失
 --- 
-<div align="center" style="margin-top:20px;">
-  <div style="margin-bottom:5px; font-weight:bold;">NordVPN 手动连接设置</div>
-    <a href="https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613" target="_blank" rel="noopener noreferrer">
-            <img src="./assets/nordvpnsetting.webp" width="800" height="450"
-             loading="eager" fetchpriority="high" decoding="async" alt="NordVPN 手动连接设置" >
-    </a>
-</div>
-<div align="center" style="margin-top:20px;">
-  <div style="margin-bottom:5px; font-weight:bold;">NordVPN 手动设置连接成功</div>
-    <a href="https://get.affiliatescn.net/aff_c?offer_id=153&aff_id=122265&url_id=613" target="_blank" rel="noopener noreferrer">
-        <img src="./assets/nordvpnok.webp" width="800" height="450"
-         loading="eager" fetchpriority="high" decoding="async" alt="NordVPN 手动设置连接成功" >
-    </a>
-</div>
 
 
-
----
 
 <div style="background-color:#fff3cd; color:#856404; padding:10px; border-radius:5px; margin:10px 0;">
 <strong>⚡ NordVPN最新速度实测 2025年5月5日 ⚡</strong>
@@ -487,25 +471,8 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
 - > 2.如果连接不上,一定要勾选  Optimize The VPN for China,它专门设计用来绕过中国的封锁
 - > <a href="https://support.strongvpn.com/hc/en-us/articles/25818598193819-How-to-Set-Up-OpenVPN-on-ios-Using-OpenVPN-Connect-App-For-Restricted-Countries" target="_blank" rel="noopener noreferrer">IOS单独教程,需要自行够买外区AppleId</a>
 - > 3.如果最后还是连接不上,找客户客服处理,问他们该如何处理,肯定是能使用的
-
-<div align="center" style="margin-top:20px;">
-  <div style="margin-bottom:5px; font-weight:bold;">StrongVpn 速度测试</div>
-    <a href="https://strongvpn.com/?tr_aid=68066b25e52d2" target="_blank" rel="noopener noreferrer">
-        <img src="./assets/strongvpnforchina.webp"  alt="StrongVpn 速度测试" >
-    </a>
-</div>
-
-[//]: # (  ![StrongVpn 速度测试]&#40;./assets/strongvpnforchina.webp&#41;{})
-
-> 4.Mac连接成功
- <div align="center" style="margin-top:20px;">
-  <div style="margin-bottom:5px; font-weight:bold;">StrongVpn 连接成功</div>
-    <a href="https://strongvpn.com/?tr_aid=68066b25e52d2" target="_blank" rel="noopener noreferrer">
-        <img src="./assets/strongvpnok.webp"  alt="StrongVpn 连接成功" >
-    </a>
-</div>
-
-
+  
+  
 
 ---
 
@@ -542,7 +509,6 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
 - **自动断线保护（Kill Switch）**：在 VPN 连接意外断开时，自动切断互联网连接，防止数据泄露。
 - **多种协议支持**：包括 WireGuard、IKEv2、OpenVPN 和 IPSec 等，满足不同用户的需求。
 
-  <img src="./assets/strongvpnprotocls.webp"  alt="StrongVPN 协议">
 
 --- 
 
