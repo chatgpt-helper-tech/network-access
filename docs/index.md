@@ -192,7 +192,7 @@ description: 2025 年 VPN工具推荐榜单，科学上网教程,深度测评 Su
 
 ---
 <a id="Surfshark"></a>
-### 1. <a href="https://get.Surfshark.net/aff_c?offer_id=926&aff_id=38237" target="_blank" rel="noopener noreferrer">Surfshark 最有性价比,新用户立省87%</a>
+### 1. <a href="https://get.surfshark.net/aff_c?offer_id=926&aff_id=38237" target="_blank" rel="noopener noreferrer">Surfshark 最有性价比,新用户立省87%</a>
 
 | 项目              | 评分      | 评分理由                                                          |
 |-------------------|-----------|---------------------------------------------------------------|
@@ -222,7 +222,7 @@ description: 2025 年 VPN工具推荐榜单，科学上网教程,深度测评 Su
 
 <div align="center">
   <div style="margin-bottom:5px; font-weight:bold;"> Surfshark Youtube 4K视频 测试</div>
-    <a href="https://get.Surfshark.net/aff_c?offer_id=926&aff_id=38237" target="_blank" rel="noopener noreferrer">
+    <a href="https://get.surfshark.net/aff_c?offer_id=926&aff_id=38237" target="_blank" rel="noopener noreferrer">
     <img src="./assets/surfsharkbbc4k测速.webp" width="800" height="450"
      loading="eager" fetchpriority="high" decoding="async"  alt="Surfshark Youtube 4K视频 测试" >
     </a>
@@ -231,7 +231,7 @@ description: 2025 年 VPN工具推荐榜单，科学上网教程,深度测评 Su
 
 <div align="center" style="margin-top:20px;">
   <div style="margin-bottom:5px; font-weight:bold;">Surfshark Speedtest 测试</div>
-    <a href="https://get.Surfshark.net/aff_c?offer_id=926&aff_id=38237" target="_blank" rel="noopener noreferrer">
+    <a href="https://get.surfshark.net/aff_c?offer_id=926&aff_id=38237" target="_blank" rel="noopener noreferrer">
     <img src="./assets/surfshark测速.webp" width="800" height="450"
      loading="eager" fetchpriority="high" decoding="async" alt="Surfshark Speedtest 测试" >
     </a>
@@ -278,14 +278,14 @@ Surfshark 使用 256‑bit AES‑GCM 加密，支持 WireGuard、OpenVPN、IKEv2
 
 
 <div align="center" style="margin-top:20px;">
-  <a href="https://get.Surfshark.net/aff_c?offer_id=926&aff_id=38237" target="_blank" rel="noopener noreferrer" style="background-color:#ffc107; color:#212529; padding:10px 20px; border-radius:5px; text-decoration:none; font-weight:bold;">
+  <a href="https://get.surfshark.net/aff_c?offer_id=926&aff_id=38237" target="_blank" rel="noopener noreferrer" style="background-color:#ffc107; color:#212529; padding:10px 20px; border-radius:5px; text-decoration:none; font-weight:bold;">
     🚀 点击前往 Surfshark 官网注册
   </a>
 </div>  
 
 <div align="center" style="margin-top:20px;">
   <div style="margin-bottom:5px; font-weight:bold;">Surfshark 套餐价格</div>
-  <a href="https://get.Surfshark.net/aff_c?offer_id=926&aff_id=38237" target="_blank" rel="noopener noreferrer">
+  <a href="https://get.surfshark.net/aff_c?offer_id=926&aff_id=38237" target="_blank" rel="noopener noreferrer">
     <img src="./assets/surfshark.webp" width="800" height="450"
          loading="eager" fetchpriority="high" decoding="async" alt="Surfshark 套餐价格">
   </a>
