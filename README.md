@@ -463,13 +463,6 @@ NordVPN 拥有 **5500 多个服务器**，分布在全球超过 **60 个国家**
 
 --- 
 
-<script type="text/javascript">document.write("<iframe  name='banner' title='StrongVPN 横幅' src='https://affiliate.strongvpn.com/pap/scripts/banner.php?tr_aid=68066b25e52d2&amp;a_bid=3eb8c61f&amp;w=1&refx2s6d="+encodeURIComponent(encodeURIComponent(document.URL))+"' framespacing='0' frameborder='no' scrolling='no' width='729' height='90' allowtransparency='true'><a href='https://strongvpn.com/?tr_aid=68066b25e52d2&amp;a_bid=3eb8c61f' target='_top'>STR 2020</a></iframe>");
-</script>
-<noscript>
-<h2><a href="https://strongvpn.com/">STR 2020</a></h2>
-</noscript>
-
---- 
 **简介**
 - StrongVPN 成立于 2005 年，是一家在 VPN 行业拥有近 20 年历史的老牌公司，起初是作为一家为消费者提供网络硬件和互联网服务的公司而创立的，
   后来逐步转型为专注于在线隐私保护的 VPN 服务商。它目前隶属于 J2 Global（现为 Ziff Davis）旗下的品牌集合，与 IPVanish、Encrypt.me 等其他网络安全品牌同属一家公司。
