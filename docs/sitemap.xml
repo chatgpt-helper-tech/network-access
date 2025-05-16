@@ -3,9 +3,16 @@
 
   <url>
     <loc>https://gptvpnhelper.com/network-access/</loc>
-    <lastmod>2025-05-04</lastmod>
+    <lastmod>2025-05-16</lastmod>
     <changefreq>weekly</changefreq>
     <priority>1.0</priority>
+  </url>
+
+  <url>
+    <loc>https://gptvpnhelper.com/network-access/surfshark/</loc>
+    <lastmod>2025-05-16</lastmod>
+    <changefreq>weekly</changefreq>
+    <priority>0.8</priority>
   </url>
 
 </urlset>
