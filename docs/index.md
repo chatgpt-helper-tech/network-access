@@ -291,6 +291,8 @@ Surfshark 使用 256‑bit AES‑GCM 加密，支持 WireGuard、OpenVPN、IKEv2
   </a>
 </div>
 
+---
+- Surfshark更多详情请前往:[https://gptvpnhelper.com/network-access/surfshark](https://gptvpnhelper.com/network-access/surfshark)
 
 
 ---
@@ -580,7 +582,6 @@ Ziff Davis 拥有大量技术资源，并在网络安全、电子邮件、媒体
              loading="eager" fetchpriority="high" decoding="async" alt="StrongVPN 购买套餐" >
     </a>
 </div>
-
 
 ---
 ***************************************************************************************************************
