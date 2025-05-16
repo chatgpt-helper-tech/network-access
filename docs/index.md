@@ -223,7 +223,7 @@ description: 2025 年 VPN工具推荐榜单，实测可用科学上网教程,深
 <div align="center">
   <div style="margin-bottom:5px; font-weight:bold;"> Surfshark Youtube 4K视频 测试</div>
     <a href="https://get.surfshark.net/aff_c?offer_id=926&aff_id=38237" target="_blank" rel="noopener noreferrer">
-    <img src="./assets/surfsharkbbc4k测速.webp" width="800" height="450"
+    <img src="assets/surfsharkbbc4ktest.webp" width="800" height="450"
      loading="eager" fetchpriority="high" decoding="async"  alt="Surfshark Youtube 4K视频 测试" >
     </a>
 </div>
@@ -279,7 +279,7 @@ Surfshark 使用 256‑bit AES‑GCM 加密，支持 WireGuard、OpenVPN、IKEv2
 
 <div align="center" style="margin-top:20px;">
   <a href="https://get.surfshark.net/aff_c?offer_id=926&aff_id=38237" target="_blank" rel="noopener noreferrer" style="background-color:#ffc107; color:#212529; padding:10px 20px; border-radius:5px; text-decoration:none; font-weight:bold;">
-    🚀 点击前往 Surfshark 官网注册
+    🚀 点击前往 Surfshark 官网注册 , 立省 87%
   </a>
 </div>  
 
@@ -763,7 +763,27 @@ WireGuard 下速度可达 400+ Mbps，OpenVPN 下稳定在 200–300 Mbps。
 | **PureVPN**   | AES-256, 抗量子加密 | OpenVPN, WireGuard, IKEv2 | 6500+／65+ 国  | 10  | \$2.14/月（2年） | 优秀（Netflix、BBC、Amazon 等） | ✅      | 专用 IP, 端口转发, 抗量子加密, 广泛设备支持                         |
 | **PIA**       | AES-128/256    | WireGuard, OpenVPN, IKEv2 | 35000+／91+ 国 | ∞   | \$2.03/月（2年） | 良好（Netflix、Prime 等）      | ✅      | MACE, 开源客户端, 支持加密货币支付                              |
 
+---
 
+## 如何识别可疑 VPN？⚠️
+选 VPN 时，别光看广告吹得多响，或者是不是“永久免费”。有些表面上看起来划算的 VPN，背后其实藏着不小的风险。下面这几个小技巧，能帮你快速辨别哪些服务商值得警惕：
+
+| 🚩 可疑特征                 | 说明                                                                 |
+|----------------------------|----------------------------------------------------------------------|
+| **免费且不限速**           | 真正的服务器和带宽成本高昂，“永久免费”多数是拿你的数据换钱                           |
+| **无明确官网 / 无详细隐私政策** | 连公司背景都查不到，说明根本不透明，隐私无保障                                        |
+| **总部位于高压审查国家**     | 比如俄罗斯、伊朗、中国大陆等，可能受当地法律控制，配合监控                            |
+| **未通过任何第三方隐私审计** | 连最基本的无日志承诺都没有外部验证                                                   |
+| **APP 权限过多**           | 安装后索取通讯录、相册、麦克风权限，甚至后台运行、上传数据                             |
+| **从未公开回应用户隐私问题** | 遇到争议躲避回应，代表不负责任
+
+### 🧭 建议选择具备以下特征的 VPN：
+
+- ✅ 拥有 **公开透明的总部与法律架构**
+- ✅ 明确的 **无日志政策**
+- ✅ 通过 **独立第三方隐私审计**
+- ✅ 支持 **匿名支付方式（如加密货币）**
+- ✅ 被 TechRadar、PCMag、CNET 等全球媒体推荐
 
 ---
 
