@@ -292,7 +292,7 @@ Surfshark 使用 256‑bit AES‑GCM 加密，支持 WireGuard、OpenVPN、IKEv2
 </div>
 
 ---
-- Surfshark更多详情请前往:[https://gptvpnhelper.com/network-access/surfshark](https://gptvpnhelper.com/network-access/surfshark)
+- Surfshark更多详情请前往:[https://gptvpnhelper.com/network-access/bestuse](https://gptvpnhelper.com/network-access/bestuse)
 
 
 ---
