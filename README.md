@@ -810,5 +810,19 @@ WireGuard 下速度可达 400+ Mbps，OpenVPN 下稳定在 200–300 Mbps。
 
 ---
 
+## 📰 国际新闻追踪（每 10 分钟更新一次）
+查看最新 BBC & Google News 国际头条，了解全球动态，获取墙外第一手热点资讯。  
+👉 [点击查看最新 BBC + Google News 头条](https://github.com/chatgpt-helper-tech/airport-access/blob/main/latest-news.md)
+
+> 所有新闻内容来自 BBC 官方 RSS 和 Google News，每 10 分钟自动同步一次，保持 最新。
+---
+
+## 🏆 GitHub 成就墙
+
+[![Trophy](https://github-profile-trophy.vercel.app/?username=chatgpt-helper-tech&theme=gruvbox&row=1&column=7&no-bg=true)](https://github.com/ryo-ma/github-profile-trophy)
+
+
+---
+
 📬 本项目由 [chatgpt-helper-tech](https://github.com/chatgpt-helper-tech) 维护  
 如果你觉得内容实用，欢迎 ⭐Star 支持项目，让更多人学会科学上网 + 聪明使用 ChatGPT！
