@@ -22,7 +22,7 @@ description: 实测推荐 2025 年中国可用的 VPN 工具，支持 ChatGPT、
 ---
 ## 🌐 2025 年中国可用 VPN 推荐榜单｜实测翻墙工具 Top5，支持 ChatGPT、Netflix、YouTube
 
-欢迎访问 ChatGPT 中文助手出品的 VPN 实测推荐项目！  
+欢迎访问 [ChatGPT 中文助手导航站](https://gptvpnhelper.com)出品的 VPN 实测推荐项目！  
 本项目致力于为中国大陆用户筛选真正可用、稳定、高速、安全的科学上网工具。
 
 我们实测评估了多款热门 VPN（如 Surfshark、NordVPN、StrongVPN 等），  

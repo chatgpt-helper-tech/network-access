@@ -247,6 +247,6 @@ permalink: /bestuse/
 ---
 
 📬 本项目由 [chatgpt-helper-tech](https://github.com/chatgpt-helper-tech) 维护，面向中文用户持续更新  
-📂 GitHub Pages 主站地址：[https://gptvpnhelper.com](https://gptvpnhelper.com)  
+📂 ChatGPT 中文助手导航站 主站地址：[https://gptvpnhelper.com](https://gptvpnhelper.com)  
 ⭐ 创作不易,如果你觉得本站有帮助，请点击 Star⭐ 或分享给有需要的朋友
 ---
