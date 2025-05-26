@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年05月23日 01:09:43（北京时间）**
+🕒 更新时间：**2025年05月26日 22:00:45（北京时间）**
 
 ---
 
@@ -8,31 +8,31 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Teachers and doctors in England given 4% pay rise | [阅读全文](https://www.bbc.com/news/articles/clyv1vxkdjyo) |
-| UK net migration in 2024 almost halves to 431,000, ONS estimates | [阅读全文](https://www.bbc.com/news/articles/ckgx3ekkw1eo) |
-| Investigating Israel's strike on Gaza's European Hospital | [阅读全文](https://www.bbc.com/news/videos/c4g28z483eko) |
-| Pregnant women evacuated after large fire breaks out at maternity hospital | [阅读全文](https://www.bbc.com/news/articles/clygn1p8nwzo) |
-| 'Multiple fatalities' after small plane crash in San Diego neighbourhood | [阅读全文](https://www.bbc.com/news/articles/c0mr844xl42o) |
-| Prisoners to be eligible for release after serving a third of sentence | [阅读全文](https://www.bbc.com/news/articles/c071d1jgevlo) |
-| Man arrested after train hits tractor and trailer | [阅读全文](https://www.bbc.com/news/articles/cly3885e58no) |
-| 90 lorry loads of humanitarian aid now in Gaza after three-day delay | [阅读全文](https://www.bbc.com/news/articles/czdyv3jp5elo) |
-| US House passes Trump's 'big, beautiful' tax and spending bill | [阅读全文](https://www.bbc.com/news/articles/c5yg0kgg2njo) |
-| What we know so far | [阅读全文](https://www.bbc.com/news/articles/c8xgv4p114wo) |
+| Israeli strike kills dozens sheltering in Gaza school, officials say | [阅读全文](https://www.bbc.com/news/articles/cz9yjj54v3xo) |
+| 'Situation is dire' - BBC returns to Gaza baby left hungry by Israeli blockade | [阅读全文](https://www.bbc.com/news/articles/c5y2kd1nkleo) |
+| King Charles is heading to Canada - but it's more than just a royal visit | [阅读全文](https://www.bbc.com/news/articles/cgkdnmm8k2no) |
+| Watch: Push in the face by wife was joke not domestic dispute, says Macron | [阅读全文](https://www.bbc.com/news/videos/c201e8g0yg3o) |
+| The people who think AI might become conscious | [阅读全文](https://www.bbc.com/news/articles/c0k3700zljjo) |
+| Rushdie 'pleased' with attacker's maximum sentence | [阅读全文](https://www.bbc.com/news/articles/c5y2kg77drzo) |
+| A self-created fairy story: The rise and fall of Michelle Mone | [阅读全文](https://www.bbc.com/news/articles/cwyvqqr51pno) |
+| Russia denies involvement in fires at homes linked to Starmer | [阅读全文](https://www.bbc.com/news/articles/c79evj9ed9lo) |
+| HS2 investigating two firms supplying construction staff | [阅读全文](https://www.bbc.com/news/articles/c3rpv4lj2g3o) |
+| Japan flight made emergency landing after man tried opening door | [阅读全文](https://www.bbc.com/news/articles/cgmjzlj0g30o) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What we know about the DC shooting where 2 staff members of the Israeli Embassy were killed - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNQnkzeHA2bEdqYUtTVXNWcHYwSk1IbE91M2F2OGk3VG5fclh1UWlyb2lmWWhXLTJnSWdzWWwzMlZwa3dWQWlsakdiczlycFdfRm8wZEJETWhlSExpd3UydnIxbUp5OGJKdjZ0SjJ5bUZMN2dkak1GdU4tRFNTNllqaElHamVrNktBSWh0dVoyREhnUEZNamhhQ2tQNW1oQQ?oc=5) |
-| House passes Trump’s sweeping tax-cut bill and sends it to Senate - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE4ybUtib0FSQzFpSG5haWotcVVDeUk0RWdpc3lza0RuSlBPc1psSXQ2eE40WDFHOHhOc19DdTJGX3QwSi1vbzJmYXNlMGFZVnpHWUtqTHVsSmlpc3lWVUFZendfd3E5XzN0MEUtRURaVWd2My03emJBSzBVUXZadw?oc=5) |
-| Supreme Court deadlock leaves in place ruling blocking nation’s first religious charter school - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9mQW1KTDhfZkNXaWNtS2NHR0ZWOUhzem5rc1VkTHJiOG1tTVVSMzduWU9LR2JPbnBJSS1ma3poTTEySzNILTJOdWNYb2xYZF9CMjJzNXRoYzFJM1p4czFxRi1QMFY4OS05blR3R19qQWtzU2R6RGlsT05rTDNQd9IBgwFBVV95cUxQbmFZSDl4cWkzdkRqdkJZRzBfa2gzZ1NWRzIxMnVBdl8zWEdyMjNFV28yVGlHUEhNbGVFSlE5VGhFS1IzRnRzUW16T1dLbk5LZWF6WXd3MnFDU25XNkd4blZKQll0WkRBOWhkTkJEdm9QVFg3VTVBVE1OaC1iREFxNW03SQ?oc=5) |
-| Judge blocks Trump administration from closing the Education Department - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQUjMxRzk2d0hPbEdpbGp6NDFoRnNWZjdDXzVZenVPT3k3Sm9XLXp5cmVZMVBPWGVUb1dTVFYyX3pHUHBvNjI3c1MwR3diZGNEZk42WlI3SVZyaFVJTUlTMEFGcXFkVHVkUDQxRVBidDFDRXNGb2lCSFcydlZkNTVYem1Td1h2RkhxUkY1UV8wcHVHcmhR?oc=5) |
-| 'Multiple fatalities' on private plane that crashed into homes in San Diego, authorities say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFA2VGxkNUFJWk81Rm11VFYtOW5RU3Y2WWI5LWhRU3l1TnVqSEdiN1E0b1IwZ0RkQlh3Mm50dlF0RjFheVhPNU56NFZ5bXVMdUlGYmU0OQ?oc=5) |
-| US Senate blocks California’s electric car mandate in historic vote - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxONUhmM2JXc05OWTRfUUZTNTZiM2hSeGlINTFYWFZrXzlBMmt4ZjBWQ3pSejMyMTVNYmtnelNYSHh1UF9ISWROeExoQnlwZFZnMW44SjZyOEZtQmVXVFlZTmJhakFNSEN2ZmV5UTJFeTE3V2l5WEtmbDUtN2l1QWVGemltODFQZXlyU2xHSHZqYktpVzY0VUR5eU1jTzE?oc=5) |
-| RFK Jr. says food and pharma are poisoning Americans. His big report says a fix is coming. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPZGhmV0l3SUNxOXFteV9helc0SnVjXy1pSmE4SFpqc29SWDFnZWp6ZTVaX202aEpYdW4ydHRUY2FsS1ptdFBQRzZfQktoM3hoZGRjWUU5OWc3UzRqdFJGZHhzUGFpOG84LUlpOWdWdUM2WUdjT2p0ZGF0amRuOGxVM0dYTjZ4X29YODExWVoyckRCQkY1LWVn?oc=5) |
-| South Africa's president is praised for staying calm during Trump's Oval Office ambush - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNTFdaNVZVWDcyNEhGSXFSd0dySEJTRlRBekRfR0oxc0V1dTZ6Q3pKTE9ONmJjaFB5bkVlaHMyTkItRG9EVDBMZklnd3RJZ2FoSHVUNngxa3d3OGlxbE51MnM5bi1uNENkWWtkclRRYlVVTjJybUxzMHlMSEd6Z2xoNTJWV0Z0UmI1blhIU3dHeWVWWDBlVkJGU25wTEF1Y0Joc2x3?oc=5) |
-| The forecast is in: Hurricane season is going to be active again. America’s weather and disaster agencies are in turmoil - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFB0QUp5aV9mSlYtUl9QYUktQWtYaVVGR3JlYkw5RnNKTnZiS013UWhtY0pBYTdhdkZRMHR3UWFEUnRkUF9xbVUyc0VpX0s2Ukh3RGtyQ3h3SWJzb09ZTnN5b0VqN1Mxa1FtQXlZQmlVbXJZWUNTbUx6Y0NQUkzSAYIBQVVfeXFMTkxzQ0JNQzhlZkNWTGlEcVZIQWhZcUJPdWNQS3g4MkxwQXBSazZJWFROODdaS3hTaW4tb2ItbWRPYVE2NWo1dnlvTmtQUVBRSF9EMTR4bjhLQ2hfdV9EQXZvOFFteURNSmVPU1ZDMmxlcmpJblJfemtuc1hpZmhRLTRTdw?oc=5) |
-| Kim Jong-un Vents Fury After Botched Launch of North Korean Destroyer - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQZENLSlFqaExJVW1UR3pXcXNVcWduci1MYkpxWE9hczNod0RVU2NrWU9RazMtUzhrZGxjU25TalhzRHJnWmNvbmlSR0RZamU5Q3pka1ZoRmdFcVpYaFVtMTN1UnRVaWFMSGFrbk9iSF83cFBERFRIN2NPNEZrYjkzUzBWc29Nd1RE?oc=5) |
+| Trump Rebukes Putin, Calling Escalation of Attacks ‘Absolutely Crazy’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxObXZXak5KNnpxODJES0VJWS1xY3RsMVNZSTlKUFN0ZmZfYkFOdXFEMC12MDQ4UjJnVFZOYXJLVXRXb2hfVVFSOGFqYmZ3S0Nyd0JubzJYaUdpRXNIR0RmSnByblhYY2U1RmViQjlUa3B4ekJoaDh0RklwdUNpMi1haHhveXZiZw?oc=5) |
+| King Charles III visit to Canada underscores its sovereignty to Trump - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNaHFwSkM2Y0tzNk1mdmthaEViQlBZMGdUcUhMVDlrTmFLU1RmVnFBekE4Zk1YZVdUaGZWWnU1aUFqT3ozUWdXc1V1S2U3SXlOcFpDTm11OGtoU3BkWDIxcFZRSUw4QXRKRHRfallNdFpFbFhEcHF2SUhfZVpyQUhBNjBsX3B5aXRoSVRDbXdiOE9qbV9VMUIwX1drSFExODlPWHdyMXdKN1VlN1pCTWxR?oc=5) |
+| Head of controversial Israel-backed Gaza aid group resigns - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFAzbFU4ZDRvN0QyLVY4X1RQX0wyOXkyRUFCcl9MVS1jN1ZSeEVIZnBqc0RqSHE1SXBhWlFrM3BxSEZSZEtuaDl5MHkyVWFqZFFXa2FUWFIzaVQxd9IBX0FVX3lxTE9rQ0dHVjJKLWRUbWxFVjlPZ1Z4QUNBd0Y2WGJyWnI4VUN4bktaZTRXN3NvUUZqSXZ0Vk9OeVoyRHVCanNDR01GNUdfYUI1UThBTWItelRDNkc2TU4wb3M4?oc=5) |
+| Slammed by Russian missiles, Ukraine seeks more U.S. air defense systems - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNZTl6a3AzNnZuUUFDUjh2YnVlSFJfRmItU25BREwzenNicTNmS2hnMUU3NnFQWHZMWU9fUlJjSXZheGQ1R1VMa3JEV2c1Wkt1YTVGYmhRQUIybkdhdmhaSlJCb1dCamwwNHdwMmNsejRTc2lLVXF0TFF4RnJiVWJwcEVhQnZZZ3FmbDYxM2RxcEtIdXM1a2VCWl9n?oc=5) |
+| PRAYER FOR PEACE, MEMORIAL DAY, 2025 - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPMk9pbjAxSFdScmlMOU0xUkx3NDJ6SEJBUFBuTXNtbHpGRXJldnNMcVZrMVdFemZjQ0FTc0h4SnprUkxOXzVmTExWUnZ2MVBQc1RCeEhKUXVSd1JiS01FaWIwMGdfcmxTbldWV0stOHlkTVZlekMzNm1OY05tYTl3RHdrRnJrU0NiSmdUc2pJSTJpdU14QlE?oc=5) |
+| Vets in LA hope, with Trump order, that they can finally come home - NPR | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1lOUhlWGZxMzJFREdha0Jsdm0zYkJSSEhrNDk0TDJDS0RmTXhEWlJDOVphT3Z3em83dm5BMW5HUWkycFNPTDYzT2FtNXBIQmlHNFpiTVp4ckRmaEIwSWJRdWl2ZEtnUmg3X0xqU1RYcEtOb05pUzNjMG5ZZw?oc=5) |
+| Shooting in South Carolina beach town sends at least 11 to hospitals - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQQy14WktWemNZQ05ORklSRUY4Mktrc2w4ZVNscER3YWtfWjVydWdQN3k2X3lSYkVrZXlYa2YwcHdlTVZYek1zOVpTLTQtbmFHd25IbjhJbW1BNDZRZm03bHdSakIxaloxNTQ5M0poVVFkNmU2WXZiUmdpX3YtT2g0YWs1Yy1Vb3g3OHloejRJbTFRX21p0gGaAUFVX3lxTE5DaDlMRDduVUxGaDZZcHpsRDJGcXRiZ3BjTVJ5d01XS2NNdFdBMUo0QUZiTkQ1bjB6OVI1QzQ0dkMzRFBvekNvRXZCeVppRFJsLWVRMk9jM2dEcno2bHYyRkFpd0drRjktZlhEZ202ajBwMmE4VFkyRjhTR3k4NEJ2QjNzbG44allvVVJiSWdRbWFSM0hFRDcybnc?oc=5) |
+| Americans remember George Floyd on fifth anniversary of his death - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE03YVdmV3dPdHFfQWtvS0FIei1aTHg2NUF5WG83VVJBT1pHX2NBTXlqMjIzd2dEUi0xZUZUbUtiOE9ZbGFYejFhelJTNHVZU0t3M3NVQlQ5M1Fld9IBX0FVX3lxTE4tbHJNcHBMVjRhMXVHdHEtdmU1VUhPSHVFNGpGQW9FYlFCci1IQVJlMWxhX2drWXVpdlJOdEJvd3NfLWNGZzkyUUxzYWtrN1RvS0ctazJ0ZmhzS0FmNFVz?oc=5) |
+| The pool’s open. Trump’s laid off the team that helps protect swimmers. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQREZBamVEamNseEh3Q3ltcU1NbEpnR2lpejh1eWdfQWRvRXVZUkdlOVZhREZVdHpxcnBPd01wVlZkOWZUSXhWall3bzliUVBnNHRrOGZ6MWhxWWJMYjk0VDhZZWQwbk1XUEE3Tk1xMnVXTHJRb3Z4cUowVmJQS0NnR1pDQXRvMnM4eWpXZjBQQ2ZBbmlqZlJ0VnQ4VzZLLUNSWGRuUl9wdEI2ZjFFXzV2YUp3QmRjT2Np?oc=5) |
+| California Republicans would love Kamala Harris to run for governor - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQZmFfaFAtQ19zZFhFbGZtQ2thSzhYMFVPX1RmY2hNUF9mNlEtaThZNWpWTVExU2c3dG9WbXZBZDBSMGZDXzM3cnFXbWctYU5oTlVYTWtsMmZ4SUk0eV9jREx2NnZSLXBmSEFPT3RPWXQ5UmtiTkF4WlY4SERBVDdNRXhsOUJkek9CWms2TkJLVWRkc2pPTi1CVVY1TVJYSklj?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
