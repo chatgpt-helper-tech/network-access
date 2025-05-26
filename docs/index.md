@@ -796,6 +796,62 @@ WireGuard 下速度可达 400+ Mbps，OpenVPN 下稳定在 200–300 Mbps。
 
 ---
 
+## 🌐 推荐翻墙后必访问的网站清单
+
+一旦成功翻墙，你就能畅游全球网络。下面是一些值得访问的热门网站，涵盖搜索、学习、娱乐、工具、社交，以及仅限成年人的平台。
+
+### 🔍 搜索与问答资源
+- [Google](https://www.google.com) – 世界上功能最强的搜索引擎，翻墙后首选工具
+- [DuckDuckGo](https://duckduckgo.com) – 注重隐私、不追踪你的搜索历史
+- [Quora](https://www.quora.com) – 海外知识问答社区，获取真实见解
+- [Reddit](https://www.reddit.com) – 国际综合论坛，内容覆盖新闻、科技、VPN测评等
+
+### 🎓 在线学习平台与学术资源
+- [YouTube](https://www.youtube.com) – 学习视频宝藏，推荐频道如 CrashCourse、CS50、Khan Academy
+- [Coursera](https://www.coursera.org)、[edX](https://www.edx.org) – 免费学习名校课程
+- [Google Scholar](https://scholar.google.com) – 查找学术论文的好帮手
+
+### 📺 流媒体平台精选
+- [Netflix](https://www.netflix.com) – 海量影视资源，美区账号可解锁更多内容
+- [Hulu](https://www.hulu.com) – 精选美剧、综艺和纪录片
+- [BBC iPlayer](https://www.bbc.co.uk/iplayer) – 英国广播公司平台，需英区 IP 才可观看
+- [Twitch](https://www.twitch.tv) – 游戏直播和互动社区平台
+
+### 💼 开发与实用工具平台
+- [ChatGPT (OpenAI)](https://chat.openai.com) – AI 助手，提升工作与学习效率
+- [GitHub](https://github.com) – 最大的开源项目平台
+- [Figma](https://www.figma.com) – 在线 UI/UX 协作设计工具
+- [Canva](https://www.canva.com) – 易上手的图形设计平台
+- [Speedtest](https://www.speedtest.net) – 测试当前网络速度的实用工具
+
+### 🔞 成人内容平台（仅限18岁及以上用户）
+> 本栏目内容仅面向**年满18岁**的用户。建议搭配高隐私级别的 VPN（如 Surfshark 的 NoBorders 模式）使用，并确保符合当地法律。
+
+- [Pornhub](https://www.pornhub.com) – 全球访问量最高的成人视频网站
+- [OnlyFans](https://onlyfans.com) – 内容创作者订阅平台，海外 IP 可完整访问
+- [xHamster](https://xhamster.com)、[XNXX](https://www.xnxx.com) – 其他主流成人网站
+
+### 📱 国际社交与短视频平台
+- [TikTok](https://www.tiktok.com) – 国际版抖音，推荐使用日本或新加坡节点
+- [Instagram](https://www.instagram.com) – 全球图片与短视频分享社区
+- [X (Twitter)](https://twitter.com) – 全球最大实时信息平台，关注最新动态
+- [Facebook](https://www.facebook.com) – 老牌社交网站，在东南亚等地区依然活跃
+- [Threads](https://www.threads.net) – Meta 推出的新社交平台
+
+---
+
+💡 **使用建议（搭配适当 VPN 节点）：**
+- Netflix / Hulu：推荐使用美国或英国节点
+- Pornhub / OnlyFans：建议连接荷兰或美国节点
+- 社交平台（TikTok、X）：日本、新加坡节点速度快、稳定性佳
+
+---
+
+✅ 小贴士：保持隐私、安全上网始终是首要任务，选择稳定的翻墙方式和合规使用，才能真正自由访问世界。
+
+
+---
+
 📬 本项目由 [chatgpt-helper-tech](https://github.com/chatgpt-helper-tech) 维护，面向中文用户持续更新  
 📂 GitHub Pages 主站地址：[https://gptvpnhelper.com](https://gptvpnhelper.com)  
 ⭐ 如果你觉得本站有帮助，请点击 Star 或分享给有需要的朋友  
