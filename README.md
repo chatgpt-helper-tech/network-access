@@ -811,11 +811,11 @@ WireGuard 下速度可达 400+ Mbps，OpenVPN 下稳定在 200–300 Mbps。
 
 ---
 
-## 📰 国际新闻追踪（每 10 分钟更新一次）
+## 📰 国际新闻追踪（每 30 分钟更新一次）
 查看最新 BBC & Google News 国际头条，了解全球动态，获取墙外第一手热点资讯。  
-👉 [点击查看最新 BBC + Google News 头条](https://github.com/chatgpt-helper-tech/airport-access/blob/main/latest-news.md)
+👉 [点击查看最新 BBC + Google News 头条](https://github.com/chatgpt-helper-tech/network-access/blob/main/latest-news.md)
 
-> 所有新闻内容来自 BBC 官方 RSS 和 Google News，每 10 分钟自动同步一次，保持 最新。
+> 所有新闻内容来自 BBC 官方 RSS 和 Google News，每 30 分钟自动同步一次，保持 最新。
 ---
 
 ## 🌐 推荐翻墙后必访问的网站清单
