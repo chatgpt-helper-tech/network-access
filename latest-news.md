@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年05月27日 19:09:43（北京时间）**
+🕒 更新时间：**2025年05月27日 19:34:56（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What we know about the Liverpool FC parade incident | [阅读全文](https://www.bbc.com/news/articles/ce8209lzzp4o) |
+| Why police released details about Liverpool crash suspect so quickly | [阅读全文](https://www.bbc.com/news/articles/cvgv4ddpyddo) |
 | Watch: Moment car drives into crowd in Liverpool | [阅读全文](https://www.bbc.com/news/videos/c4grq15y6yeo) |
 | Ministers considering scrapping two-child benefit cap | [阅读全文](https://www.bbc.com/news/articles/c5ykp78r5r7o) |
 | Controversial US-backed group says it has begun aid distribution in Gaza | [阅读全文](https://www.bbc.com/news/articles/cev41em3r9lo) |
@@ -23,15 +23,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Dow Futures Rally After European Union Agree to Fast-Track Trade Talks — Live Updates - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOdXpHSjFSNlFJM2tWSFc0MkRmWHpCQVljYjMzNW5FRlNVa00wTkl2M1I3V2NpdXVfWEp0cTJnU2ppRjdwNEJMSXJ1blJ3Skg2NnZUTW53Tm9MS2JXckhhMnNRX2U4SllPQ3pSWklIRUVEbjNIRlc1WTV3NDhabWY3UUdQZ3VZRUE?oc=5) |
-| King Charles III Visits Canada as Trump Threatens Its Sovereignty: What to Know - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOQ2NmX0cweE1fVEpEaXhrUVZnakZPMERuSFZCR1VwcjdUbm9iVzREbVhuTEcyRHc5bFBiOWJHM3RoVU5JWGxLSF9YLW0yYTJQNlVWVXNwdmYySkNzd1RIaFUxb2ZQTFFTaGN5VGRraElHYTVVZ2VXSUM5a0hfTmhwUXo0em5FUFUxT0RGRA?oc=5) |
 | Memorial Day mass shooting leaves 2 dead, 9 injured in Philadelphia park - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPUldJM0t4ZGplMlFMek5pWlp3MVA5R2s5ZzU2bWFPMW9yeWZaa2xGVmlMVVdQVGRGX1p1LXR3cEtZdkV3aHJxLWticWtJb243MWtUd3VRNmMzM1hTQ041ME9kdEJvektqYVh2Z21rYXJnR0htdVh4eDBoZDdDbFBrb090ZjVqaG44SE1ibkZMbDnSAZYBQVVfeXFMUGVFdEl6NnpaSy1lYlBwd1R3LW5SU1B3TnZWRm9aRkp5UmQ2cnAyLUYyVHFMTEtuOG1XMGZKZzdKMHlWZi1MNWZ3ZThCdmREQVhFR2Q3UGY3eW5xRE9fUU9yRlJYUUZBRGRpVXRxbXRuMEZyU1dhb3ROdU9BQ0RlU1dJTDJVS0htbmdYNVhobkV1NUxDUlJn?oc=5) |
-| On Memorial Day, Trump honors fallen soldiers and celebrates political wins - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxObnpWM0lfSkJNdG55Qkg2UEt3QzVxZkticDJNZjM1VEdNSjBGaGZHQ2ZZRFdXU1pxRUhEZ3F6cm1oRTZka2N4bWFJZWlqcDl4V1FCX3FlRzZURXVQN3ZLOXI1dmgxb3AyTkpBQlhUR1hUdEpBUE40b3NFbzAtLXVFanMteVFWNnFJNC1BelAxN3lKc1pHeE4zUkgxVjRzZEthdGd4V2VYVUpvN1cyVU5qTFFVSzlCZnpBZGtV?oc=5) |
 | Corporate America's retreat from DEI has eliminated thousands of jobs - NPR | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE1xRnRmTmZWOVlPQWU1NkY1bWdOUXBoZGtJLUFsZWpLMWc0dVQtR2J5U0dWTHBkOXlHRGlfTnlmR2ZXa0RmZG9zaldnUGhCOUJXa0hzOENSZHBfaUpUYXYydk9ucHkwTmZIQUNV?oc=5) |
-| 3 more of the 10 escapees from a New Orleans jail are captured, leaving 2 on the run, officials say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQVlViU0VleXdBT1FOZnBqbURhX2F3eDFPNUxhNWF2VHV1Z19QZW5mSENIZjFVSHFhWTRiMDlJN3d4Q0Y2TFUzMW9HSUJsREozZUNWWWFXZ2xvUVVhcDhVckFJMk5FWTNleUZiUU0zRHQ5MWZ3a0l4VmZrNXNoUlJaQURvaDYwM0tHVWZlc1VOQkttZFR1OGE2XzQxYw?oc=5) |
+| On Memorial Day, Trump honors fallen soldiers and celebrates political wins - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxObnpWM0lfSkJNdG55Qkg2UEt3QzVxZkticDJNZjM1VEdNSjBGaGZHQ2ZZRFdXU1pxRUhEZ3F6cm1oRTZka2N4bWFJZWlqcDl4V1FCX3FlRzZURXVQN3ZLOXI1dmgxb3AyTkpBQlhUR1hUdEpBUE40b3NFbzAtLXVFanMteVFWNnFJNC1BelAxN3lKc1pHeE4zUkgxVjRzZEthdGd4V2VYVUpvN1cyVU5qTFFVSzlCZnpBZGtV?oc=5) |
+| King Charles III Visits Canada as Trump Threatens Its Sovereignty: What to Know - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOQ2NmX0cweE1fVEpEaXhrUVZnakZPMERuSFZCR1VwcjdUbm9iVzREbVhuTEcyRHc5bFBiOWJHM3RoVU5JWGxLSF9YLW0yYTJQNlVWVXNwdmYySkNzd1RIaFUxb2ZQTFFTaGN5VGRraElHYTVVZ2VXSUM5a0hfTmhwUXo0em5FUFUxT0RGRA?oc=5) |
 | Trump threatens to move $3 billion in federal grants from Harvard to trade schools - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTFBCaHFJc21YcU5UOXBoQlk5d2ZQcURKNVRQYnpfSGM0c0RIZXFPY0NKYjYzeFZGSGpURHJLVE5NSVVqcm1iUExReWFNWUZCSDl5emxCdGxyMWQ5QzFUX0x5MXpXSXBmV0pRR2VQZQ?oc=5) |
-| Charles B. Rangel: A Life in Pictures - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOcjJXNnNwUXkxNUxsNm5vWlVueGNDa0Y5djZGQ2ViQVZWWVh5QzZEY3FLX1ZjUzl0aVBaS1NpV2ZpZWFNbXNxWDV5SjJtZ2xBdzF3aUVBTnYyT0gyTllHbjNRUmttZ3JlQnNZRWNJUURKTE1WZW5WZVhVbGJkb0pqUw?oc=5) |
-| 'Tragic accident': Teen dies after falling from Memorial Day parade float - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQWFBOTUN4STB1Zi1iZU5KOHYyd0xUck12by04VzNZNEF5QzVrb2d3ellUa2I3cnRPLXk1eUI2NzVLRE9QeTYtbW81UzZUOVJpWVpUZTJoSDNTNmY5dlB5NTE5aEVzYmR6WXRvUkxGdEREd05nZXJsci1NVk4tMWlJdk9LMlRQTTlh0gGOAUFVX3lxTE5qY1hyQ18zUzVNbWM3R0ZBM1dqMVF2Q180MVV0TnA4WUYwbG5MdUpjSE43MS1neFZzbTVKV0hXZEF4Zy14RUhFN01yblhnTlk5MDZJWHNGZGxpRFVxeFl6WDIxNUtlYXEydTFGR0pEVWFTb29uV1A5UmNyZUdYYzRoVUhUSlNVYWpESjhRcFE?oc=5) |
+| FBI announces new probes into Dobbs Supreme Court leak, White House cocaine incident - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQNDB1LVRDV3VrZWh1NW9aU29LeVJfN0gxbXNfQUpBVkdTV2hUTFFORzB3akdxcktWdnJVZVJfbVlqMkFqWUFuQ1dEaVl1cVdrTW5NbG5xYng1SjN5YkMwX1NVZGZza3dDZ1NDYWJiYU1tT0Npem1zUWY5TlgwSHFXYUt2OHlxREptMDRZUkhsNnAzMlRvX01LNFBxMzI2QlBIOXVwRDVfeDJ3WkFvc19UVEZmZFEwRmZCZUs4?oc=5) |
+| 3 more escapees from a New Orleans jail are caught, leaving 2 at large, officials say - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5XcENpMTR0cVBNdi1ZSVBtajB0TGZ6X0lJcXE3bkNfYUs2eUZ2UFRleXJiYk43VmFpdllsLS1sdndHTTZDaERUTVNJMmNnS3JoYjFDZjIxdzdVUHpkMTAyM256MzJ5UUw4SFBYLURlSFlVM0J3b2VsWlB3?oc=5) |
+| President Donald Trump pardons former Virginia sheriff Scott Jenkins convicted of fraud and bribery - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA4S3Y0N1g5amFDSTdfWUJVNVdHX0V1dWxkd0lneWpZNGhWLTdJV3VBd0hDaUFiYU9hLXJ0UmQySk9RVmVMSzk4cnlIRG1iQ0IxZjZzRDEtcGl2Z9IBX0FVX3lxTFAzSDV5T3JfLVJyZEFfc0dKRG5KaVE3UnRselZsbXFQdWZnemIzS29yWDBqcTdTczNSOWZIVkRfQlNXUVppN01VQ1JOV25yNDJnZGRDZm56ei1vZFJjUDhj?oc=5) |
+| Former US Rep. Charles Rangel, who spent nearly 50 years representing New York, has died - AP News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQdUctR0xKRkpXVWZJYk1Fc0ZfR1B0NjVnWnExaVR5MjJlMFFMV3Jla21CclVITHlBN2VXTFZRaWJ0alpqSzh5RktXejBMNGFzaVhWa3FILUNKQ1FjbXNrc1FOMEZRU3k5LUt0N2tWaG01NU9QU2hLTDRGTVZhTE8xV3JtcG5nZw?oc=5) |
 | ‘Mass casualty’ wreck involving Greyhound bus on Highway 70 East, authorities report - WBBJ TV | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPOWFzbjI4WDdoM0JLOW5lS290dkZGRWdscWxkbDR4c0h0MnhNMDh0QTgzMi1ZSHRLeHdoamJnd0VmcTFoVEkzRHpUb0dEZ1RCZEo2eVNFS0kyM2ZXWVNyUzExRmdqNGpBOFg2QmowN1djV2UyV2JmQTEyTmVCdGd5ZTBSSnFWS29IWlkwa2ZSZUlITFZzbUZOSGtRb2VHUjdXYzlsMVJuVFFiMG1LWGNDdXNmdHBqNG8?oc=5) |
 
 ---
