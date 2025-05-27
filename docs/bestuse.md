@@ -243,6 +243,9 @@ permalink: /bestuse/
 - [📘 中文导航主页｜ChatGPT、VPN、机场合集入口](https://gptvpnhelper.com)  
   整理所有教程与资源，适合新手入门或老手查阅备用。
 
+- [📘 ChatGPT最佳实践以及使用技巧](https://gptvpnhelper.com/guide/)
+  由 ChatGPT 中文助手导航站维护，**涵盖 ChatGPT 注册、Plus 升级、Prompt 模板、Explorer GPT、DALL·E/Sora 使用技巧等内容，适合新手与进阶者，帮助你全面掌握 ChatGPT 的使用方法。**
+
 
 ---
 
