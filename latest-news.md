@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年05月28日 02:14:03（北京时间）**
+🕒 更新时间：**2025年05月28日 02:47:01（北京时间）**
 
 ---
 
@@ -10,6 +10,7 @@
 |--------|-------------|
 | What eyewitness videos tell us about the Liverpool crash | [阅读全文](https://www.bbc.com/news/videos/c9dq6jj0l9do) |
 | Why police released details about Liverpool crash suspect so quickly | [阅读全文](https://www.bbc.com/news/articles/cvgv4ddpyddo) |
+| Canada 'strong and free' and other takeaways from King's throne speech | [阅读全文](https://www.bbc.com/news/articles/c93lx42r42do) |
 | Young actors revealed for Harry Potter TV series | [阅读全文](https://www.bbc.com/news/articles/c5ygp0908g9o) |
 | Farage pledges more tax breaks for married couples to make having children easier | [阅读全文](https://www.bbc.com/news/articles/c5yx062pvlvo) |
 | Hundreds of lawyers call for UK sanctions on Israel over Gaza war | [阅读全文](https://www.bbc.com/news/articles/cx274gj54xpo) |
@@ -17,22 +18,21 @@
 | IMF raises UK growth forecast as it warns on tax and spending | [阅读全文](https://www.bbc.com/news/articles/cx2jy0jk231o) |
 | Drug-fuelled driver who caused death of three-year-old girl jailed | [阅读全文](https://www.bbc.com/news/articles/cp3qdj0qdp7o) |
 | Bournemouth beach huts destroyed in overnight fire | [阅读全文](https://www.bbc.com/news/articles/ckgn4y4n0vno) |
-| Ancient human fingerprint suggests Neanderthals made art | [阅读全文](https://www.bbc.com/news/articles/cn0g9jv707yo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump administration moves to cancel remaining federal funds to Harvard - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9ZTmkwcmx6VjNCaEtMbkFzeWFRNkVMeWpBZG01VXg3OXBJNEl5RlFSOUJyNEVqS191YzVrVHJLOUZKMG1jVjdwMkNiMkpvY3RyaElhX3duYl9tUl9NTWxHWFdRV1gzRXlTclZHN2t2djR4Q18wZlNsZExMOFY?oc=5) |
-| King Charles defends Canadian sovereignty in speech to Parliament - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOSmI4WUdOOWV0cTdneS0yNTl3N0pneE92b0RlSzhrTjd6MGFBdWM1d3JQd2ZjcFpkZTdMWHo0QmVFY2JoWU5yZUtEYXdnb1FXQjQ0MHM0N1h2d3Iza2ltUVM5TzVXcnBFel9PWUMyOUxhdEtCaTJlMS02cHNwVjhac28wSQ?oc=5) |
-| US Supreme Court rejects case about student's 'There are only two genders' T-shirt - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNTnJiaXNKWFZncEZxMmFzeXZvaVVQRmZmUFNUUVZ5b1p2MTNqcEJlcHhTZEMwN2pRWkEwV3d3ZUt1YnhEeXVoWkUxWjJpYzVYYmVGRzBBZ2NEdGZYT0doaklMdFI4V25xU2hTeWtJRFFKNjdJSUgyUnI3Y0hFNzU5REVldU9tMUNZWG9sWXlxcnRiMUY3TjlFaHB6RXh2cWNXeHozdVUtc2VsaHJEYWhhNFVUOEtVbmFPaDRIbkNUUXY5UQ?oc=5) |
 | Trump says Putin is ‘playing with fire’ as Kremlin continues assault on Ukraine - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPcGpPc1c3d3UyenktMDJvSGVXMURVc3pxbGYwVVBuZTE1UGtzVmZjQm5hSGIzYUg5VU9RRWtIajdHTGVxYV9INnZZeUU0VWQ1emc2bWJHM001Y1BWamNDNVBlZGRDVnd3akUwc3B4ZEFPLVd4emVDMVdHQm9KU1V2MHNR?oc=5) |
-| Trump administration orders US embassies to stop student visa interviews - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPUGNDZHdEd3Y5cnlrWllvc1NRRnpES3NaanhLb0cxY0h5dFBmTEdXV2tQb2VzYXNPcUxxelVfOGJYTmtFVVVBckZEM2ZpVVYwWGtHYV84LVpoTFhKdnR6aVBwNS1Zb0FZVUFXVHFWWEQ2dkQ3WS1uZG9kdXZ3Q3JmRjM4YTBTYU0?oc=5) |
-| Trump Pardoned Tax Cheat After Mother Attended $1 Million Dinner - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOQWctZS0taEF4V1FPTk80bzd2OTlYeFJValRQVGJ6ZDBfYTBEb1JHRnVWNWVic1VlRktucFRzdzJ2MlAtaGhURGVwTkQ4a0dSRmk3RnNUV2M5VnlzUURQeVZpUG9FY1RNbUZCMHVpeWhqbEtqZFdHbVVRekJXOXVWYnNfTDExUVlxRlUwZFh3c3kzUQ?oc=5) |
-| NPR sues Trump, says funding cut violates First Amendment - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPVUhIdWlIbzlpaDMweXpTOTlhRlZqQ0RwOU5wbTIyXzJ4TTVJUDdFU0thZjBOXzR5TTZ2U1ZuSUZLNExzYmZMSXJSZS00OEd2NjM5Y1U4SERNaHJHTGktdzVFMDJNN3pVc2dpLXJGSWtXRVdPbG94Y1NJTENYVXQ2bGd6VnBVdmlyUEwzbVJsY1VWclR4NVdxSmp0cGc?oc=5) |
-| Escaped inmates captured as manhunt continues - The Independent | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNa0tYVmF5Q19HNms1TzlKRUFNcE1rdFo0RVI2Sk9SVXNKUjQwZFVCbnRvaHpiNFl2VWszaEY5dUwzTFltajZtU1RHTjU1MUpuWVBUMDZ1TG9LTEJ3TXQzRVEwUDlmRk9sdE00ZFJYTWxRNXlOTTZTZ09uczdHdE9qVUEyZnV3eDJmTWlMZnprS3VCdEdjanl4UGlONA?oc=5) |
-| Supreme Court declines to stop transfer of Native American site for mining - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPUkd4SDFsck1rZ1VTMFNmUllZRHVCZ05oWGdjMXd0NWNld2ZOUmxmSTJaeWNBNjl0TEJWQ3BsWVJZV1BBakd6RGVTNm1KdERoUC0tOVp1STNPX2hRUEJOY3pVdy1XYXZuR1NVQWlLZGZmY0J1SXZyckpIU3hheEQzYnlndWRkRzg4U3NyNkF2ejBqajZ3WXN4VFJ4anpOQU9KYjNwNw?oc=5) |
-| Congestion pricing stays alive in New York City - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPVlpDQXkxNVBPLThfX3pURjhWSmlISUdwY1FfelZCZWRIblVtYlJicVBqRS1XMDJkdzNoQjRYVy1mN2NPaVBuVnU4X2xzZjIwV0NULXExYVRzaVkxX1F6ajJVZnVLU3ZmS2tFNG9PSlhZbzk2WWhYMUo1UFF1cHdmREx6SmNMX3JYOTVmVC1NYVFlNXNUdjh1NnRmYw?oc=5) |
+| King Charles hails ‘strong and free’ Canada in speech to open parliament - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPQ3RVOUQwcVk5MDhwX2VKMVY4cXJFNjc3R3RsS1hjZnZIaDVlSFFYbUcxZVBsOHZoZ1NaYWhjVGVxTnlLazRLVnlISzRiT2xZUUlPX0ZBb19YZFpFaEcxaFFNNm93aGh5c09sNGRyMWQ5cUdid1JvaEhRTDU3MW5aamFjUllSV2JFcTU1cl9JSlZhZk0?oc=5) |
+| Trump Intends to Cancel All Federal Funds Directed at Harvard - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1hVXZaM2FndmFXOU9aNmNSeVZLNHZ2d2lvX0h0dE9Iem0yM1FmaGI4TzB6UVB0bE1zVmlKRWllLTF0NVp3OXJUNGNwekZ5ZFpWMW1PejdOT0xRZzhFZ0Y0VkM5NXkzNF9mdWF0d1pLUHlhVGFaVVlhNDFn?oc=5) |
+| US Supreme Court rejects case about student's 'There are only two genders' T-shirt - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNTnJiaXNKWFZncEZxMmFzeXZvaVVQRmZmUFNUUVZ5b1p2MTNqcEJlcHhTZEMwN2pRWkEwV3d3ZUt1YnhEeXVoWkUxWjJpYzVYYmVGRzBBZ2NEdGZYT0doaklMdFI4V25xU2hTeWtJRFFKNjdJSUgyUnI3Y0hFNzU5REVldU9tMUNZWG9sWXlxcnRiMUY3TjlFaHB6RXh2cWNXeHozdVUtc2VsaHJEYWhhNFVUOEtVbmFPaDRIbkNUUXY5UQ?oc=5) |
+| NPR sues Trump administration over executive order to cut finding to public media - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQRXVDUnZWTUdXVFVnZkwxQWVzWVVoT0wwMVg3QWthRHgxbFZsRkRaUzRQR291S0diTFhnYVlUQ0FLQWdaX1pVMzJrNnd1WXlGT3JmWHg3X2xCYVZYa2Z0UWZoa3BSR1dNN1RaS2xOd1dIWEJYV21JVkl1Q2JDSE1DUFdQeEVTTkFxMU9nTmZuWWh5MjlB?oc=5) |
+| US Orders Pause in Student-Visa Interviews Ahead of New Vetting - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPYUEtRE1NRHVBR3FQaUhJRko1clZNTnZObmNERVpJeTRoZFVGQWRkVTNBY3ozSHM1aFJXRGRCYk9yb0ZpbUJpaTRocjlsX1FmQ1A4MzdMZzBMc1N6OWZyUVF1bERBd1htaF9idmI2ZFAzVlFjekNEbE5iN3ljaTdad0pIRlVxemtYS2xTRWtjMG1NMU9YckFPNGdZS3VudG1kZ1kxSnFFT1V4WWZUeTVjNHZPSVg?oc=5) |
+| Judge Temporarily Blocks Trump Administration From Ending NYC Congestion Pricing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNXzUzUVdVUFJQTXF6eml3N2pFVXRfbkN2NjhtdFIxenZ3ajFZT1U0N0J4YzZGSUxvdnJtZGV1c1JqbHVVVWp4b0hGeWlmVVlGN3dQczh5WG12c3RwNERQNXVUSXRiQ2NMbF9yckxYU1dIaUtsVFF2bU1QcTdJNk12X1ZhVQ?oc=5) |
+| Ed Martin personally reviewed pardon application for Jan. 6 ringleader Stewart Rhodes - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPeHlvdWFQaEVramJxWGRENEtTOWdxLWdVTjBzY05BNGx3azJxSEdBLVBwSWxjaWU4eUFjaVM3cFZsSnlTNUxja195Zk80S090VnQ5bU9ITmtHVURqcV9fSzNLeXJOZ29jUlpGaXZaYTNYT2R5ZzRRc0hTcGhLRTQwamNraGlBU1BmcTU1YVplbkw?oc=5) |
+| Supreme Court spurns Native American religious claim over copper mine on sacred land - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQLXZZVEVjVFFfQzdDT1RPM3RxUDRVYmJhMU8wb203d29yRm54Y2t2RHozR252RkRqeGk1ajlhVnY5THBLd3pCalJGVzQzcVB1REZkaC1FSlhVNWFNcXl3amFlZTFSanNaWm51NnVqYnZOM09MelJlN1VQcWJCUFR6cFpoUUR6aHhLajdwOXZYWVlKUUNvOEduOVQ2VjZ6bWlEMFhha0NzRHlNWlFjUWhpUUIxMUwwcGlfbGo3M0tZTEtiWnp5V3Rj0gFWQVVfeXFMTmhDLWE0Q01WZ01FVnY5dFRBSzNSZVJGeWotQkdSZjRQVkc3WE92R3E2eDFDbDE0UGpjRUQxV19heGdwUkVMNW5vTFdCeGhUNjBzb3Z2VkE?oc=5) |
+| With 2 New Orleans escapees still loose, a dozen alleged accomplices are arrested - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOZ2Z3YVRSclMtSkNYSnNQRnQxd0o0UEVfaDNZaDNvY1ktQTFmNC1qREh2bTYyR0FieEdDc2wzZ1ZSZWo4VXhFbWdBVFlocHpERDFpNHAtZ0xpUXkxVVJYb05EbnRVUTE4U2JQWV8yYWptOFByWXdNdkVBdXRGXzd2ZXVn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
