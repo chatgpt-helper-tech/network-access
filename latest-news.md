@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年05月28日 13:11:34（北京时间）**
+🕒 更新时间：**2025年05月28日 13:40:42（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | King exercises discretion in Canadian speech after country's row with Trump | [阅读全文](https://www.bbc.com/news/articles/c5y84pn0erxo) |
-| Liverpool driver arrested on suspicion of attempted murder after parade crash | [阅读全文](https://www.bbc.com/news/articles/c62n0nkj4m2o) |
 | Thousands to get payouts over forced meter fitting | [阅读全文](https://www.bbc.com/news/articles/c308vzqj975o) |
 | I reported my offensive colleague to the Met - why did he get his job back? | [阅读全文](https://www.bbc.com/news/articles/c14ke41yg18o) |
 | Hopes of motherhood crushed after IVF embryos destroyed in Israel's Gaza offensive | [阅读全文](https://www.bbc.com/news/articles/c15npnzpd08o) |
 | Met chief warns anti-crime pledges need funding | [阅读全文](https://www.bbc.com/news/articles/clyg95n0l05o) |
 | Moment SpaceX Starship spins out of control in test flight | [阅读全文](https://www.bbc.com/news/videos/c5y6drv99r9o) |
 | US halts student visa appointments and plans expanded social media vetting | [阅读全文](https://www.bbc.com/news/articles/cy75eenl46eo) |
-| Environmental rules reviewed for small housebuilders | [阅读全文](https://www.bbc.com/news/articles/cgr54q5yzkzo) |
 | Tesco shoppers mock 'VAR'-style cameras at self-checkout | [阅读全文](https://www.bbc.com/news/articles/c20q5q92y2yo) |
+| Rules that force small housebuilders to improve wildlife habitats to be reviewed | [阅读全文](https://www.bbc.com/news/articles/cgr54q5yzkzo) |
+| Giant's Causeway visitors urged not to jam coins into iconic rocks | [阅读全文](https://www.bbc.com/news/articles/c14kn1ekvymo) |
 
 ## 📰 Google News
 
