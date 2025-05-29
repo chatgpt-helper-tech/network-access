@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年05月29日 11:39:07（北京时间）**
+🕒 更新时间：**2025年05月29日 12:16:00（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump Tariffs Blocked by U.S. Court of International Trade - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQZ1hyeDBxQ2JVX0lSWklNUnlDcWZQb19VYnVsZnJJb0lhZC0zVm5MeExCS2dRYmVCOHpiemp0UDRVLXhOQlBvSzVNT0tHaXctb3RpOUd2bXBpcnZ6WktjSEIzT3pOUWZtWUNNRGZYY1kxUlEtMVU0T3AtQWJXYllNY3FKUTBNb3pjLXFmeQ?oc=5) |
-| Elon Musk says he is leaving Trump administration - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9jbkN6YmxHVDdSdDBMVVNLYUtQVG4wcUJKOG45QXJNMDM5V203Xzhab2FhWVllR0VuRlVCSkxDMzNLVVgtcnlUVmNfV2ZZeU5oVFFvTXctVVhJdw?oc=5) |
+| Elon Musk announces departure from Trump administration as 130-day role ends - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOMWs2VTBFbU80NmJyeUl1Z3B5a2ZETDcyTm1IWURZMndVaXRndWdIeVZ2bzUtLUtrYjI0U1hra3YxWGMxVlY4N2JBVExHMkNLMXNfc3B4NnJZeU1WQldXaHBwTGpyazhrakwzOUxfaXZERExMdUJhVXRmYXFZQm1ubWZTNThPLS10TVhzMm4xS08yeHVRQjNVNXEtc1A4ZFZJb29wZDUyTjRmZjhuRzlkVEJidWNUQQ?oc=5) |
 | Trump pardons Julie and Todd Chrisley, reality TV stars convicted in 2022 of fraud and tax evasion - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQaWZkbGFyMkQ5VG9rdy1hOURBNExQcWI1Q0VtQWxxSkxXZXlPM2o2U3BiaVhuQzZZZm1McUNVa0RodFUyRWxEM3V5RXhCTkdsUFBMNzc2b1BheDNwN0NjaGkwTGx1dDd6RWFzQ1djN1lFT0g1MHJxdjJFUjMzelBwczBCejItbG1LcUxOeUtnQkxzdFFlUGMta1lLTHNtc2hwdUtaRFJ6eG5CbzFh?oc=5) |
 | US will ‘aggressively’ revoke visas of Chinese students, Rubio says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPSjJnYTN1ZDZhdkE5cTdhcWpFb0FlTjZCRHFYeG1sOHZsZGoxcFl6TEw4UmNRQUt5ZnBfYmJCaUdnZzJib0pEU0xSVFZOeENHaEstN2N2RkNhLUhsc1VIQVVPbUhNMi02TGpqSVhRMDlzUTl3X1V6N3V6NEpGbmJzVGcteEtWQQ?oc=5) |
-| Trump Downplays Prospect of New Sanctions on Russia - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOdmdUMlJhdkJfdi1SQW9NY25xb2FiZkt2WVdBdThnb3U3NnVwUEJ0QXhocnJSQXZDaWFNcldtdDdleW5tUFV0cE1BQnludVIwSy1uZl8wUEYxOFpKYVFfNzlfUl91OEkxYjIwQTh4X3IwNndIU3ltLU5VNHgyMF9TQ2ktcWFDUlhISWplbUdJaw?oc=5) |
-| Trump’s Air Force One deal with Qatar not final, despite U.S. claims - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPcG80cVBxZHAwYUtZVGlLNzJwTHA5cGZ6VUNCUUh1SVdrbl9INVY3U0Raa2VBMDRlYmk0OE9McFVkSWs5blh0cU5PRXZUMW5aMlJJc3VlUWZMeDc2TG94ZlZ5ZWp6aGhTZkdUMk1oN0hsakRCZjVFMVFFaEVpUkhkSWthMUVxZ3ZxcUg2T2NORQ?oc=5) |
-| CDC blindsided as RFK Jr. changes covid-19 vaccine recommendations - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQWVJibE1kNjZ4MU9oVTZhbzVlWVNKNzYtdjQ2VVF1elJmLW9HVmtNeE1YRXFJLWMwbzhtZmF2XzFSWmpwcFhHeUQzSFNUSERvSDFEdmxYOENHWkx5MG12NS1teE9IUDZCZjBRbE8xek5CVWVrVmdnd1NWenZyZUF6Xw?oc=5) |
-| Harvard agrees to relinquish early photos of enslaved people, ending a long legal battle - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOdTI0MVYxN2RCRVBjcURDX3h4OXlaeXdrNXo0QnZ5bmp5bWkyLXFqTkpBVWZtQ2d3NTVvOGNka2VzTU1PRjQwR0N1VUVTVmpKUEhucHlCYURHaThIUGxvOG84eU1CaDZfbUhkanpuZFlkLW1PbDloZkZMbTAzT1I0WVcyUHMxNU53dEZCNXMxWWJRUC1wRmc?oc=5) |
-| Sean 'Diddy' Combs allegedly threatened to leak sex tapes of his ex - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOQ1BJcUpWdV93eEJQWEhEbllYQTlvbWVWUk51OVFLd0NfRkwwckJqZG9rZ1h3ZjI3TFJ6aFFUSXFMSUhIODlsQURhN0FZaW9rb0hkT3ZIazNaVEV1TmZqVDNNQkZIdjhadm16UnNlc0djYkdxZmhudkx6N3JtU3Q3cm9oZlM0eDFRa2pqcHc1cUN4NnlQLWlRaVFCSEFZUm5fdkdqOA?oc=5) |
-| Checks on Migrant Children by Homeland Security Agents Stir Fear - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNX2IyODNtRG1tVWdnOGRVY3NETV9EN3pucFEzb21acFlIT1FkRWhoMlY3TUpRaXBtVy0yNFUwUS1zUENIbFFsRE1ZVXRfbENfaXRIU0o1TTVlU2lTSWJkNkoxSW1nOUprWHNiQlZNQ0Y3a3pPRmpKVkw2WHFVT0I2NGo2UDFyV1hOUTVoVg?oc=5) |
+| Trump appears to give Putin "two week" deadline on Ukraine - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5TSVlpV3Z3SmcyaTNqamgzSlQ2V2hOQkFyYURuQW1Qb2Jyb0lDa0dnWWRQZ1FjS0NINTBzUkVaS3MtRXJ5UmFIWWs2WFRBYXloZFFveGcxcDZjZ9IBX0FVX3lxTE9fSnBnTVp6cHMzZWRSTDQyckoxN2h3dE1ha21nWXZyMUs5US1jbFdvQTdUTnkyVURPYzRtYjBVSk11Ti1zMHpXc3lzYzRlWUtYODZmUVVFTjJtODR6dGVN?oc=5) |
+| 16 States Sue Trump Over $1.4 Billion in National Science Foundation Cuts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPSVRrMmR1V2h5VFZNaXdjdVFCR0VqbDVTS3lGSnJFX3NnN2xTeDRPR2JDLUlxdHNQaXZyQ3BxNG5adDhLYzRWSnR1T0dBbUVhTjIwTU4wRWxWd0dDd3h2R09wUXNka0JSMk9iS1UtbWdER2luUndWQW40WTFlTThtMzNmbC0?oc=5) |
+| Trump pardons criminals with MAGA credentials or big money - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5NVWN5V0phRXhIMFd5QmVkb1MxVWtmeHRLS0F4Y0ttT3FzQ1lHZzZLcWJIWTNJcmR4R0xJZjBobFJZdXlQUGo1NFctWkI4Tnc5azZEZ09uY2JLLXZLWGNMc0RuN3VBLTdDUWtRUTZZaGpoYVB6QkFqaXBMYw?oc=5) |
+| A Missouri Town Was Solidly Behind Trump. Then Carol Was Detained. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1hUjJ0TDBFeDFDcFplbnBzdWJocVhJLUp3aWZOTE8zQkczTXlJWmJFNkw1eWhmUU5hSklvLWthVnJpOUplU2QyaUdhWXdWc201alJMcGZuenZTcmQzeDNsTnVJZEZqWmhKc1ZWbGI4RnBfTGJZNEE?oc=5) |
+| Trump administration says it is working to return Guatemalan man who was deported without due process - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQdTBZLXUzZkVsWGNVNUdReWRxczhjMlpXeG1YT3dfS1ZmQkROclctQlJuU0NvOHhSc2xBRGNtSFQxVjZ6cGttMjZ6eGNHYU4yWk5fNm5SME1IbzE4alEyWUZpVTd6NUFGa2xPa2xSd1pSVVlGUkJDUTdybWRCSV81RDRJenNNQXN1NFBZbDFlRG9pbTJ5ZzU1LWZR?oc=5) |
+| Harvard Files for Preliminary Injunction In Lawsuit Against DHS - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRGNuY2dBRTRqZ01aMnp6cjAyeVVpLTQ0dU9zZVBFVWhYVVFjM0x1QVJYUjZ6NDZCQzlmeXBUSTdZRms5Y1phOU1EZGdxMmk1NTg2cUtmcWhSUmFscWhJZjlEYWkyVmtxODB3eUlldVhjSklSc21ST0FZMnpvU0tmcWhxeVJuMFU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
