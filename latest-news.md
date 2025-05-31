@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年05月31日 09:40:09（北京时间）**
+🕒 更新时间：**2025年05月31日 14:27:08（北京时间）**
 
 ---
 
@@ -11,28 +11,28 @@
 | Trump to double tariffs on steel imports | [阅读全文](https://www.bbc.com/news/articles/cy0k5x21y35o) |
 | Healey sees defence spend rise to 3% of GDP by 2034 | [阅读全文](https://www.bbc.com/news/articles/c2kq9qxde3go) |
 | Idyllic Swiss village stood for centuries - until a roaring glacier wiped it out | [阅读全文](https://www.bbc.co.uk/news/resources/idt-c7f929de-96a9-45e5-b1bb-31de82fce72d) |
-| Taylor Swift buys back her master recordings | [阅读全文](https://www.bbc.com/news/articles/cp3n799d0v5o) |
-| How controversial US-Israeli backed Gaza aid plan turned to chaos | [阅读全文](https://www.bbc.com/news/articles/cn4g0xmem2lo) |
-| Breakthrough cancer drug doubles survival in trial | [阅读全文](https://www.bbc.com/news/articles/ce82gderpl9o) |
 | 'As awkward as it gets': Ricky Gervais gets star on Hollywood Walk of Fame | [阅读全文](https://www.bbc.com/news/videos/c5ykdkn1p4no) |
+| Breakthrough cancer drug doubles survival in trial | [阅读全文](https://www.bbc.com/news/articles/ce82gderpl9o) |
 | UK taxpayers no longer own NatWest - but 17 years on, are banks safer from collapse? | [阅读全文](https://www.bbc.com/news/articles/cd0l4l4kpnko) |
-| King Charles gifted Rolls-Royce as coronation present | [阅读全文](https://www.bbc.com/news/articles/c249g14v1jyo) |
-| M*A*S*H actress Loretta Swit dies aged 87 | [阅读全文](https://www.bbc.com/news/articles/c20qzlxz1w0o) |
+| Temperatures rise for last day of record breaking spring | [阅读全文](https://www.bbc.com/weather/articles/cqxeqzwzw71o) |
+| School leavers party for weeks on midnight buses, and Norway says it's gone too far | [阅读全文](https://www.bbc.com/news/articles/cj3jz668y17o) |
+| North and South Korea are in an underground war - Kim Jong Un might now be winning | [阅读全文](https://www.bbc.com/news/articles/c98pnx35xj2o) |
+| Scouse superhero Speedo Mick: From rock bottom to seeing life story on stage | [阅读全文](https://www.bbc.com/news/articles/cwy7wky3vyyo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump praises Elon Musk for ‘colossal change’ as Doge adviser says farewell - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPWTJTSmY2OUNzRXFBZThSZUZsY090WkQtZ1VyNElkdWtJbXNSR2FXZ0tPVENISjdESE8tb2FKYmw3ZlVlTGJyR1NUblBfYXlDZlRhNzQ1aUlTRFNGRXNRWUg0WFJFdV80ZGFGNHp1dDFJbjVvSkZfZnp5U0R5ZmQwUXQ0UkhESXZVcm9mT2J2RlhoZw?oc=5) |
-| Supreme Court says Trump for now can revoke immigration parole for 530K migrants - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOblk4bjhONHIzS3FTS3EzdDAtZXo0cHpWdkYyR0V2bUw0X3ZfeXloMDhOVDhHc0RFZXhtbnpkcnVFWWRnWWV5OTZnbnM5T0lUR1kzSl84cFNUb0NpVGVRME1JWElMaGpuQUtwcWpQTmJfT2J2b0V3TWZ4ZXU4d3ZScmVYYnNSWWt4SHlN?oc=5) |
-| What's next for President Trump's tariffs after whiplash court rulings? - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNZEVYdG92S3JpaGI5bDRnNy1hYTRjZlUzRDE0aVB1SEI4aERseklVMnBLcUROWlBPZG5jQ0pWa0JNbUMtblk5a05xaTNRa0U0bjcxcVc2aFFINTkzd3c1U0NyakJjdTRxRDFGVUhuTTVsc2hvNnhZa1F3NWRZRXlKc25oUnRKTE41S1Izai1FaUx0YlZ3Z2EzakFscW9rMHFmY2xZZlhRONIBrAFBVV95cUxOUm0xTHBaY0gwdUpyX1JmRHN3UEFqOHF5aVZ5ZFJXUTF4Umk0dFcwZmQzR2tDRHBIN09QdjB0aEZlSjdKNm9sRmZkclRuSnRZMnZEUEdlSUNKTGFhOVB4TEVqVlR6dDZzNWxFb01xd2FkbWp1MGVzYnBlU21UYVphdjVaQW45ZHpqM3Jwemw2dXZfaXE0ZUFMbFdwbmNqcHRpa3ZlQmhoS1YwTnll?oc=5) |
+| A Golden Key and a Black Eye: Elon Musk Exits Washington - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1rV2I3LS1OWXc3dHhiclVVWHNfam40d041M2xObDRDYkRfOElQTlpuNEswQ09STDEzdGs0RjNqd1JXekJDRERWNzFKdVdLS1BCU1RQcERjSWdjaVY3MUhaS0cwZ3daQnliSnJScTVYR0IxU3pGV2c?oc=5) |
 | Why the U.S. Opened Its Doors to Chinese Students, and Why Trump Is Closing Them - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOU3BrUmNWNnY4Z0prdjk4NVltb2htaHpPdGJYdmlJaVNqZGxxd3pZRTl2RFJRSFpYcDJ2OWFPemdqbEJhQjlnT2tIT0FpOXdpUWswcHNicU5BbVI4ak5wM09CYnptQ0RROTd5d2hMYU9Ka0VUX1lCWk0xM3JzSnRJQ2JMQQ?oc=5) |
-| CDC contradicts RFK Jr. on COVID vaccine for kids - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE4tc2xqaTc4ekx5ckFab21xTmh5cTJwOUdUcHUxVWtNUUllM0JRWmpCMUw4SHdzS1JxeERXallncjZGYzBuS2w0ZXI4SHlna3FqcUdYMzQyTVZ1aHZIcF91aXJlM21feHVzdmF3MWFBRkNQU1FEaXc?oc=5) |
-| Trump nominates official with ties to antisemitic extremists to lead ethics agency - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNNnZabTE2bEVSeGNMSnJMeXpBNnE2OTRTeHhZaERoZE1mMXBCaENyRUFEX25GdEhtN2FTYVp3SUNQeXFzcV95cUVwSmxrRTlpai1UTzlnazk5cDZRck9UZWs3MlRoSi1OWWZMblhuTWxDbmtBWEhHMzdHSll4Tnh0YkZvN1l5RXM?oc=5) |
-| Trump administration orders enhanced vetting of all Harvard University-linked visa applicants - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxNdXlrdWg1Y3FOTlBWNFR4MHMzYWNOMzQtTGI0VTFFeXFRQWZiX1dJeFBZbXB3MV95eFVPWFJTSmdJQzhNMUgzSmt2M2ZacGdhSEstZlpmRU11YmQ0b3JVcnQ2NURDOXh0a0tIa2VwbXN3OW9DVmVjUWgyQ0ZMVENmTGtLT1dfVEh4WmhRZ29zS1JKdFBpenhRajBIeUg3Z2NEenNFamN0NW5SLURqM3JkbXBmXzVhUThlRDVwUE9B?oc=5) |
-| Trump Pledges to Double Tariffs on Foreign Steel to 50% - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQTFJfeTNudnFGaldpMHp0MHUwZjVFN2VDVVcwMHBmVmxIUTNPTTk2OUtaaUtSOEdRczZCeFNUekZ0OHJ3Y2RpUFFSWjhTLUkwV3VlLUNTUVpjekswVlhhekVPRUd2d2gxXzA4OUJZTHM4d0cyOWdIX1RTVzhZX3N1NjNBekk?oc=5) |
-| Homeland Security labels Maryland, several of its counties and cities, sanctuary jurisdictions - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQbXIxOGVZekJHRFV4b3dqeEFnMDB3Nm5FSjMwd0I1VXBucjVYcy1XMFNjT05UWVkzSjZTOGNhSGE3QTN4STU4bmFINlBXaDAxZmZzSHZzX0NYV0FpY2l6ZEt2ZXdSZ0lnMDNCSWVneWUwbV9MWnZwOTlHdmpsWTM0QWs3ZGVobmk5ei0yOWZKQi1mdTdUNWZaRDlJVjdIYVY5bFpkNGxZOEc2Y3VnXzBzNXpWNU42UUFNbFZ2ag?oc=5) |
-| PBS and Minnesota public TV station sue Trump White House - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNSHRhcTNFUm1oWXFQOVFFRVJJMFpGQk9mQUpyU0VCLVhMTllYR01iM2VDcFRZQUNLRU5BTENkWVZYQ2l4UFBEUGM4cXhIcmg4a0VORGlFMXkwTm9NWmNHeklUd3JPcHZDSTk2NU9TaHBVN21rUklINlU2TVVMTDlYbHJoWXQ3MkZ4UUtqNnJNalNzZmU1NTd5U0hfWllJVGtucjVkVg?oc=5) |
+| Dense smoke from Canadian wildfires is blowing into U.S. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPVWdSRTB6UEtaUkVYT2R4ZTY5X1Jyd0s2dllkcG5pTElzVmhWUVhMTUk2dS16Z1ZybGxZblpUTGhsTGtQVzN0SWEySklvX2s1SUxtZGd1NDZockQxc0FXWVBMVFZBYV9wYWlrdzZXd3BpbjVndjh5M0VBN2Z0NnAyQ2JFWW9hYmRUZTZoVDlXYXdNT0pkWXozeGZNVndoWGRXdmNN?oc=5) |
+| Pete Hegseth calls on Asia to boost military spending in face of ‘imminent’ threat from China - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxPdGQ4OVNmWF9wRVVtYUR0TVFIdWwtTF9yVDJFMklxRlVtOWVqYWhDWWtIcTJJMzRuMzItX1FqNGJ2d0tkV0laRzVBN2JBakZfbTNpQkRfNFBzRGlMMngyRFlhYVMwUzVhNlBPclJPeVRoOUtaRVVsSURObzhmTHhlaHRSbVFJVzNOMGZjT1dOQVo5R3FWUDVtRFlGYUR0aVJuM2p2RFE4UWRQWWxwNVFQNXU4SGNfdFA0NHF5aFIzS2s1Qy1GczBxRFdtb0hmZVhpT3M3d1REdXRVWl9FaFRlYmU3ZmJVRC1vWVlkazk4MndjQQ?oc=5) |
+| What's next for President Trump's tariffs after whiplash court rulings? - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNZEVYdG92S3JpaGI5bDRnNy1hYTRjZlUzRDE0aVB1SEI4aERseklVMnBLcUROWlBPZG5jQ0pWa0JNbUMtblk5a05xaTNRa0U0bjcxcVc2aFFINTkzd3c1U0NyakJjdTRxRDFGVUhuTTVsc2hvNnhZa1F3NWRZRXlKc25oUnRKTE41S1Izai1FaUx0YlZ3Z2EzakFscW9rMHFmY2xZZlhRONIBrAFBVV95cUxOUm0xTHBaY0gwdUpyX1JmRHN3UEFqOHF5aVZ5ZFJXUTF4Umk0dFcwZmQzR2tDRHBIN09QdjB0aEZlSjdKNm9sRmZkclRuSnRZMnZEUEdlSUNKTGFhOVB4TEVqVlR6dDZzNWxFb01xd2FkbWp1MGVzYnBlU21UYVphdjVaQW45ZHpqM3Jwemw2dXZfaXE0ZUFMbFdwbmNqcHRpa3ZlQmhoS1YwTnll?oc=5) |
+| CDC recommends parents talk to a doctor about getting COVID-19 shots for kids - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQU3VBblUxcDgxVWNjeXVCYjhtbUgwR2t3OWI4ZW9LSnQzLTF3YU5aeVcwNm5lQng0UDY4S05PSE5DUUp4amlxbDBvMFFCTTVYN2loUkpCX0s0aUJfRUs1Y2tpTEpnQmFWcnFsVHJRQzFxYW5IYi12ZXBVdmxoTHBXRG9KY3Fna0d4bndNRW4yNkVVUFlWUi1XQXNKbmtNaWNyMXlFVFJBYy1DTXRKQUE?oc=5) |
+| Trump says he plans to double steel, aluminum tariffs to 50% - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPS1ZLUnRGaUgtZkxpRTFkYUFpVTJ0TkpEX2VENk1sOWQtM0h5WjFpbnVGNEYybExfeURLYlNjd0U1YkNDMlhsLXZyZDROMUh3anpVbHp0NEVWM204UDh2Zk5hN0xnRUlQUFFNamtfcG9oTnV4OS01cnl6djZnanpjMWVsazJnUFhrd2gzOVlsVU52QQ?oc=5) |
+| Trump administration intensifies vetting for all visas linked to Harvard - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNeHB5REpHNUoyc0tUSDZsQy1lTjR0WjRPTXpES2dpZ3dVTXlJUEFwMUVMRkM1VVZnQzBibnJETkt4MGNlNEpsTlJQS09zV3FyclRvOTZjZ0NkOHJQb055Y3ZvYk9EaDBkS2RGQzZjdnRkMmdyVVRHZkt6a1F3akVUaDZyOUUyUGFGNWNqT29XMlZGVTd6Yk15WA?oc=5) |
+| Supreme Court says Trump for now can revoke immigration parole for 530K migrants - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOblk4bjhONHIzS3FTS3EzdDAtZXo0cHpWdkYyR0V2bUw0X3ZfeXloMDhOVDhHc0RFZXhtbnpkcnVFWWRnWWV5OTZnbnM5T0lUR1kzSl84cFNUb0NpVGVRME1JWElMaGpuQUtwcWpQTmJfT2J2b0V3TWZ4ZXU4d3ZScmVYYnNSWWt4SHlN?oc=5) |
+| Trump Says He Fired Kim Sajet, National Portrait Gallery Director - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPWUg2QkxYOGRxU0tBdUVYczFaenc1bTFpMTdRYlVQS0JtZWY5ZjllSjViNFZuMFVoc3Z0enNKcHpmRW8zdVJUTFNxcmJFWUZaQnl1UEhCbWZYR2c0Y0F4ZGcyaWl6WFFyOHk1YkxjY29sSVZrZ0lTamhqQXpYZUdyLWcxUUl1N0o1eTZ3VmNR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
