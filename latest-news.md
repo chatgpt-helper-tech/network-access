@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年05月31日 20:37:35（北京时间）**
+🕒 更新时间：**2025年06月01日 02:26:15（北京时间）**
 
 ---
 
@@ -8,31 +8,31 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump to double tariffs on steel imports | [阅读全文](https://www.bbc.com/news/articles/cy0k5x21y35o) |
-| Hegseth warns China poses 'imminent' threat to Taiwan | [阅读全文](https://www.bbc.com/news/articles/c071xm4x7g7o) |
+| UK steelmakers call Trump doubling tariffs 'another body blow' | [阅读全文](https://www.bbc.com/news/articles/c17rzvvzr0ko) |
+| Will Starmer's military review match the threats we're told we face? | [阅读全文](https://www.bbc.com/news/articles/c3e50g0vzl5o) |
+| Sharon Horgan says she only found confidence after Bad Sisters series two | [阅读全文](https://www.bbc.com/news/articles/cn5ykyz0enpo) |
+| Body found in search for girl missing in Thames | [阅读全文](https://www.bbc.com/news/articles/cwyng2jvx4vo) |
+| Desperate Housewives star Valerie Mahaffey dies aged 71 | [阅读全文](https://www.bbc.com/news/articles/cn4q23ge7xjo) |
 | ‘The mountain is coming!’: How a roaring glacier wiped out idyllic Swiss village | [阅读全文](https://www.bbc.co.uk/news/resources/idt-c7f929de-96a9-45e5-b1bb-31de82fce72d) |
-| Healey expects UK to spend 3% of GDP on defence by 2034 | [阅读全文](https://www.bbc.com/news/articles/c2kq9qxde3go) |
-| North and South Korea are in an underground war - Kim Jong Un might now be winning | [阅读全文](https://www.bbc.com/news/articles/c98pnx35xj2o) |
-| Teenager and two adults killed in M5 crash | [阅读全文](https://www.bbc.com/news/articles/czxy3n361pgo) |
-| Breakthrough cancer drug doubles survival in trial | [阅读全文](https://www.bbc.com/news/articles/ce82gderpl9o) |
 | School leavers party for weeks on midnight buses, and Norway says it's gone too far | [阅读全文](https://www.bbc.com/news/articles/cj3jz668y17o) |
-| Scouse superhero Speedo Mick: From rock bottom to seeing life story on stage | [阅读全文](https://www.bbc.com/news/articles/cwy7wky3vyyo) |
-| Astronauts in space for nine months didn't know if they would 'be able to make it back' | [阅读全文](https://www.bbc.com/news/articles/clygd1vl9yeo) |
+| How Bondi mass killer slipped through the cracks in Australia | [阅读全文](https://www.bbc.com/news/articles/cwyjxdwnp60o) |
+| PSG are on the brink of glory - can they make it? | [阅读全文](https://www.bbc.com/sport/football/articles/c3e5d9gyx04o) |
+| How controversial US-Israeli backed Gaza aid plan turned to chaos | [阅读全文](https://www.bbc.com/news/articles/cn4g0xmem2lo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump’s tariffs are headed for a constitutional showdown at the Supreme Court that could reshape presidential power for decades - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE9mdEZEQlN2akFDaXJGU1VXTXV4Nm9BQnV2QVp4NmMwMWhWNGl4bmN4ODlUNkZFcjQzbGZBOE0zNE9EY0NQWXUtZGlKVWk3TFdjbFU4VWgtUWx0ckVRREZxSEUzakpvdWlQUFA4?oc=5) |
-| Elon Musk's DOGE savings dwarfed by deficit-ballooning Trump bill - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPbTFURFpxbi1FX25uWkZDeXdIRlg5eVVvaHozWkJsYnlVQmVSbi1mZC1CTG9HTG41Z3hkQ0loMUJjRXRFYXJPWmRqelRGakpfQXozeDV5andPWERfT0xfMDZtRkphZjh5QUFPWHBmSzZNZUhGMGxka2E2NXFtYk1zQw?oc=5) |
-| Pentagon chief warns of imminent China threat, asks Asian allies to spend more on defence - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQclpwNFQ2YUF3QXV2MzhXWmdEbWpiVk95bzVqMzRUWElQbG0zRmh6eHhrYzNHZGFNZEozY216amlBQXZkM1AzVTUyUmlLQmRPQTNJVjRGS2Npa0JUZy1oUUMwT2p3T3NrZHBLUkxkdjF6YkdlVlFCTjl3UmI0TEZXUUctZDV3S3VYcDMzMnNuZmxPM0ZfRExjcTJvNVRaMU1DRDdiZTlyQ3JpN0czTFI3NVNENHZLLVllR0U2bEFRZXE?oc=5) |
-| Musk in Oval Office farewell brushes off NYT report on ketamine use - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE13YXpuVklOUkVGbVRnQmdPWmJzdHFqRDF0eHFYZDN4RnQwUV9NbGFfV1FaQzNDaXNjVkRGbFR6N2pJRUZDRlMzWko5cjI5RHZWNHZtSmtjcGxlOGhRNEpiQzlZMmE0ZTZCa2pDMG4xT29iWW9pa2hXb2R1T3Y?oc=5) |
-| Chinese students shaken by US visa crackdown look for Plan B - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1ZdlRxb1AwQ2RSSHRmaF9KaHdmalJINmNMR2hmeFVXMldMcmRjbS1fdGdCS1FwaEZsWGVMX1hxdDBaQ1doZHVEaGRCWlppclpLQ21GTW9GQ1U3dmVPOGRVamR3eU1Nc3I3N0dNZms4V0E?oc=5) |
-| Appeals court denies Trump administration's request to resume mass firings of federal employees - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxON0hNM2Qyd1d6d3Q3WmlXdmhaQ2FmT1pPbDY2cWIzd01aMWdkcm5mWU5GLW1WNHFGNjU2M1RPejB3WXpaR3gyaFVSMmxCUkhKS2ZEZkluX29zcVVNTnc3SHhZWk5aLXFBRnhtR3hjX2pQMFpGZVZBZURmMzFmbGs2bGl2bTEySnVBdkJLM0ZEZV9EMm5jRW5NdVlZYW5OTkZSczRpekpxZUpBTV9iTHVyNjFuUll1ekFN0gG-AUFVX3lxTFBUYkhkdnptQ2RqT1ZiaVh5LWpGSlI1WmR2Q091alByZjVHdjVqQ1pIWTlpdGJWdnNfYkdQWXVuMXBYOHltMFNYWmhBeVlMSjFlU2lLdThJbjEyeWJqR1hHc2hPZnB3UGpqRDQ5d1piTmZLWkRPTml1WERrYzE3dmtxQ2x5LWxaaFZ4YW1hWWd6V1RvOV85NHJyV0ZNU3VWMzlYUVZVWE1QWTd4cmJaZklDZGc3aXdCQnZ5N3QtSUE?oc=5) |
-| Trump Pledges to Double Tariffs on Foreign Steel and Aluminum to 50% - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQTFJfeTNudnFGaldpMHp0MHUwZjVFN2VDVVcwMHBmVmxIUTNPTTk2OUtaaUtSOEdRczZCeFNUekZ0OHJ3Y2RpUFFSWjhTLUkwV3VlLUNTUVpjekswVlhhekVPRUd2d2gxXzA4OUJZTHM4d0cyOWdIX1RTVzhZX3N1NjNBekk?oc=5) |
-| Supreme Court allows Trump administration to cancel legal status for half-million immigrants - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPTVgxcTlXWm55QUVkenFqd3BUNktRaEVob0lfd0tKd1JBR1pmcjBMMGxTYnJRUHVTSktFc0RwdWxFU2EyZ3NTYVFLZl81Z1VyR29MU1pXT01OekNvbWZwSUwwdzFjTmQ5SWdwVEJyVzU1QlVNcWpQbGRnMjZESUJjVlJkMkRjSkFtRHZHNUozYTNvdw?oc=5) |
-| Trump says he fired museum director as his budget targets Smithsonian - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQZVBUd1JoMnp0R2lOd1hRUWFaamZXVGk4WUxDREZTZnFBS0ZCckp2Qzk3SXFveUp4djkzdXJSc3ZwVlF4NjBuci1SOUN4SzFMbl91QThNZTBpNmg3ZUlnZHFTcWEycnZRYjMyZW1TUTRfMm5nTkxyTWEzNW1tTWtVZ21mYnlHSDNReW9idVBtTU1FdUd4Ykp3?oc=5) |
-| Trump’s move-fast-and-break-things tariff strategy collides with reality - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOcERCemVVbnM3b3ppUmZHdUVrUXlVTHhKOW5xbHVxWVBpZHltTE1iajNZdTdMYTRnbXc1eVRFQjBnYlNnWERtbVRjd2FwcVlfT3VTOTRqQTVQUkhRQzV6elROZnBUNE1FVHd5YzJFRUpnR01ReG1CZWxEUDZSU2REekxSUGlBOFhmLTVxeG1ESEFQeDJ4RXZ2VFRUbmlvWThpd2prbjFaeVBuRlA1aWhpX0lKbF82clJwZWRUUlBB?oc=5) |
+| Hamas responds to U.S. ceasefire proposal for Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPbDlTbVRiM0JvNl9sMkVvc204a3FEc1ZKcVVlWmNYamxvMzFETlNEblkyUG0tZHdhemozNGduQUtPNWpuaVdlT3VOemJ4VWRRUVU2TVQwTDh3dmxpNTByLWR6b2FpZHRUemo1azA3NHVaX214enF2RDRRMWowSGVicUV5MmhKajFKbkwweQ?oc=5) |
+| Hungry Palestinians in Gaza block and offload dozens of UN food trucks - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNa0tWRWhVZ2dGRUw3ZnQtVVpmbFVIbU0wZEdrNkwwdHpGRE5oZ0dhY2g0aFYzRXZIeWdmU244Rm5ZcGMxSVNWWnk2a3ZtMzNmY0hpNHRrQjVvWG10dk85QVNHaUphOUZ1aHBwU3g5NFptTmcwa1hHQURsd0ZtaHdIdjExdXl0dlhGQ3ZvZWRpS3liSmloNmp1bnA1OVk1RmpUMjl3eW1YWjI?oc=5) |
+| The rare minerals battle behind Rubio's ban on Chinese students - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNU0twY3V5TmhvdGZBaWxMamtRN2JfZXJpTndNMXdSSVcwY2tHUlA5TWljYmY5VUh2bnM1V0hhUlRnRXZzMWhEMFhFTmZ4dDBMUmkyZURRY1drRU9aUVVMQ1lYeV9OXzQ1Z2VFdU9uUlg4d0JhV05BU3MyZFptRk1weHFJMmtORlJK?oc=5) |
+| Pete Hegseth urges Asia to boost defence against China's 'imminent' threat to Taiwan - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9ZN1U4cThzcktOU0VCVkRFN2ZaRnphTndCdWJfel8zYWptLW5waUJsblZiSDg3TXVaZGRhNHpxbWotLVQxeWhJZWJ5VjNEdFhOMUozNUt5TXNUUQ?oc=5) |
+| Trump pardons drug kingpins even as he escalates U.S. drug war rhetoric - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNaHJLRjRpc1hwdzhtZmlCR1lWOXdFTGRpbHM3SFFmMkJ4LUROUVhENnRkcUxsMzZXamRtcXB5RTBXUVZ0VDB2VkYwbnA0bkxOTzlvWlIwelVOcDZqb19pZWlsMkZoeWdNR2NIdldCaTdnOFhSemQzRnNfbGh0OHUzNDlwWmdmV3FYQzZFUzd1WG1YWUxIeWJJUExJdmJyQlFxWmlXTVBnRWZHVmVpbXlz?oc=5) |
+| US court won't lift judge's block on Trump's government overhaul - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxObzhPQ2NtVEJUS0NPZ2M2OVZOZXVMb2NEUnNCYkZUOTdBOWJWdVllTlRGZnlkcEtnM0pIQlBUa0dJWlpuT3BRM1BfcWNidFdQTFN2SEV0MVRXLXpSaFBDR3JmemdKdkR6SXM4SUVuMjJncFpTbldtdHZWZDhYNm40MTNiVl9uakVrWC1IaUN1cWkxRGVvSVNlQ21TWmYtRDBXWGdXUDJn?oc=5) |
+| Trump gets key wins at Supreme Court on immigration, despite some misgivings - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQbHV2N2xDWWZYUFJUbDBHRWhxY1R5eWVUTVZtVFV0eFM4d05UNHp6TjN2R19XTzhncWNqVXNtZlpQYVZVWTZxSk82c1FsMWRLaEI0Zk1FMnZBbjVUVW9jS3hrbUJQQ2E0MEtJSWFFLWk5ak5Ydm8zRXlQOXZ2dnhxZ1BDbnJPVkJUZm9PelpvY0x0MWlPRWpSM21JRmFSbl94a0tuRjVlMXQ5NXVVWVZQUnV0cDA?oc=5) |
+| A growing number of New Orleans fugitives' friends and family arrested for aiding in jail escape - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOYkxsR3A5dGpNVE16Y0sydllUMzgzRy1PSXM4bTY4UkhVWUp2N2gzV1hlY3d2YmRsdzJiU1pqa2dmbnpPejlIVDNLMUJpRUFjTkw3UWV0S0FLM2pWRUxCWkZkSUc1T0dCYzdud3FnUHBmbzNmVEljLVFLczI3ZjNzNi1zOGVyTEFq?oc=5) |
+| EU 'prepared to impose countermeasures' after Trump doubles steel tariffs to 50% - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNdDhqMVlValRoaU9GN3RPMmdsZDB6QlA5c0Q0SE1zZU5qeGVpZW9namRqSUM4R2xiZEhTb1FGdER1Q1ZQdUFUeXZheHRLcldiVmU5SldaRkdRYnNxQ2xmdFR5cnJxU3BUSHdQUXpyODM4MDdkWHpvZHlFcDQzN2RtUTZjb25JcXhhT1g2dERGeDI0czDSAZgBQVVfeXFMUEQ0Q2N4NF9QX3pxbWNxVERxekxzRjJJazVoVGRzczdmX21ZOXV5X01rOEgxTnFwQzM4VnhMVXlkQ3JROXQwR29MOEw0X0dwOUJ3b2ktTGVoaHd0OWFjaGlBai1HX0VFODBKQ1NyenZ6bWdmQTJaRDkxejlMakdNNVBIYWRGM2NXYkZBRU51VjZHUEthOUxjZlQ?oc=5) |
+| Federal officials say Huntington Beach is a sanctuary jurisdiction; city officials call designation ‘serious mistake’ - KTLA | [阅读全文](https://news.google.com/rss/articles/CBMi4gFBVV95cUxNSFRCSlBLOHdoUVp2aC1VY2c4am1KbW1iUU1CXzI5anFCUTdQbkxHM1h2eGFLV0hlWC1jX0FXT21yRnhnN1FZcGdPTWEyaWUyTEFiTWlLWklpdnNteEJrYWtCamtOUVpyWi11OHRPblBOWVVBblJ4QWZxdmt0X0FyNTNXQjZ0a1loeUgtcFNzZXFGU0FJYllaUUNqbVROSUkxQTJWUzlGWmk2bFcwTzdEazRaMXpLb2tSODZpTm51ek9LYTRPWHhEb2RUOU02aW9aelEwd2FSVVhTdjZYd3BHemRn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
