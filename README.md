@@ -1,4 +1,4 @@
-# 🌐 2025 年中国实测可用 VPN推荐榜单｜翻墙工具 Top5，支持 ChatGPT、Netflix、YouTube
+# 🌐 2025 年中国实测可用 VPN推荐榜单｜翻墙工具，支持 ChatGPT、Netflix、YouTube
 
 欢迎访问 [ChatGPT 中文助手导航站](https://gptvpnhelper.com)出品的 VPN 实测推荐项目！  
 本项目致力于为中国大陆用户筛选真正可用、稳定、高速、安全的科学上网工具。
