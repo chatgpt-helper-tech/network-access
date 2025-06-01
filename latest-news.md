@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月01日 23:13:55（北京时间）**
+🕒 更新时间：**2025年06月01日 23:37:43（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Ukraine war live update: Drones 'emerged from trucks' before strikes on bombers during major attack in Russia - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFBiVzUxZDBxdUYxNGFhODZSM0FkV3JfZVdLR1JIbXBORG5CbFk2RWNMSHpSTERQZ3FLMG1iQWpRZ0xkTDdVQjBqUzhIaXAwQ3g0LVNmMw?oc=5) |
 | Gaza latest: 31 dead after Israeli forces attack near aid centre, says Hamas-run health ministry - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFA4S0xvc28tZFJ3RF9VLUtuYmtGQ3hLRmJSMjZuQld6Vm1RX04tNXo5UWtPYWZyT2VKUWdVdWFUa3l4bTIzdXNuR0FfY09CN1ZkTVVfSg?oc=5) |
-| Ukraine targets 4 Russian airfields in major drone attack, source says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQNUstNE42RnRiak00SlNTemFXbndtTndQU2tpbjY5eFBDVnktSnlmSWZCTDUtMzhMb1pxMEpwY1E0YXIzdm5sWXlRa2RXUzI1MkRTWWVZUTM3ZjZCN0NRa2VQZC1Ibnl4M0lnb0ZydnozMFQtaUVzMTRmLVdhaFZfeGFZb3ZqZVhoSEFxdmNjQWU1MEg1aWNBcWlHWEpXQVhrcGJEREV5aVptVC1CUldCOElJejR3T1nSAbwBQVVfeXFMTjVPNTUxb2hGeU9sd0RwWGtablk5X3V0UnZaN0FNNG9OSXNJRTdnRFVSclFsZEU3T2VNYW1DeGZ0T3B3LWZ4cDJVdkVDUGdodHVteEl5WnZXdlc4OHlVNG1NLTNwbzktWFlheG55VWNZZHd2Und4emJYNmxqOEZvdFZ4Z3FiRFdHV1VvQ0NVbkVPUHY0YUpxaG9qLUt1Rkt4NG1PSDBZNE1BRVdVSDNFaEcyNnRIVEZtN3pxalg?oc=5) |
 | Bridge blasts in Russian regions bordering Ukraine ahead of planned peace talks - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxObjBTcVFWUExTaWVweVRWQUN3eWs5dnpJTi1lZWU4ZkZQWWFmbHRKZmczcjZJaERBOGk2aVdqbTJlTnhTWTJzdkdMVm1SVXJ0OTB2QzRTdGFnWEVRZGxTUUYtQzBVOTlKbXEwQm52NmhoajN5S2Fqa004amNxV3cyVHluTFh2dmJCd284Q1NtbGlYRW15em1UX2xTNDJ6UzctY2dzSkltOEdpN2hFMl95QTZCaw?oc=5) |
 | China accuses Pete Hegseth of sowing division in Asia in speech ‘filled with provocations’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxNQ0I4aFQyU3RwRk05X2I2WWZ6QXBEUHR0WUIycExhN2R1QTNyUFJLT0VUanNEbmZBTUtoM2s5a0E1RVVTVWVWSkhqZzhWY211MVZhUmNxVmZ2VVQtdVk5YktES053d2RobU5wdTYtelZsVk9RN1VPSTZ3VkhDTVlfMzFGOTVwRGUxODQzVDNGZFVpZGFFWWpNLXVWRHlnTzItaE1iMmxYVFdfblQ5MkNyWFBhUUhiYUlkWlZubE9Ibm9IeDF1bmtrTUJpRzRVOXc?oc=5) |
 | Trump says he will withdraw nomination of Musk associate Jared Isaacman to lead NASA - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQX0pfemNvbVVYVzRiRkFNbDhVWC1uRV9ROVA3YWdSQkFRZDB1bDZma3BYZXBYZ2tydy1XTTN5M3c5N0VDSFZxNzNFUzZRb3lKeVM0RUIxc0MzNlh6SlNYeEIzN09YV1NnVTFIalQtcFVsMk1EMTFBVEw5aFpQWmh1V1YzVnQ?oc=5) |
