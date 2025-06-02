@@ -37,6 +37,6 @@ jobs:
             echo "✅ No changes to commit."
           else
             git commit -m "📰 auto: update news at $(date -u '+%Y-%m-%d %H:%M:%S') UTC"
-            git pull --rebase
+            git pull --rebase --autostash
             git push origin HEAD:${{ github.ref_name }}
           fi
