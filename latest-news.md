@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月03日 17:31:49（北京时间）**
+🕒 更新时间：**2025年06月03日 17:47:30（北京时间）**
 
 ---
 
@@ -11,10 +11,10 @@
 | Major new Madeleine McCann search under way in Portugal | [阅读全文](https://www.bbc.com/news/articles/cy4k1vg34wlo) |
 | 'The abuse was almost daily' - grooming survivors share their stories | [阅读全文](https://www.bbc.com/news/articles/c62n72mj113o) |
 | UK threatens to sue Roman Abramovich over Chelsea sale | [阅读全文](https://www.bbc.com/news/articles/cvgn45d72eyo) |
-| Thames Water's future in doubt after investor pulls out | [阅读全文](https://www.bbc.com/news/articles/c93leknykvyo) |
 | Lady Gaga and Pulp rumoured for surprise Glastonbury sets as full line-up revealed | [阅读全文](https://www.bbc.com/news/articles/cx2jd8e6918o) |
+| Thames Water's future in doubt after investor pulls out | [阅读全文](https://www.bbc.com/news/articles/c93leknykvyo) |
 | Mother of jailed British Egyptian activist vows to continue hunger strike despite risk of death | [阅读全文](https://www.bbc.com/news/articles/cwyj35pr2z6o) |
-| Trump tariffs will hurt global growth, OECD warns | [阅读全文](https://www.bbc.com/news/articles/cq69j753egeo) |
+| North Face and Cartier hit by cyber attacks | [阅读全文](https://www.bbc.com/news/articles/c39x3jpv8lyo) |
 | Toxic mushroom cook tells murder trial wild fungi have 'more flavour' | [阅读全文](https://www.bbc.com/news/articles/ce82lj7g1g7o) |
 | King of the Hill and Parks and Rec actor shot dead | [阅读全文](https://www.bbc.com/news/articles/c3rp3n54d98o) |
 | How Ukraine carried out daring 'Spider Web' attack on Russian bombers | [阅读全文](https://www.bbc.com/news/articles/cq69qnvj6nlo) |
@@ -31,7 +31,7 @@
 | FEMA staff baffled after head said he was unaware of US hurricane season, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxNLXh2NXgxaU9CbkNfX2JXUHd0elljM3B6bkRSd2VZVHJoRURfM3VhTk9GYmFzMHdTX3JmR0hjNHhLNG9hcEtuRlQ3SVdoRGRWb3hJR2F0azlwZU5IaG0zXzRBR1VNbWRHSHJJVUp2Uno1VnB2NUJ0Nm55ZjVCaWpXcGpKSVJnbzFTVzhkT015enpHNlRjYUNqdU1sdkNaTUNyblB0QWV6TDRveWxEYy1pT2ZpOFVwVk1CUmNCODFQSFg?oc=5) |
 | Democrat announces run against Ernst after her 'We're all going to die' comments - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPOEMxOEY3SjFITDVzMFdCLVRyaUFmMlJOVzJkVHhKMklWWTJfdkswbGdCQktEWUxybWtnVmY5X0hBN3prdWRNNm5Nd3JpQlp2NkJDRGNRYkk2YVRYVTFTeUwxcTNrQlE0Rjd1YmRZamFNdzRaWXd4Zi1aT293TmcwZDNGejZCbDZ4NzlCVTNOTUNMU2NHMlR1ODlzWF83TkHSAaQBQVVfeXFMTlJKTVk1Y0dLTzRtMVptTzNDdGg1MjBBYjFJVDJrOV9lVkRTSTh2bDBUbUhSc1owVG1hWVZha0Z5dFlVTmF2RHZJY2gxTnQyc0Y3a045eWNjQXExTGdkakptemV5QllxLUhyaGdOREs5ZGNQajFZckFFMk1VamxZN1MyUUEyZ2RBNlY1QklhQmNLSUNfV05zeThTMG9HekdCQWI1NlY?oc=5) |
 | Harvard Asks For Summary Judgment in Funding Case, Says White House Pushed Cuts Despite Agency Objections - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5GMml2VTkzb2ZFYXZ0WW5hVWc4dmpldEh1UkFaRFplZHVOV1JEdGZ6OWZaa0s0T0ctUHItVWhZdXB0cF9XSUZVQUF6UUhXbjZxNHBPWXAzX1IxdmQ5U3VfdkdYOXJmNUxnRjFtTkN1LTMwbG04dHZCUFdrVnlPVzA?oc=5) |
-| Trump appears to undercut US proposal to Iran, declaring he won't allow any uranium enrichment - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPX0pyR2tuUFJqRGhnY0lVcjloc2dpSzVsRHExVm9CMG13dFNIT0JYMEw2UTdBNk5zTmFuRDRLblNKakFqN2RkMDVIbTZLUFg0c0ljY1lJcFBzVEk0MVp5M1duMi1zUXpWQU81Z1VQUHh4VXBoMUdzSmhGdVBxRF80TXp2LV9jR1l3M1RrZk1zY3lSdnlDempEQg?oc=5) |
+| Trump claims U.S. won't let Iran enrich uranium under nuclear deal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE53VWFiSThGTTRxZnMzWnJKOTAydTVmemVNWWlXTDFkVWZ2NUJFdjJkM1lPcFhkOVRuLTZ4cWk0anRxencxbkNDRi1xUlRqeEJudHEzU05RZUVZa1NlMllJdlo5bnhVcXlqLVJ4aUdQMTFYUTlQNVI2OVBB?oc=5) |
 | ICE arrest of Massachusetts high school student sends shock waves through town - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQQ2Q3b3R4R1ZUeVFSM21ZZVNtU19GQ3J3NXZMS2VlZUJTWW1yTUQyR2lYNWh3T0RzS0ZFQXBWNXZtNXlnaWlCeVNXS2pESTVodjNhWHFZOEhvdVg4UHVDYU5fdVRQUEYtYVlsS2hIUlRtbjFhM29lOUpmcFM4STAwcTFfWDJERGZjdDFwTjdYTUpxVXRYTDIybDNlZHdub083TGppc1pn0gFWQVVfeXFMTUgzWU5iM0dRS3lMVVV3VnpBUGltZlcwS0p6cWEtUnYyTDJ0YjdRTEJIa0lsLXd4Q2FSblhkTWcyMW52ejZtRmNNaGt1aXNnbFBnTlRYSnc?oc=5) |
 
 ---
