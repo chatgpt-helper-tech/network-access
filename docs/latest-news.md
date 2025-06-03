@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月04日 06:11:11（北京时间）**
+🕒 更新时间：**2025年06月04日 06:36:41（北京时间）**
 
 ---
 
@@ -17,22 +17,22 @@
 | Musk calls Trump's tax bill a 'disgusting abomination' | [阅读全文](https://www.bbc.com/news/articles/c0j76djzgpvo) |
 | Brits could face death over Bali 'Angel Delight' drugs plot | [阅读全文](https://www.bbc.com/news/articles/cewd705yy74o) |
 | South Korean opposition wins presidency after months of political chaos | [阅读全文](https://www.bbc.com/news/articles/c861yyqxg4do) |
-| Lower energy costs make retirement less expensive | [阅读全文](https://www.bbc.com/news/articles/cj42022gqzwo) |
+| Dive-bombing buzzard forces school to close playground | [阅读全文](https://www.bbc.com/news/videos/c0r1x4j0lpdo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Family of Boulder suspect arrested by immigration officers - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFB1RVZ0OHVmWHZncmw4cllaUjdBLXd4eUU2SFMyQU0tR0NsT2UxUm1JalB0R3oyTzNsMm5fbUJ4NE9vSENJbXZVX3pIbUd1UUlvZUE4NTVPTkFQQdIBX0FVX3lxTFBJeUt1MURKb1p5WGR6R1RaOXBXRFMxUFdZRXhLQnotT1ppQlpqSUk0V21nV3BDLXprODZmWTJVbVNlbWhoaTBjTTRubTFkNk5kSjFKNmxhOW5heTZSTzNZ?oc=5) |
+| Family of Boulder attack suspect are being taken into ICE custody - Colorado Public Radio | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPWW5GT1RLdnNScHRIdDdReWFSSW5Ia3BnT0VSaWRHMnJFQ0pZa3J1MUxROFlFWl90UjlfUlEyNjBlTjRoUnB6ajBLNW5vVEk1eWVCUzlGVGlTX1IzLUlZSmRhMzlaUWRVMFJvajE1a0xhWDM3UW1ncFNsVHBDdXdkNGZ3?oc=5) |
 | Elon Musk attacks Trump's funding bill: 'Disgusting abomination' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNdVY0ZFliRndRZm1XZEt5Y3lOQlNQWnhiSTNFU1VxbDBmX3RCczlOVUxnUXk2ZnhjbWQ4UGdzN2Z0bVFzWFEzWThsekVIZjdEWm5OZ0lSa3JTMmxJSlJjbnFVTW50bFRHOWFaMUFoRTB6RDJmNUhVZWs3NDdHZERIMkRBOWw2N1pfa2h3S3FmN2xQd0VXc0ROZGswWjJvTFhRMHpoQTU3VS1xZ9IBrwFBVV95cUxOM2pOZlpJUVJrY1pmS1dlN2FrQ0V5c2tibC1ERk9RbmNYMkgxLWVxaTl6LWRLNVFld2dHdG9GSWQwVUZCM0pOVmQ3OVByNTRSU3RwVzFYSXBUVHFZUVJvWUFNaFFZaEZTRGh2VlRTYTZEUDRLSmlwN3Q0UXRRNDM0WE1nNVhFNEdiZnRyUk9DaEVobXN1YUtUOVZkNGc2RTFubHJRYzdVYkdMUWFNR1ZZ?oc=5) |
 | Trump asks Congress to wipe out funding for public broadcasting - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPUVA5QzV0X3prNmJEaVozdXAtbVViRzd5Vl85Tld2S3J3eTFudllPUTF1OVAtbUZNUmI0dUR3dWRnOU1nREppN2dkekdzQUduMjVxc2ZweEFva0s2T2U0d3oxTlBDX0o1LW5henUyZWt1bWRvTEo1ZDBVa3NxNDhjRXhoZmNGWHFKUW5tejlSQkl3V2M?oc=5) |
 | Ukraine hits bridge linking Crimea to Russia with underwater explosives - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPQmp4aXJGcVpuZTNpY0V1UXJFa2U1c2Z5SFpmdE1PN0taT3BmVmQ1VlozcXR4THppeXFTQlJqQUdWNTBNdlpHZDl4b3VRa3ZCUDJ1OXg4M1NBRlE1OHl4eVdFNDV6WHlma1N1bUYzNk1qbEZKdzEwMkdVSlRZdjBVWnhfZVRSdVBIWmJQcV9YcmVlNWJHbjgyWFpjbEhFRG5CUjQ4S1VMcWd4SENDamhvdjEzU2pOcTVK?oc=5) |
 | U.S. Charges 2 Chinese Students With Smuggling Fungus - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPQnl3VFNHYTRDYnRHY1R6TGVUc055enJoSDUyUHV1aUhDVTY4VjNnSHJYRGpLWHQ4SS1uODYzTUE3UUVRc2R6elU4SElxU3A4bFhseEZadGxRZE9haW5xY1l5ZXNGaHJ1UWdaR3doMHB4R0FTSXlOckdJdU56T20xTA?oc=5) |
-| Satellite imagery shows Ukraine attack destroyed and damaged Russian bombers - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxOREZENXJVYW9UTlJmcDhmYnlZOXZieTJialJfdDZUdDZrZWNJM0xJaENzN2s5LVFWNXhPSlZCcVJ2aE4tZ3RxZ0RIcHNuSkYyUFNOcUF3Q3owTGtCRU1BQ1FPR3VnLVQycVgyS0RYdmRBZ2c1V1VtUjZFbHdhMU9pblNzMS1sOWdRN1U0ZFo5dUlaNExrSjBiYTlCemhMd2ZpajIzNU1tYWIxUHZyNUJWczNxdXZ4V2d3RVA3Q1U3S21kOHdZdjYwOFdVaUh6QU12?oc=5) |
+| Megabill tax negotiations heating up - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxNV0toa1FsUVVaN2FPUEV1NXFnQjQyX002eU1nSlNINjdxZG1SMWRDQ3RzUTdSSDM4Z25hNldaejVERjF5bEVYZHBqVU1hVnZfRnBYTUxvbUhvTHdJLVRUR2FQZEJoZW9jT2hyRlU1TTJxVVB4aTVKT1hkR1VCaGt5bmdyLU5COElqWnVQT21vaEV4LUE4QU1sOFpMTy1jS3BiMWpldWxPY2JVUnNvU29zTFh4OEhDUFJZR0FXMGpZcmdTTHM?oc=5) |
 | Florida Board of Governors rejects Santa Ono as University of Florida president - Gainesville Sun | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxOOXJEcXphN2pfZ0hTbzhpUTVqd21YUXpxUWZPTmpxcXBTclhMMHNSeWJNVUlGWFMzWUhabklGVndTTlMwMUpOTjhJV1F6eDJUeFdUNElwRTB1TDdqejlWUXVHT0R6YjAzaFFkVzFBek9RSWRZMUhVenBFcXhValZuRl9HdGVKcnpOV1N0QzBBdmQydVVWaXNDWWxMTVBNZy1RT0xaSHdncUVkbE9NWUEtZ2JCdnFiNWdnNlU5bDQyVThSanNJWDBmZmJ1eTB0ZXNENmRHaXdzNlhyUHI5?oc=5) |
-| Marjorie Taylor Greene criticized for not reading Trump’s ‘big, beautiful’ bill - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPTmRrbDM0UDdpRUg2SW00SURhRHZmczh1NUlTVC00TzM0bXJycjBYNEdObUhCN2hyUU95eGhLZUtnSVFxa21yOWxZSFliaWRtbXY0R0pqQlMyVHQ3a0h4TUZQNW9SZ2oyV25zLU1hZ1ZNRUlNN0RMSGk0NmxRTXFONHhCLVZpNEUwRUt5bkxR?oc=5) |
-| Senate Republicans plan megabill meeting - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOeVMzN3IwVVotbW5TVkRmNHZEVDRDcEFLd0NZSEc0TlVHZXk2QVphRE1VOE45bTY4cUJZQ09VWFprSnpjbFpOb1VXamQ0aXZyXzB2anpuSkFMb0cxeUFMTlZVd0JheUwwX3dpbFN4dHluaTN4a1ctckI2dGd0Qk9jbjM2cVVDbkN2NElVOUxJcHBNcVgtdkhTN1g1YWlUT0t4dGsxZDR1TF8xQ0E?oc=5) |
-| Defendant accused of faking Trump death threats so witness would be deported - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQcFJRVzlDTi1HN2k0ZXI2cUdWOGpPQjZEV0MwX2l6UGdKN0lOOVB4YmhSZnNVYzE4eHJQRjdqZ3NDRlJtWkQtMHAxMmFKYUR5dVk3UEVGTXFhRDFQaDdGel9TZFZLdVh5ejVOTFF2UEZmN2xqbUxxbmZhcHZkR3RlVTFpTXdycHItRERUM0hHSmVJSWZ4bHB2cnNERzNhQ3lFc2N5R28wc09kNWM?oc=5) |
+| Man admits to attempting to frame migrant accused of threatening Trump, prosecutors say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOZGJ2b184NEg1OVpzM0FrQ2Z5dVoyVWFlc0RQZjhXelNNaDJYNTVlalo5SFVCZUotS2RXVUpZMGV2TUN5NlRfVHZMenhoaGt2Yjc2VWhwbVBnOGstXzJPZkhTRFVUeWxxUWVtNlYtSGxQaVFmcHBjSUcydlhCTnhRRGxKa2RTelXSAYwBQVVfeXFMTW9yYmZQVjdqRklkY1Z2SThqMU9xR1RTOG9ZT2g3aHhnd0l2X1FuVEh5NUhuRFdUNHdoOTREZVN0REdNVVVkcG9DbVo4WFMwbW9iX3o0aTNHU09VVDZqN3dSWGNpaEhmb2d1cHZ0RjRzdjJJZXIzc2JpMnUySTJnMVNmYjc1RThkSXlJRlU?oc=5) |
+| Hegseth orders the name of gay rights activist Harvey Milk scrubbed from Navy ship - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOZ3J1cHl4Ym5uMFlDcWhFOUhObkpoRFlWRzVHeFIxTFV3RnR2Uk1YcTFXOHg1YzNkbmIxc29zY2ZkVzZNWi1mbFNiQ1ZGTDdoZ1p3blh1MFBIWkh0a1ZUUEhseERBbFRNQlF3MkFtNTJaVnBELTJlRXFKLXI2bXNHd1dPSGRSeXlYeGJWWkUyd1FVVDZyZkw3WDhzV3ZhZEllODAw?oc=5) |
+| White House addresses FEMA acting director's 'jokes' about hurricane season - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPd0Vxci10QlhNMGtjVjhJc0tyQlhfT1FWamJBekhuX01JMjNKRGd3V3ZVWjhQeUI0MXhNT05PQTZVNFdZQ2V5eUU1V1NNZjRnaXNDUzJWSWllNjc3RWFORWFGM29EUGt3dnBMR09kX0FLTGJ4Y1VpTE1IM3RxMU52MDJSMXFfbkRwLXlybnU4NFd2cDJZLXRDQzJUaHgtYW54V1ZOa3hudlFLNXFzd2JUbNIBtgFBVV95cUxPU2dMNzBVemtNeklVbjlwZ0JwNzl3THY2THVkQlZQaGJJbUJmWHJNOGdWNGsySXA1T21vQUNOaHhCSi1PczBnbmJYd195cmV1LV94d3c3TzYwcXRqZ3QwbjFnTjVTT3E1R0dmUmprY2tFcGhvSzhWQU43THNYQmJOamR6amhOY0x3ZFY5T2I0NHByc2lMQVhGbklTRnltOWFCRnZ6VldTVmx5YlNRZ1BNeXdnR3V1Zw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
