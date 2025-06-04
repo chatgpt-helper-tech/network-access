@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月05日 00:43:22（北京时间）**
+🕒 更新时间：**2025年06月05日 01:00:43（北京时间）**
 
 ---
 
@@ -9,6 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Winter fuel payments to be reinstated this year as PM challenged over U-turn | [阅读全文](https://www.bbc.com/news/articles/czr8e5g5vp8o) |
+| Act now to save lives in Gaza, ICRC head urges world leaders | [阅读全文](https://www.bbc.com/news/videos/c62v52z73vdo) |
 | Madeleine McCann search goes on but is it 18 years too late? | [阅读全文](https://www.bbc.com/news/articles/c20qdwxq394o) |
 | Eleven die in crush outside cricket stadium in Indian city of Bengaluru | [阅读全文](https://www.bbc.com/news/articles/cdr5mrrj1ego) |
 | Body found in search for stag party Scot missing in Portugal | [阅读全文](https://www.bbc.com/news/articles/ce9vm9z3579o) |
@@ -17,22 +18,21 @@
 | Police probe hospital deaths as BBC sees documents suggesting harm to patients | [阅读全文](https://www.bbc.com/news/articles/cev404npy4po) |
 | A-ha star Morten Harket diagnosed with Parkinson's | [阅读全文](https://www.bbc.com/news/articles/c3v56v0wry5o) |
 | 200-year-old condom with explicit print displayed in Amsterdam | [阅读全文](https://www.bbc.com/news/articles/c1de271qg4yo) |
-| Man accused of murdering 14-year-old in Hainault wanted to kill many, court hears | [阅读全文](https://www.bbc.com/news/articles/cp3nlggxzkko) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| GOP bill for Trump's agenda would add $2.4 trillion to the debt over 10 years, budget office says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNbWZWN1NzamV4OXgxTm9KOURGRWhJUnFVdTkzUnpNYWItV0ljT0NoM0VSZXNpZXo2am56WEotbHgyaWliV1ZOd2QwbFBpX3g4OTU2MVZWRnEtOHpkd0dneXpXVU1yNWNlVTI1UHpiYU5IRC1xeDR2RE93RmJzNkJNcGFhQmgxMWtQdWpxT1BmT04yVTVxU0lYRFN5dW50OWdqLXd3NXFIRVhpR3RISlFYQXI2ek9ad9IBVkFVX3lxTE5QNlZIWFExX2ZIUGtaWFlfVjktZkh4djJMbEFyU3dDM2FpQnA4TTVXZ19USlVXRkZpV2U2VHlQY3VIMk14bVR0bzRDeERNSzUwcXpUdnpB?oc=5) |
+| Elon Musk Keeps on Dissing Trump in Flurry of New Posts - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNYXJVdlF2WUhKdnE1V0o1UjVnZFJpVXN6Q3NVRVI3ekQ5T2dDSVdtYXhLNktCZkRWTG9CYVAxS1VYYVFVdi03Y1g3dWVxR1dpT3lENWtudjRHUkliVUZGSUsxbXhYb3p0b01vNFdkRW1qVW5PSjJaU0FHbVJvRXFfbEhyS1Q4Sl85RWNINVl1OA?oc=5) |
+| UK temporarily spared from Donald Trump's 50% steel tariffs - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBwOGc3cXVCNzhrV1RFcWkyV2J5d2t1ZHBqVU9tR3hzRnhFUDBhdnVaUVAtM1MtQktzQVRrdVBwdk9PdnU3bnNieXV5Tmh0TjVacFREYmJreDJfZ9IBX0FVX3lxTE5LT3hOU3k2T21qakQzRkxyYm5PMk9IOVE2Vmt2WVJ6S1lxVmFadzdyQmlKd1F3TWxiMnRkVkRUSWk0VnphdER1Nkd6NndvbHJVLVVZeUxCelFpcW9wajYw?oc=5) |
 | Trump envoy says risk levels 'going way up' after Ukraine struck Russian bombers - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxNdUNicUxvRWhqTnZXSlVqaDRmQjc4ME1IRkk5djN6TkF2LUZpZU84a2hfVXlUTkRzU19tWjdwQW9rUU1wTGZFTDh3R0JsdHNVQ1lyRmpLQWpxVTBWRjNySWpFMVJCVVpWNXktZmxZV1VEbFJpcWtHcDhLWjJSQzNMNVU3RzZJZ0JZX1RPdC1rc24zcEl6RnRpRjUtTGR0X2ZLTVFxbTQwczBmT2ltV2MtMzRJc2tFQk5aOUI1NzNIRmlid0hsdkVfWmhxTDZnX2M2RVVxd3VHVWE?oc=5) |
-| Elon Musk is on a national debt crusade after slamming Trump's spending bill - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOLU1HUGNLdFBWTDl2Sm1HVzI2R0VGd2dOS2RBSTBsakVuUVMtYWRYUUdoYUgwNVFoZEVCc3dXMjdlRWxGMFpZcEJkMlg2WHNkM09KOXlWaWRLajZMMnBsZ3g1dVFvMU5ycDRLNVpPYkQ2NlRaalNienM0cGRySmJoLUlVNVJ4c3h2Uy1z?oc=5) |
+| Trump Live Updates: Latest News on Tariffs, Musk and More - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE1IRnFuWGJHQUdnbW9ZSFQwYW8zd2RQME1MR2xiZmZrZ2RqYXV2Q25FRkk4VzJVcFpFcG9Oak5zUDhQRWlLUU9Idmtja2xSNGo5WFloY213NGNzQVlvMFZ1T2s4NA?oc=5) |
 | Boulder attack renews safety concerns for US Jewish communities - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE81aEVrRE56eFl4azczTnI3d3ROTnltYWtPa0gxT3gxS1JFci1fMEFrQ0lXMkgxdjc3aTJ4aWVIZ0ZNMkRlNlRFVEJTSlVIY0ZpOGRaUkNHbUdnQdIBX0FVX3lxTE13LUwxb2JKWDZzdFBuT2xTUlZPdGhQel8zLW1faFlHSGhIa2s4SURDeEZRY3pSd2VsUHRJYnNQWXJUYWFCY3M0TzFlN1AweWhDb2FZOEVGd2xCYUUzSnFF?oc=5) |
-| Trump’s 50% tariffs on foreign steel and aluminum come into effect - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNSGd5LTV6OTVhOV9RUUFSTW5yQk1Sa0p0YUpmYWFueEgzNUhndGg0aW52N0VxaXhud2taa3pmR0ozaEE0WUl5UFI0R0FneUN2NDVwdjdpS3A0QWc3bElEY19hZmFzazlZZGt3aXM3OEJleGh2ejZ5cFZHQnJ2aEJiaVdn?oc=5) |
-| Manhunt underway for father after 3 girls found dead in Washington state - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOemtPeXBld2NrcGI2Mk5GZjR6cnBaR2ktTndNTGJxRXBoZkFyZmhvQ0o0MUZUNGhkMlloRFdMYXJZSnRkSGgxR2F4dGZqaEdEQVNBN1RDenlxcmdHU29RR1oyNmZmMVVoNVdOdzc4MWhKNUJ1N2JVZ0h6dmlmM2s0eDVlSEdWTTlxOEV0dG4yZEVZWHZzdEVUMWRBN01jUQ?oc=5) |
-| Santa Ono falls at final hurdle to become UF President - Florida Politics | [阅读全文](https://news.google.com/rss/articles/CBMiaEFVX3lxTE9rWGJLbUZxOV92SFdRcHpSdmtFQXRLUVI1UFAzeDFnUVlvQVAzMHRUOC1iRWJjU0I0bm1kNl9JdVBrMlp4ZVlWRHNkaTVJcGZDSzgya1BlN0hlQ3FXdXlhbGw2WHcyQ2Ey?oc=5) |
-| ‘A ton of tradeoffs’: Thune acts fast to cut deals and move Trump’s megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPbDRHS2pMUXJSSUpZeEllNUs1bmdNMHJheUZ3cElPU2U1cFVZRjRiLTY3SWRua1pSZ3luX3A1czZqcnl0czZGV1dtUXdHbVY2M1o3ZzdWQU9ENHI3S2UxWTlHVk5VU3FyYTdSUE1rUXRNRG5uVk5qMVlaSDZjVU9xa3V2M3Y3aXNMdXJxMks3TkhkM1k?oc=5) |
+| How DOGE's push to amass data could hurt the reliability of future U.S. statistics - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPbG5pa2FJWGpCbEhMZGNldENBN2hLZ0xodTRuczF1S0dfU0EwZjhjUndDRDFGX2tuNk5KU3FPZExwa2wxSDJ3MjZHZkEzSzA2aUh0SkhZalpfRjhCN1JFM3E1YWV0VTE1QXBPYTl0b3Zob0dwelNsZXBNeWpLSzc4NXk1ajdpanV6WTRVajU0SzdVQQ?oc=5) |
 | Man allegedly linked to Palm Springs bombing arrested at JFK airport - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQdlpfWENUdnd1WFlTZ3h3Snd6Q3Ywc1JSR3pSZkR5UTlQRjdmdXZ0a21CSElxNjNlZ0M2V1hJWUhwT056N0dOeHQxODIwVjh6ZXB3TjgzRnN4R2FIWURIb3NwTGllWGNIUGhSUUhDc3p4MnRSS1d5YlBJeUQ5dUJvTVg5cVFiMWxnbTMw?oc=5) |
-| Trump Says China’s Xi Is ‘Extremely Hard to Make a Deal With’ - Yahoo Finance | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQOEFZMGpIaUxqUGVESGFxOUJsRzJMNGxDSWxha2VYUEV1MXRfUFZjTDdjdG5teTYwXzEtQnFFeEg1VGJ6RnVURmdPa0ljRTVHZUlTN2pBb1NKUFVNWGk5YWRmYmlBcU9BYXhMWVpzQnNjMkZUMy11aEVGNjZSdTl2WQ?oc=5) |
+| Tom Girardi, former high-profile lawyer, sentenced to 7 years for fraud - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxONVJWek4wTGVuaWR5d28tYlNxX2hnWW4wbklGa2JyMVBYZGlRNUtvVmJFX3dDcGdERXB6SDhrRG15NW9zOC1JWDdXbUk3S3lFMWxTMnBjbDhDLWc1ODg5T0s4Ml9xUmwzcXBULVR5NzlQVm4xUjBuR0lKLUF2cVdMTUlENXVlSVVKeVVFbGhvMnY?oc=5) |
+| Santa Ono rejected for University of Florida presidency amid conservative backlash - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNU2huVWU5TmpOZlljTzl6NHpLLUVQWld5OEt2N1JuQWJ3QTRwLVp0S2xtczZvTnhDbl9qdFJoMkd6R1lEQWVPajRCTmVYeGVxYTBJdHRfUElFbVVWNEV2YXA3TnFGQTRXdF85V2pBaXJfREpmWlBPSThIRVpLSGRGcGd2c0xLeF9zU1ZwY2YtRXJqZjh5UlNRTml4QWd3RXlJbU9xS3ZETdIBrAFBVV95cUxPeFJGMlZraDNFUXR0Tk9nQXlZTGJuVUtOSHU4S3VXZW44SUtMbHM2Tkh2SXItSHFZdDZlZ3NkZGhTWjU0VEZrcUVmaktqU1ZXMEpINlNaVzZvanRzaVlJbU5DLXhJRXRRMkFnYkJpVTcxMk43ZGdXbXNEUW5fZlB3aDI2amZxaGJ4WTNqdHBoTmNrZlpUSzJSeVNfRC1aajBLcTM2aXo2T29LQzc0?oc=5) |
+| Trump administration strips federal protections for emergency abortion providers - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9wRGdwRjhsQ0tJc204a2hETkxoaERQLV9tXzRfbDhHa3lURVU2QmlQMXRUVVBiUGNlUmlvRjFtOHlsZXlhSWRrMEh6WXBFR3JPeHVvZU9BbmU0ZlFlbGIxWTVYcHJ5VTJzRkNNNGtsVFNxaW5qLUZueEtkWWVwZE0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
