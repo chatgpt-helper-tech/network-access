@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月05日 05:42:07（北京时间）**
+🕒 更新时间：**2025年06月05日 06:00:08（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | 200-year-old condom found 'in mint condition', says Amsterdam museum | [阅读全文](https://www.bbc.com/news/articles/c1de271qg4yo) |
 | Diggers brought in to help latest Madeleine McCann search in Portugal | [阅读全文](https://www.bbc.com/news/articles/c87jwn48jp4o) |
 | Winter fuel payments to be reinstated this year as PM challenged over U-turn | [阅读全文](https://www.bbc.com/news/articles/czr8e5g5vp8o) |
-| Family 'devastated' after body found in search for missing Scot | [阅读全文](https://www.bbc.com/news/articles/ce9vm9z3579o) |
+| Scammers steal £47m from HMRC by accessing 100,000 taxpayers' accounts | [阅读全文](https://www.bbc.com/news/articles/cvgnz3r2m7eo) |
 
 ## 📰 Google News
 
@@ -29,10 +29,10 @@
 | CBP, ICE, and USCIS to Ramp Up Crackdown on Visa Overstays Following Boulder Terrorist Attack - USCIS (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxOVnhkaTNyeHpIZllxdktYZHRYN2ROcmtQN280R2NZYTNwcC14SkREVGNRWGVJTi1ycEZvQ3hWcnV3Vll3ZHNmRVFyN0c2UHJCLWRrMTlQa19kN1hMd3VhdEFSQVdIdVB4SDljVlFZcURpTm9hZF85VXJtRWEtXzB2Tl8wT3VpVERUZTlDYjVUYUsyWUdVcHdKZGNmTGllZnIxUTl0S1ctZ2k3RlpUd09oMWJwazhtbVVxT3dZQ01uQzlLNjFLOFAzREtKT25xM0VLa0E?oc=5) |
 | Former Biden White House press secretary Karine Jean-Pierre says she is leaving the Democratic Party - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxORWs5RzJIYm5ud0J5ZWVZT2RWbFBESlQ0cWJDcTBFUFQ5NHpkb1dPdFBrd09rODNzNHQzRjR4M3ZWeXltRXhoWWZxcjEtZE1seDBfTzZQN2I2WDg5M3BKeVV5Y0NwRmliWUt2LVVpV2NPa0Nmd05wMnJOeFNnSnk3M1BESkhBeno4OG93R1dscFQtUTBacFVVb1owMGt1M25rVDUyclFiM05NSmstRUo2c0tRM2NoR3k1MHBuRm14a2VLQdIBVkFVX3lxTE02SXctWHh2ZWpkOGxzaWtEU19WQnQ4djJ2aDdKX0RSSzd4cmUydTJTV3FtWU5yNHNOUFJ1M1ZRMGNJOVhHWUw1NUlBaU5HSnBuTFo0WFBB?oc=5) |
 | Trump administration sees 'no viable path' forward to finish high-speed rail project, moves to pull federal funding - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi9wFBVV95cUxOZ2U1bGkwY045UWRzbWpJaUtLU0xaSl9JYkdPR2NhR3NOeWNyWUllSDRaeVI2Q0lVb2E4LUZOMXlMc1RjNElUblNTUmV4SDh5d0pKX0JXTUVDSnY3Rjl3bGlFV25QNGdTcV8zVU43NUM5bTM1UUItR2twblBEMjdwN0xZSE45T29qZEF2N1FpQWdXa0l0Q1B0NndiUmdqb3hRTW9IelZ0M052Y2NzNFAwN05lWmg1LXdybzJKSkdFd2xKdEo3TVpGaVI0Q2FFVFcwVWk5MUpYNlJ0cXMzd2dkNHh4c3lVRUxVclM5cDBtTEpET21vNVNn?oc=5) |
-| College board reverses decision on hiring University of Florida president over DEI concerns - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPS000YV9jSEZsWjg5YjlIWE9zN2VpSW9RdVFPWmI1TEJ1TjY1YVFEWER2WHNCQ1VUMXV0dVhFQ2UxelhkTXhickFQOGxrT3VHR3lIVTkwYmROXzFzTk1fYWVMdGwzSVhYZzZDVm16OHM5bkxVNDktU1BPbWx2YWFSWnU0YXc3VkU?oc=5) |
-| Congress budget office says Trump tax bill could add $2.4 trillion to US debt - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPaEptU1ZLQ3NFN0xFUExlcmROcUdXQ3A4QVhvZVVqZjFOR016ZlZBVnd6QVZIX3FCRFNPWS0tSkxHWUplOHBHZXNhOGU2TE1HaUlPWU0xb2tlQTBVT1ZPRkhBVXF6VHkyZm9xS2lJUDRCTllnMnh5VlBUeG1aTmN4VzNrU1N6U01zNFVOUWI2VnZzWmpKRGdMaWdYVnlYdmpqMUl3WG12Q1lEc2hMRm9Rajc3YnZRYkJIT3c?oc=5) |
-| What we know ｜ The search for Travis Decker continues after 3 girls found dead - KING5.com | [阅读全文](https://news.google.com/rss/articles/CBMi6gFBVV95cUxQbThhdGNMM1ZUNWp3Z2NORjBzcThkRXNocVZ3ZWY1aEdnTHlGYkh5UFJZTzhnU3R2V201WkEzUmx4bHlQRHZienp4Yzc2aGs4NFdleXVGMFRJdENfbmNwY082cHNzRjN4Y2RYeEkwdGdCbmNtTWpTQXhFNUVIaHZYc2NhLUkwZldLTXBuTUp1WlFadXhmTTB0bVcwMnNHUzZTMmg5R0ViTFVrX0JCZ1NJclQxd25rQnFBVGZFZ2ZyVlRYdFZObmxOaUZ2Qm1vZHZOT0Ezak9KQV9EREZCZmdBYWNKcFctSGUxVWc?oc=5) |
-| UK temporarily spared from Donald Trump's 50% steel tariffs - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBwOGc3cXVCNzhrV1RFcWkyV2J5d2t1ZHBqVU9tR3hzRnhFUDBhdnVaUVAtM1MtQktzQVRrdVBwdk9PdnU3bnNieXV5Tmh0TjVacFREYmJreDJfZ9IBX0FVX3lxTE5LT3hOU3k2T21qakQzRkxyYm5PMk9IOVE2Vmt2WVJ6S1lxVmFadzdyQmlKd1F3TWxiMnRkVkRUSWk0VnphdER1Nkd6NndvbHJVLVVZeUxCelFpcW9wajYw?oc=5) |
+| Man sent chemicals to aide Palm Springs fertility clinic bombing: FBI - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBPUzRCb1E1bkZ2bTJoSUs4eFVNMHVYQjNiTnlFNUt0Q19SS0tRbmhvRTVkOWRZRmNYaUY1c3JncTNSdHNGaG95d3EzekZpajkzSVdzXzYxa3lKZ9IBX0FVX3lxTE1WeHBLSmMtRk9UMG5YSGV6eERiRjVzd084TFBiMXdPMXZ1UDVKSzMydUJJanUxMzlhbm50R0NQbjduM3M3NlpuWDVGSFNibnVxSU9hMXJETG1acUdhQ3hV?oc=5) |
+| Kennedy grills Lutnick over Trump’s tariff goals - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQWmswLURqbndzTzNIN0pIMS1vZ2dXclN4d3A0U3gycllIY1NseXYzUmZ0TENpenUydXhfa2ZsMWdMTzhkVk1ielFrcllmUjROcGdDWXJvRGFQX1YxbnZlX0FKYmtiM1kwSUY2MEh1a282UldubE9fVUtxc2dOa19OdUR3d09IV2g4RUt0anFQNVZMV2ItYkVLWnpEeTFmZmNBX1o1WWVwNF81WEE3VHczVFZWcXQ?oc=5) |
+| ‘Karma’: Santa Ono’s rejection mocked by University of Michigan community - MLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxONjMwSEY5WTAxaVBDVkJCYVZuVDJheDlCVVpraHR3LThGUndFZjVZMUlrRXVxM0IzMDRqMEtxV1NEX3JqOGt5TUNPYkd0NDBMOWkxYWtwLWxyYU9qWHNrby1LeVhDY3RYMUpvV0dqY2pSWTRERkVhMEFqWVFoV1RqQjVkTS1uQTNwVGxYMW9aY3F3VzhtSmhZZkRUb2s5d3NJTmQtazhBbEhNWjA2UGhRMHZLRXBralVPejRR0gHPAUFVX3lxTE4zNDk5eHREMkVaMFlDdUZNX2o4M3NYTW44dUpPWnhuQy1TNWZCRGRNRDEzaC1iRFd4cjNPaEVmdE0wWFNvQWJybFZKOHJ3YTBWbngwS0lhY3B4eGJJRzg0cEIydUs0R05sVW5waUxHWC10dlVQazRuQVBmSWI1Q09sMU1zSWxSbEJtQWVibUlQbFBhUWhTcGoxMkJsdDNBVXNnT0pNQ0ZIdE16OU02Y3ZlbTVQY3dXak9WbXJsbjBUNWJTLVhQa3VmMTVTazdLOA?oc=5) |
+| What is the CBO? A look at the small office inflaming debate over Trump’s tax bill - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNRkZFR2lyM2d4RWZXOHlrTWtZVDlWWnBpUDF2WkZRbHl6Q3EwVkNhWjBxd2lieXRHXzRSSlpFbnpZZjlDNmlPN3ZZLTRLNHJqN1AyOGJUSm5EdWZFUnpWbk04ZG9wZnJmTHdPLWpUS2dKTXNDd3drUmUtZ05iR0xCQWdKZ3JONEFjQ0lQM19uN3JzUUxzOWtvSy13MzZMelFRWWFqaXc3bDZnZkdtTVhXN1dn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
