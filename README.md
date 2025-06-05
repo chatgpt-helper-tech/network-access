@@ -21,6 +21,9 @@
 
 > ⭐ **觉得有帮助？点个 Star 鼓励我继续更新！**  
 
+> 📌 墙内访问Github比较慢,如果图片无法加载,请访问官网GithubPages页面以获得更好的阅读体验：  
+> 👉 [gptvpnhelper.com/network-access/](https://gptvpnhelper.com/network-access/)
+
 
 ---
 
@@ -827,7 +830,7 @@ WireGuard 下速度可达 400+ Mbps，OpenVPN 下稳定在 200–300 Mbps。
 ---
 
 > 📌 本页为markdown简版导航，如需在体验更好的阅读效果,请访问官网GithubPages页面：  
-> 👉 [gptvpnhelper.com/network-access](https://gptvpnhelper.com/network-access)
+> 👉 [gptvpnhelper.com/network-access/](https://gptvpnhelper.com/network-access/)
 
 ---
 
