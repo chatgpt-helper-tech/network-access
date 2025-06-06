@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月06日 14:42:42（北京时间）**
+🕒 更新时间：**2025年06月06日 15:01:29（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | President Xi Jinping Speaks with U.S. President Donald J. Trump on the Phone - fmprc.gov.cn | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBhZmxTX3p4X0JVVFJaNUJEUEdDWGtCNEdsQ0ptWi1VcWd6VHdRYWZ5WHdIRzFubURWcXB6OEtrbllscWc4dDBzOWtXYTlmaFJkSnJsdzdlWUtMTm1ucGM2U0JnSzdVcWlITEdPMDhBbWdYNjlaTkE?oc=5) |
 | David Jolly, a Trump critic and former GOP congressman, to run for Florida governor as a Democrat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPT2VWbVBiaVFHN0QtejBlbHNpbjhQU1R0ZGU3RDJLZXF0TUVjNkRKT1ltSlVBUEZ1N0IxeUFPTlUxekRzaE9WSTZ3TjRoME40VHVfenBSSTB1LW5Xd2ZSb2tnZ01pbWJZb012azJHUnhTUlhhaTNxRFJkckhYQzRic2dqVk5QeVN3RmVkd2xyWmM2SG1rZFJIcXhLTWd1SlQ0aktGWGRSR1g2YTQ4?oc=5) |
 | Father who killed 3 daughters was 'active dad' but the 'system failed' him, ex-wife's attorney says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQOUtneTdzN1V4NzRCWlU0U2lHdTNLb2FTWmdLY0dJd0VzaC1LR0c5bTJXcGZ5Ti10by1VNmFIbFNhNlpEVWZGaG1XSHJGbFNqb3Zmd1d4cVk2Sm5WbFFJMDdhWUpGUkcxNUtNT2dmZkxLZS12RllLU1pXZjM2TFRUMzRSUEpUMFZRSU9BSXdXdGdBWmdPdEt1amJjQdIBoAFBVV95cUxOd01PdEJwcjRvWG5pcWtXYTl3azFqaTZmbHNqX2k0S0hlUGhRcWluSHRvcjQtcXZMbmIyaWVVMzZfV1B4QjBQV2R5WURxS042eE9NOEgxNGVOb2tSODd5UERiZHgxUUxEemk2ZVJ6LWNMLTExdHR4eXJPUzBKazF4MzFfalRLUE1FZXZ3Z3E0RFBxczlSdGdLcmpMTlJrSzda?oc=5) |
-| Biden’s White House physician subpoenaed for deposition by House Oversight Chair - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFB4bzFiN19oNnp0XzZVRERzYzVKeVZMLURWb3E3RTRJeGhJSzE2M3RHUWN5WUV6cnNXNVZzOVJmYUZRdVNvX3k0eVRZMTBlMGM2bll0OFpQaGNxWGRKUGZBVS1QbWV3Skc4ejNVTjNkaTBCUjVrREVnQlpBb2t3SDTSAYQBQVVfeXFMTUpWZnZDbDA5UjZpMklZdHNkVGRWbnlNOEcxRDE0M21rWTVqX09yMHZhQ2NvbUZBSi1OTUplekpiU2hJSWtna2VkSi1oQ3dhNTlvejNFUEZGaTgwNmRoZVM2U1g4RGVQYWxxWGpSenJ1ajhUQ0trVTUwQ3VvNmcycVJncEd0?oc=5) |
+| House GOP subpoenas Biden's personal physician - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9YWUNJMGZnSjdUUkF6QThTM2F3SENYZDYyZXAxT1FORFFvUV8yUHg3NXlBMDdFaE5jZ2ZJWHQyT3NSS1o0aklCcWlsOFB2RUQ0ZEthR1hGQjNfNjJ0Q1dSZ2UxR2FhVkdvOEtJd2tMaEtJVGdvQkFlLWRsU044Zw?oc=5) |
 | Trump administration, for 1st time, returns wrongly deported migrant to US - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPUTlySm1ocm5tZlRuaHItblo5Q0xwM1o0bFVjY2ZFaXZFQWVSVkl6RVljUm41LVZmY0gxYU5lNzVZZ0h6aVpxYXE0aElWb0xyQkx6NVVqRVNNbTJ0U1ZaSHNKZ1BHUjlVYnBFT09ldUw5dnlpaXdkYkxOWnhiaU5CdDRMeWVDWlFfcFY0ZVhZeUVNTWR4NXhFVGdlU0FfZm0zb2JWNnFBZDJGZ3fSAbABQVVfeXFMUHY5TV91b3YxQmoyM24tc0ZBWnlzZ0kweXE5ckdhUlRkY2VKbkhUTXFYSmoyZHAybkxjZURzY2xFVFBIWXlkWE1WXzd4RXNFMEZuVUZsNlgtc0c5TVlmZENGNjZFUmw3LVVLMGI0RmFMYzNDaVhSVzdpdExoSTQtYnRnSTFrZVJYVjRiOGl0cTNwTTBvMm54YnJxS056RkRKV1owSVZMUEZqVWV1Wkt3dlg?oc=5) |
 
 ---
