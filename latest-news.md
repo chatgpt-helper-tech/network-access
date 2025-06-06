@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月06日 23:42:47（北京时间）**
+🕒 更新时间：**2025年06月07日 00:00:24（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | UK arrests made in international crackdown on financial influencers | [阅读全文](https://www.bbc.com/news/articles/crljw8n78l1o) |
 | Thunderstorm warning issued for large parts of England and Wales | [阅读全文](https://www.bbc.com/news/articles/cq851x1y9eqo) |
 | M&S hackers sent abuse and ransom demand directly to CEO | [阅读全文](https://www.bbc.com/news/articles/cr58pqjlnjlo) |
+| Defending champion Alcaraz into French Open final after Musetti quits | [阅读全文](https://www.bbc.com/sport/tennis/articles/cnv193eey78o) |
 | Cancer patients 'priced out' of holidays because of insurance costs, charity warns | [阅读全文](https://www.bbc.com/news/articles/cp8ylmm2xelo) |
 | Raids across Canary Islands in major cocaine gang bust | [阅读全文](https://www.bbc.com/news/articles/c5yezgd8p3wo) |
 | I'm going to get better as Tory leader, Badenoch says | [阅读全文](https://www.bbc.com/news/articles/c3e5y8kkpwzo) |
-| Ten days that unravelled their relationship | [阅读全文](https://www.bbc.com/news/articles/clyr7v79q4yo) |
 
 ## 📰 Google News
 
