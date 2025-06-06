@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月06日 12:43:15（北京时间）**
+🕒 更新时间：**2025年06月06日 13:01:35（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump and Musk enter bitter feud - and Washington buckles up | [阅读全文](https://www.bbc.com/news/articles/c3wd2215q08o) |
-| Zia Yusuf resigns as Reform UK chairman | [阅读全文](https://www.bbc.com/news/articles/cq54p9epdg6o) |
+| Why Zia Yusuf's resignation matters for Reform UK | [阅读全文](https://www.bbc.com/news/articles/ce80px2gwjzo) |
 | Most new build homes must have solar panels, says Ed Miliband | [阅读全文](https://www.bbc.com/news/articles/c0j728gvp94o) |
 | Cowboy Beyoncé dazzles nearly sold-out stadium | [阅读全文](https://www.bbc.com/news/articles/cvgvlxk01gvo) |
 | Handwritten notes reveal Churchill's penicillin concern ahead of D-Day | [阅读全文](https://www.bbc.com/news/articles/cj09v52l8v4o) |
@@ -29,8 +29,8 @@
 | How countries responded to Trump's travel ban - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9SRnUwU0p0YXBwYUNPZU53RVByTUZYUFZYU2tCUmZpNWlOLXIzTEZncWV2cEF1bnJrbmEtM3VtOWR6ZVBXc0VtUnBHVnFpR0Z5UkUyR3MtU2JFUdIBX0FVX3lxTE1HaXVJcktDUkNKSTU3SjJZSGo1dE53TjBqT19kci1QTUVYQW1Takx1UVhPa1llRWRoZ2x5X2tuZzVEMnFGVnVfeHNMZUJyTmtOWWFUUWRkQ3AzZ1hPaHVv?oc=5) |
 | President Xi Jinping Speaks with U.S. President Donald J. Trump on the Phone - fmprc.gov.cn | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBhZmxTX3p4X0JVVFJaNUJEUEdDWGtCNEdsQ0ptWi1VcWd6VHdRYWZ5WHdIRzFubURWcXB6OEtrbllscWc4dDBzOWtXYTlmaFJkSnJsdzdlWUtMTm1ucGM2U0JnSzdVcWlITEdPMDhBbWdYNjlaTkE?oc=5) |
 | Elon Musk Suggests Trump Is in Epstein Files, a Source of Conspiracy Theories - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1YT2cwX2xIX2x6ZW10a1lpcTVySzQtNEhjVEM3dW1Ca094bENpVEliZXJPb3lYZGxlN1pvUjZ2X2pEMmRDR0NTZThseHdIaUhFWWlIVG0yc0Q4dzdTemdMdWFDOWZ6US1iSS0xcmZsVkxKRHJ2WWIwWElPTnc?oc=5) |
-| Musk threatens to decommission a key space station link for NASA - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPMDU3QndsTGItRjdlc2NpRnpSYkdQNkhaa2pVZ3AtTGV1amZBUGR5djFUNnJUOEI0amluWTJaOVp4Q2tFR0dXZTJpN0hLYWxCY3BOY19FOUliQWJCMXFnX09CS0g2WEtYNGY0NjlmN1oySFRoXzA0cXdOU1hCcE5VWkVyb2NpSVZrS2NYX2x4M2ZLMmVMeU1V?oc=5) |
-| Jolly enters governor’s race as a Democrat: ‘The Free State of Florida is a lie’ - Miami Herald | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOZUZuVGMxTXhpWGo3QVgwT0Z3aDV6UFY5M1lCV3ViUnhiOUE2ZTk1YnROeFh2SXJEa3NldThqbEdodjBLaDdidHBRcVBfZEVWR0dzbnRKMDl0VFQzY0pWbDVneUx0MldYdnhObHNEaGpoNXdtNC1tYkJtTkVMeV9jMkUycXVGYXFQM1l0Uk1OZUEyY3fSAZMBQVVfeXFMT3ZVWXIzelRMTFJTSmMyaFlMVzc2YjhMWlVQclhSSlRVcVRTUFozS0U5ZWdoSU9oVGowaVBHbm5jdGZyb19JMWRJNTVZNnZZWVZvM1ZoMEo3azVHbkZ1VHBDZDRpU0swb2RaaVdCVzV3ZUNzZmY4OHUyVElZRHRWWGFBeGRlNWtWMVFMSzhlbWh3ZmJN?oc=5) |
+| Elon Musk says SpaceX will decommission Dragon spacecraft after Trump threat - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE14QkNBbklCZV93emFUcHZWeWRlR3pDc08zczdkb0dEVUpfRm1FM180RzJsWUVWOWRKM256Z0pLYUpWamdpZzZhSWMxR0ZBVjJzVm1UZ3VDcWZvR0pUaFZCNDJfbTFkYTZVN2Z0c3F6bkNvTjJR0gF6QVVfeXFMTko2NWFkT0s5cnIwS1RVbHVuUXpmRFRpMl9OUDZ5aDRFbmxiak1McWlSX0YxRlYzRWhPbDRPRE9PYng3eEc5VDJjeDh5blBaSmRSUllRVVkxbWRKenFFZnRDSTlNZDRYZGFLcm1mbG5TVlBFM05WX0JvOUE?oc=5) |
+| David Jolly, a Trump critic and former GOP congressman, to run for Florida governor as a Democrat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPT2VWbVBiaVFHN0QtejBlbHNpbjhQU1R0ZGU3RDJLZXF0TUVjNkRKT1ltSlVBUEZ1N0IxeUFPTlUxekRzaE9WSTZ3TjRoME40VHVfenBSSTB1LW5Xd2ZSb2tnZ01pbWJZb012azJHUnhTUlhhaTNxRFJkckhYQzRic2dqVk5QeVN3RmVkd2xyWmM2SG1rZFJIcXhLTWd1SlQ0aktGWGRSR1g2YTQ4?oc=5) |
 | Manhunt for Travis Decker intensifies along Pacific Crest Trail; public urged to stay vigilant - KING5.com | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQNFhfVzNzXzBPUi1FVDBBQlA2cEYzNE9yWU9oeXdUSWlMcXp2ZFZDaXlQdnhwaGhlWEhfV3RXWE5NNzRic0ZaZ04wUmJPQVpmS1pIdjFGRy01MTNjb2Z6dllUOHBfQmg5clo0bnZpOUtNNmt1eG43SHZ3TzVXdjZXSFBhRXowQlU1dVVieTBNZWxSSV9LM2VVU09LOFZBNVNzUHRyTVRnQ2hzLS0ydk4wV0Vib3p5SUdVc282VWh5T3d5NTlfZ3g4aUhIOA?oc=5) |
 | Biden’s White House physician subpoenaed for deposition by House Oversight Chair - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFB4bzFiN19oNnp0XzZVRERzYzVKeVZMLURWb3E3RTRJeGhJSzE2M3RHUWN5WUV6cnNXNVZzOVJmYUZRdVNvX3k0eVRZMTBlMGM2bll0OFpQaGNxWGRKUGZBVS1QbWV3Skc4ejNVTjNkaTBCUjVrREVnQlpBb2t3SDTSAYQBQVVfeXFMTUpWZnZDbDA5UjZpMklZdHNkVGRWbnlNOEcxRDE0M21rWTVqX09yMHZhQ2NvbUZBSi1OTUplekpiU2hJSWtna2VkSi1oQ3dhNTlvejNFUEZGaTgwNmRoZVM2U1g4RGVQYWxxWGpSenJ1ajhUQ0trVTUwQ3VvNmcycVJncEd0?oc=5) |
 
