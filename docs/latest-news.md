@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月03日 17:15:35（北京时间）**
+🕒 更新时间：**2025年06月06日 16:21:22（北京时间）**
 
 ---
 
@@ -8,31 +8,31 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Major new Madeleine McCann search under way in Portugal | [阅读全文](https://www.bbc.com/news/articles/cy4k1vg34wlo) |
-| 'The abuse was almost daily' - grooming survivors share their stories | [阅读全文](https://www.bbc.com/news/articles/c62n72mj113o) |
-| UK threatens to sue Roman Abramovich over Chelsea sale | [阅读全文](https://www.bbc.com/news/articles/cvgn45d72eyo) |
-| Thames Water's future in doubt after investor pulls out | [阅读全文](https://www.bbc.com/news/articles/c93leknykvyo) |
-| Trump tariffs will hurt global growth, OECD warns | [阅读全文](https://www.bbc.com/news/articles/cq69j753egeo) |
-| Mother of jailed British Egyptian activist vows to continue hunger strike despite risk of death | [阅读全文](https://www.bbc.com/news/articles/cwyj35pr2z6o) |
-| Fallen tree halts Glasgow to London train journeys | [阅读全文](https://www.bbc.com/news/articles/cn4q3801p1qo) |
-| Toxic mushroom cook tells murder trial wild fungi have 'more flavour' | [阅读全文](https://www.bbc.com/news/articles/ce82lj7g1g7o) |
-| King of the Hill and Parks and Rec actor shot dead | [阅读全文](https://www.bbc.com/news/articles/c3rp3n54d98o) |
-| How Ukraine carried out daring 'Spider Web' attack on Russian bombers | [阅读全文](https://www.bbc.com/news/articles/cq69qnvj6nlo) |
+| A good result for Labour - but the party squeaked through on a thin margin | [阅读全文](https://www.bbc.com/news/articles/cvgqzdl8lxyo) |
+| Trump and Musk trade insults as row erupts in public view | [阅读全文](https://www.bbc.com/news/articles/c5yg98rl717o) |
+| How 'big, beautiful' bill led to big ugly breakup for Trump and Musk | [阅读全文](https://www.bbc.com/news/articles/c3wd2215q08o) |
+| M&S hackers sent abuse and ransom demand directly to CEO | [阅读全文](https://www.bbc.com/news/articles/cr58pqjlnjlo) |
+| Why Zia Yusuf's resignation matters for Reform UK | [阅读全文](https://www.bbc.com/news/articles/ce80px2gwjzo) |
+| Cowboy Beyoncé dazzles on first night of London residency after slow ticket sales | [阅读全文](https://www.bbc.com/news/articles/cvgvlxk01gvo) |
+| Thousands of criminal cases collapsing due to missing or lost police evidence | [阅读全文](https://www.bbc.com/news/articles/c3e5289d3njo) |
+| Growing number of MPs changing their mind on assisted dying | [阅读全文](https://www.bbc.com/news/articles/c2lk21x800yo) |
+| Bosses' bonuses banned at six water companies | [阅读全文](https://www.bbc.com/news/articles/cdxvpr4qkyxo) |
+| Handwritten notes reveal Churchill's penicillin concern ahead of D-Day | [阅读全文](https://www.bbc.com/news/articles/cj09v52l8v4o) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Suspect in Boulder Molotov attack faces federal hate crime charge - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQazJFazRFcWhjR3otX3QtNno0ZERfekR4T2hJX3NaeE1xX1ZNUUtkTW5KVV9pRmZ5c2dwN2lHY19yMEJvYWdKa3RxbEdUd2h5cVpHWjNwZXIxYzZISm1PbmdBeVBVOUlqYlU3YkxYQjluS3JWdlh6Vk1Ya1BSV0JJZkNXbw?oc=5) |
-| UN calls for investigation into killings near Gaza aid site - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE90dmVBNVNGd2FKZ1o1QUstczlmUVF2bDExSUlVcS1kNXc3cTZnSWhtRm1DdzBDTlpLRUQyTFdFbkRlaG1KeWxZVGxYV0I4LThqa0g5akZua2VNZ9IBX0FVX3lxTE1WdjlLRlFqZmpWTlVNZHVCb3NaWWF0ZmR4TnRQOTZLc0MzOHBRcFd6Q3pkM2FHTzRoSTlrOFhCeVFnSnI0LWJpQ1RwMHdBcTRQcEhQUUd3SnJzS2tzNTJB?oc=5) |
-| Inside Ukraine’s audacious drone attack on Russian air bases - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPOC1jVzNBVEhIbWFOZmZ1N0VLU256cUJsSE1Qc2VCWktHQkxOaEdJWlQxRTVfQU9CN3VkaGVmU2pWWE9OdWdiSVNOQWRtbEdTdEM3cG5aY2pyT2pPU2gxSFJZakVVMS1wYnZYNDlIS1R3VDBPWDBIRTg5bU5RTS10SjJ0dFkyWDg2Ujh1WEJUZTFJaXM0M1N4NFZ30gGfAUFVX3lxTFBCU1drSUVYbkRBM1dKUEE4ZXNIbk9rc1JTUVVQem9RLW44T3hxcWdZTTREcTVLakxFZXJGdlozSEdIQ2M4aTZvSW9QaFF5V25oaUVhSUdqTGUxQW5BVnU0T2RheUhQYzFXUHg5N01MbWVXR0RDakVWSEdaNWlWV1c5VTBjVkVwN2dUaVNSaXcwdkNHZkVZelRjVllJYzk3MA?oc=5) |
-| Trump leans on GOP senators as they gear up to make changes to his domestic policy bill - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE95VHQ0c3l2X29oal9QeU5obl9BMHdGQURLV3JVcHJBZmZzWmxpdlV6Y25tVWpCckgtOUNDQU9MMDRKdEpRVkFkbnZDRnZfWGdPUmNLTWU5MlBGd3lsMEFBQ01UaDh4TjBwTXRkMEhIZ1FHbDBKQUtaRXpR0gF_QVVfeXFMUGx4YzZpSDZpOVB4RlF0NGZVdzVjR2NBN29PYUFKUU5DYXpBTU90ZlZBWFlZVDFUeHM3WnpCbHBjQWNfUk9oT1MwS2NTVjFQdzBTT3AzRnVadExuMUFpRUJYVW5OUWdjVnF2NkQxUTJkakNDVnlkVDBuVlJZS2Q2OA?oc=5) |
-| FEMA staff baffled after head said he was unaware of US hurricane season, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxNLXh2NXgxaU9CbkNfX2JXUHd0elljM3B6bkRSd2VZVHJoRURfM3VhTk9GYmFzMHdTX3JmR0hjNHhLNG9hcEtuRlQ3SVdoRGRWb3hJR2F0azlwZU5IaG0zXzRBR1VNbWRHSHJJVUp2Uno1VnB2NUJ0Nm55ZjVCaWpXcGpKSVJnbzFTVzhkT015enpHNlRjYUNqdU1sdkNaTUNyblB0QWV6TDRveWxEYy1pT2ZpOFVwVk1CUmNCODFQSFg?oc=5) |
-| Supreme Court leaves in place Maryland’s ban on assault-style rifles - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOcDQ1U20tVFFETmhPZ1ZKdDlibm5uNTJQWVFyRFRIU0c4em1uakVvXzg3YXRCZzE0aEdZX1oyNU02aFVzVjhnS3BKck96SzBpa1VtWURrRzNNY0ZDd2JTdXBsODNkWm5rMGltZko3bHppaHUwUnVIVUNWbEZldzdSTTY4ZWUtZzMyM2lHVkxtSkxGZw?oc=5) |
-| Democrat announces run against Ernst after her 'We're all going to die' comments - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPOEMxOEY3SjFITDVzMFdCLVRyaUFmMlJOVzJkVHhKMklWWTJfdkswbGdCQktEWUxybWtnVmY5X0hBN3prdWRNNm5Nd3JpQlp2NkJDRGNRYkk2YVRYVTFTeUwxcTNrQlE0Rjd1YmRZamFNdzRaWXd4Zi1aT293TmcwZDNGejZCbDZ4NzlCVTNOTUNMU2NHMlR1ODlzWF83TkHSAaQBQVVfeXFMTlJKTVk1Y0dLTzRtMVptTzNDdGg1MjBBYjFJVDJrOV9lVkRTSTh2bDBUbUhSc1owVG1hWVZha0Z5dFlVTmF2RHZJY2gxTnQyc0Y3a045eWNjQXExTGdkakptemV5QllxLUhyaGdOREs5ZGNQajFZckFFMk1VamxZN1MyUUEyZ2RBNlY1QklhQmNLSUNfV05zeThTMG9HekdCQWI1NlY?oc=5) |
-| Harvard Asks For Summary Judgment in Funding Case, Says White House Pushed Cuts Despite Agency Objections - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5GMml2VTkzb2ZFYXZ0WW5hVWc4dmpldEh1UkFaRFplZHVOV1JEdGZ6OWZaa0s0T0ctUHItVWhZdXB0cF9XSUZVQUF6UUhXbjZxNHBPWXAzX1IxdmQ5U3VfdkdYOXJmNUxnRjFtTkN1LTMwbG04dHZCUFdrVnlPVzA?oc=5) |
-| Tulsa, Oklahoma, plans more than $105m in reparations for America's 'hidden' massacre - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9rMXByN1ZwLWVfc1RUeEI1UERRZlVKNXRYT0ZNbjdtSVFUbllrT0x3bmRlU2dxeWZXTVl0T3VCM3lkSXhrdGNDVldYQTFMT1YxUHlTN3Z1V29Gd9IBX0FVX3lxTFBQeFE2TlBiWkZlemtDOWY2NTNITmM5V3RPMVdPcUNXelpqNVcwdG5fbGRlUE1BMzUxVy14NTF1bWx0QVc3WGM3RGpJQzVnX295cHZaQ19TWTlRTnV6SFdz?oc=5) |
-| Trump appears to undercut US proposal to Iran, declaring he won't allow any uranium enrichment - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPX0pyR2tuUFJqRGhnY0lVcjloc2dpSzVsRHExVm9CMG13dFNIT0JYMEw2UTdBNk5zTmFuRDRLblNKakFqN2RkMDVIbTZLUFg0c0ljY1lJcFBzVEk0MVp5M1duMi1zUXpWQU81Z1VQUHh4VXBoMUdzSmhGdVBxRF80TXp2LV9jR1l3M1RrZk1zY3lSdnlDempEQg?oc=5) |
+| From bros to foes: how the unlikely Trump-Musk relationship imploded - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQcUkyS1Vrb05PR19zZXRXaEtCNzZydGxvaUZYcUhBQk9UM29jcDdVVWNTcmR6T1dQRXhoUk9sTmFSZmxYXzdiTDlTc3hnTDJkU1FDZk9taHV6STVySXNWS1BNcXZrM19rcTJhM0wtTVlCM1YwV2gybE83NU5wMERoN1M2cktKN0ExVUttVXlnX3ptVGthb0duT2c1WlpMZmstY1E?oc=5) |
+| Judge Blocks Trump Proclamation Banning International Students From Entering U.S. on Harvard Visas - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5oenNiczhIdzI1Ynh0RFZIU1VmOVBRdk9GZnRDT3M4aC1Edm1aS3d3NHAySlNPWnpTU1ZhVlJDV245ZWc3eGpkMm54STlLdm9VT0NHTTNOcmh5QUJZTmVGY0FFNzBxakE3UGIxWVpnc1VGZndENEkwdndsbV9VUQ?oc=5) |
+| Russian missile and drone attack across Ukraine wounds at least 3 and causes damage - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNMHVtSkpRWmJEbkt5UE9xUVBkbkpOblZBT3Y0UDJGS3pNZE1UX0pwb3BwSWYyR2h2bXpGbElBdXVJRXFDZERBWDJoa0F0OW51QXJPWDJob2wtV2ZidHlmenR2eEJ2VEZxVnBGblRWVTNiX3I2LWpPbVNrUTNTODI5aEZ4SXhGeWlfdWFXR0tXcHJVejVrWmlRdkppVFdWYjZZSWc?oc=5) |
+| Elon Musk Suggests Trump Is in Epstein Files, a Source of Conspiracy Theories - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1YT2cwX2xIX2x6ZW10a1lpcTVySzQtNEhjVEM3dW1Ca094bENpVEliZXJPb3lYZGxlN1pvUjZ2X2pEMmRDR0NTZThseHdIaUhFWWlIVG0yc0Q4dzdTemdMdWFDOWZ6US1iSS0xcmZsVkxKRHJ2WWIwWElPTnc?oc=5) |
+| Marco Rubio sanctions ICC for targeting US and Israel - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBCbjZ2OVZscFVPbmI4RE05WGhja1Rsal9UeVJZRmswM3BpWWg2WVFUQWVMZTV4TkJNZjJVTkFWTmRxZGdmcUN6R0Q5bS1fMkpqWWdKMTh1NGFBd9IBX0FVX3lxTFBrRU5URV9mNHpGbWQ2MFVNeFZwNnRUOHJGaE8tT19lU3JCQzVFaXFxcFRGV3EtY0U0d1hoMm04VTZXbVFkLUx2ZlNqalpMX1p6bnBwX3BJQm9iY2k0MlRj?oc=5) |
+| President Xi Jinping Speaks with U.S. President Donald J. Trump on the Phone - fmprc.gov.cn | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBhZmxTX3p4X0JVVFJaNUJEUEdDWGtCNEdsQ0ptWi1VcWd6VHdRYWZ5WHdIRzFubURWcXB6OEtrbllscWc4dDBzOWtXYTlmaFJkSnJsdzdlWUtMTm1ucGM2U0JnSzdVcWlITEdPMDhBbWdYNjlaTkE?oc=5) |
+| Father who killed 3 daughters was 'active dad' but the 'system failed' him, ex-wife's attorney says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQOUtneTdzN1V4NzRCWlU0U2lHdTNLb2FTWmdLY0dJd0VzaC1LR0c5bTJXcGZ5Ti10by1VNmFIbFNhNlpEVWZGaG1XSHJGbFNqb3Zmd1d4cVk2Sm5WbFFJMDdhWUpGUkcxNUtNT2dmZkxLZS12RllLU1pXZjM2TFRUMzRSUEpUMFZRSU9BSXdXdGdBWmdPdEt1amJjQdIBoAFBVV95cUxOd01PdEJwcjRvWG5pcWtXYTl3azFqaTZmbHNqX2k0S0hlUGhRcWluSHRvcjQtcXZMbmIyaWVVMzZfV1B4QjBQV2R5WURxS042eE9NOEgxNGVOb2tSODd5UERiZHgxUUxEemk2ZVJ6LWNMLTExdHR4eXJPUzBKazF4MzFfalRLUE1FZXZ3Z3E0RFBxczlSdGdLcmpMTlJrSzda?oc=5) |
+| Biden’s White House physician subpoenaed for deposition by House Oversight Chair - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFB4bzFiN19oNnp0XzZVRERzYzVKeVZMLURWb3E3RTRJeGhJSzE2M3RHUWN5WUV6cnNXNVZzOVJmYUZRdVNvX3k0eVRZMTBlMGM2bll0OFpQaGNxWGRKUGZBVS1QbWV3Skc4ejNVTjNkaTBCUjVrREVnQlpBb2t3SDTSAYQBQVVfeXFMTUpWZnZDbDA5UjZpMklZdHNkVGRWbnlNOEcxRDE0M21rWTVqX09yMHZhQ2NvbUZBSi1OTUplekpiU2hJSWtna2VkSi1oQ3dhNTlvejNFUEZGaTgwNmRoZVM2U1g4RGVQYWxxWGpSenJ1ajhUQ0trVTUwQ3VvNmcycVJncEd0?oc=5) |
+| Milford teen released from ICE detention, says 'All glory goes to God' - GBH | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOQzcySnA5dGE3SlN6dTZXMkQ2czlTMmlEZFhxVW9OWE9hY2d2dGkwYzJaUV83NDhZRmMzT3N3Nmthc3lQUkh0ZUhwQnhMalZpdlNfM2podEZmZnU2UU5WWGItSlJIXzhwbGRqS0dLZi1NUVpFWmdiQTN0MHpvekhEYlVRU0g4WkwzeGZF?oc=5) |
+| MYTHBUSTER: One Big Beautiful Bill Cuts Spending — and More Cuts Are on the Way - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQcWxnRjE2aTRWWXBTZWlwaERlUDBjRVBzY1RuUGJtNnozcXVid3J3SEc5WGdPNEVvWGdlSVlWeXB3Z1ZPMU1YNnBqeVJZX2tnakVteXJWRzU5eVpqTzFkbjVIZVFNOTdtSHh2S0haczRqRXF3S0VpbkVDa29qb3JoN2NqVkJ2cGFaUEgtZUNCUVNhd2JMUTFzRjQxd2s4ay1uTnJFYWozRUNZTko1X1BPTHoyTFdmTl9NazlzVU1R?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

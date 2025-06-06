@@ -21,6 +21,9 @@
 
 > ⭐ **觉得有帮助？点个 Star 鼓励我继续更新！**  
 
+> 📌 墙内访问Github比较慢,如果图片无法加载,请访问官网GithubPages页面以获得更好的阅读体验：  
+> 👉 [gptvpnhelper.com/network-access/](https://gptvpnhelper.com/network-access/)
+
 
 ---
 
@@ -186,7 +189,7 @@
 
 ### ✨ 为什么推荐「百变小樱」机场？
 
-- ✅ **提供免费试用期**：注册3天内免费使用,可自行体验稳定性与速度,试错成本为0
+- ✅ **提供免费试用期**：注册1天内免费使用,可自行体验稳定性与速度,试错成本为0
 - ✅ **稳定可靠**：运营超5年，团队位于海外，服务成熟稳定
 - ✅ **高速专线**：接入顶级公网 IEPL 专线，低延迟、高速大带宽，游戏、下载、视频通通流畅无卡顿
 - ✅ **灵活套餐**：支持免费试用，高中低档付费套餐灵活选择，按需升级更划算
@@ -207,7 +210,7 @@
   </a>
 </p>
 
-🎁 3天试用期到期之后,若想购买付费套餐,购买套餐时可使用我们申请到的**专属95折优惠码: bbxy-5th**
+🎁 1天试用期到期之后,若想购买付费套餐,购买套餐时可使用我们申请到的**专属95折优惠码: bbxy-5th**
 
 ---
 
@@ -827,7 +830,7 @@ WireGuard 下速度可达 400+ Mbps，OpenVPN 下稳定在 200–300 Mbps。
 ---
 
 > 📌 本页为markdown简版导航，如需在体验更好的阅读效果,请访问官网GithubPages页面：  
-> 👉 [gptvpnhelper.com/network-access](https://gptvpnhelper.com/network-access)
+> 👉 [gptvpnhelper.com/network-access/](https://gptvpnhelper.com/network-access/)
 
 ---
 
