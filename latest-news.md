@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月07日 13:01:33（北京时间）**
+🕒 更新时间：**2025年06月07日 13:21:13（北京时间）**
 
 ---
 
@@ -8,10 +8,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| US brings man wrongly deported to El Salvador back to face charges | [阅读全文](https://www.bbc.com/news/articles/c7v7ynv98r8o) |
 | Government struggles to cut foreign aid spent on asylum hotels | [阅读全文](https://www.bbc.com/news/articles/cgmjd8evd0go) |
+| US brings man wrongly deported to El Salvador back to face charges | [阅读全文](https://www.bbc.com/news/articles/c7v7ynv98r8o) |
+| MI5 misled watchdog about neo-Nazi spy case after lying in court | [阅读全文](https://www.bbc.com/news/articles/c0572v3j7dvo) |
 | Will Musk's explosive row with Trump help or harm his businesses? | [阅读全文](https://www.bbc.com/news/articles/ceqgdnd2g9xo) |
-| Bargain Hunt expert jailed for selling art to suspected Hezbollah financier | [阅读全文](https://www.bbc.com/news/articles/c7539vd0wepo) |
 | Biggest drone strike hits Ukraine's second city | [阅读全文](https://www.bbc.com/news/articles/cwyjd1z8yg5o) |
 | Schwarzenegger: Hey, stop whining, do something on climate change | [阅读全文](https://www.bbc.com/news/videos/ce80kyxd05wo) |
 | Secret Glastonbury: The mystery of the festival's surprise stars | [阅读全文](https://www.bbc.com/news/articles/cvg5zd3nkkwo) |
