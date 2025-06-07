@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月07日 20:43:05（北京时间）**
+🕒 更新时间：**2025年06月07日 21:01:05（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Republicans fume as Elon Musk complicates tax bill path - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNNVJycmpQQXdFbUwyRXRVMzZpTy1CM2lIS2Y5eE9uY0Y2eVZwRDFyZ1BmeERKX1lwYWl2bHpxSmJQUkppOS04RDl3cmF3RlZTVE9Fb1FVbVVHdjdFNE93U3JlYWEyeWNNUEZ2Vkl2Zmc3ODFMZmJJSjFnZFdvQjBSdDhEZW1BY3dtLXJfTVRTaXFzZw?oc=5) |
-| Kilmar Abrego Garcia Returned to U.S. From El Salvador to Face Criminal Charges - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNMEgxUHhqZHBfOThZV1dleG1iZ2syanVMZ3NVVHZaUWgwR0J3cFFMcEZxNDdmamI5UE5NZldEUzhwN1FOSTQ4MUl4STB4V1pjTDRoUjV6SzV1TFFFeGUyUDlfY2FublZHQkgtaG5GbXIycFVLdE5UWk9vOEQxZmZQejRrc25teWNvZmJ3MUNGanFweDhMREtv?oc=5) |
+| Wrongly deported Kilmar Abrego Garcia returning to U.S. to face criminal charges - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNWVVxX2pZSzk2VlM5c1d4dEtLeFFZSFZ2T08zREdUaUk1NlZqT1A3LVdsaHdDUUxwbWpNMWRhTmpUNE1YYUU1SUhnRTJZalFMTzRGODdrOExkRVVjX1Y2WXBQQzBmWTNrck5aN2F6UmlhSUlQQTBfTjNTTGFrRUdNTThOS1JwYjJEX0E?oc=5) |
 | David Huerta, president of SEIU California, detained during L.A. ICE raids - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQeXh1N0dSMVI2NnluWmNuWEg1UmppbUpIdlFfeXZoeGtGR25OM0JVSi1RSndibjRnM1FENmtvV2xYRHBsbWYxdmdaa2trRXYzckJkNlktUUlBMnI0TGxFdGg2SUh5TDkzdndHYWNKQm9zT1R5WnktRU1XU3pNOXpubUJ4NklWaW5rdS13Ym9ua0U5VnBYRm9xRUhxREdtNVJoampGMDVUeWhhNlplWThVa1NRUW0ydGRY?oc=5) |
 | How the U.S. became highly reliant on Elon Musk for access to space - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOSDhMVTdBNUhXckpzbjNSakIzLVAzY1pvWUFUSkE4QXdjNHVqOFpMSF8tVXNZR0hLQUlvaDlYeUV2WU9oclc4bnJEcW9TRHFIRE5aTjFxYXI3eHRRLVV1ZVdKR0gxV2JOVDQ2WW40bzZIVUtKdUNfRkdxeVphZ1BnVUxXY2s3OW8?oc=5) |
 | Trump’s International Student Ban Sparks Fear Among Harvard Attendees - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQTFVhREg5bVhzRjF4cTJaS2t0X0RCRy1IdUJodVNWZFFwTGVlUFYwWXZnelJVcVJxNlZqMTAxcXRiSVFzTW9fcU9zaDdzNDFlbm5CcTBTcDJSU1Jld3RUeUpFNEJXb2dYUlRVNVlWaXIxWUxrWmFRQkZuVE4zRGR6ODBPaGNmTzRmWUE?oc=5) |
