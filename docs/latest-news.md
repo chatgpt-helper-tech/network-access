@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月07日 22:43:50（北京时间）**
+🕒 更新时间：**2025年06月07日 23:01:21（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| David Huerta, president of SEIU California, detained during L.A. ICE raids - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQeXh1N0dSMVI2NnluWmNuWEg1UmppbUpIdlFfeXZoeGtGR25OM0JVSi1RSndibjRnM1FENmtvV2xYRHBsbWYxdmdaa2trRXYzckJkNlktUUlBMnI0TGxFdGg2SUh5TDkzdndHYWNKQm9zT1R5WnktRU1XU3pNOXpubUJ4NklWaW5rdS13Ym9ua0U5VnBYRm9xRUhxREdtNVJoampGMDVUeWhhNlplWThVa1NRUW0ydGRY?oc=5) |
 | Trump-Musk Spat Creates More Problems for Tesla - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE56WHlCNEZ2UEw0R0RyZndjcEVyVUhEcGtuZVNURWpYMU1ILURYWXVqSU1Ud1RNVWd5NVZuQXBQdTRTdW5qd1ZVUFdfSzE0cXRiT0JBOFlwcmViWEZacUpSRGVlclVfWWVIZkFtY2V4UVBGd21OZjRCR0xR?oc=5) |
+| David Huerta, president of SEIU California, detained during L.A. ICE raids - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQeXh1N0dSMVI2NnluWmNuWEg1UmppbUpIdlFfeXZoeGtGR25OM0JVSi1RSndibjRnM1FENmtvV2xYRHBsbWYxdmdaa2trRXYzckJkNlktUUlBMnI0TGxFdGg2SUh5TDkzdndHYWNKQm9zT1R5WnktRU1XU3pNOXpubUJ4NklWaW5rdS13Ym9ua0U5VnBYRm9xRUhxREdtNVJoampGMDVUeWhhNlplWThVa1NRUW0ydGRY?oc=5) |
 | Kharkiv hit by ‘most powerful attack’ of entire war, mayor says, as Russia pounds Ukraine again - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOOFdYQkpWa2xwc3RiV3VTYjYwbjlBZFl5SkdlYzdydXZrc2FBcmx0OFNUM25QakZUSF9kVGhUOWJ0UWpDZHBHbWh1ek1yYnNpWUNranlqX1hnYlFZSHlESlpoalYwUWlYZF9XQkV4MEZWSG1YOHFDWHBPOU5IcUdtQW43WdIBiAFBVV95cUxPbjVUZzBxRlNlSndSMkdRWnJEZmcxMGRqbTJ5WXFJWmdnTS1zNmNUZWthOXV6OTdVVjNoQnJqUVhKRml0YzVaaG90TTNvbWwxRjYzbWVnV0pKcGVrRmdtRHNiYUwxSERvVTI0ZXJLMTNNMFducWZwUGk0V0EtR2V2RWdiZmdCQ0Ff?oc=5) |
 | Man wrongly deported to El Salvador returns to US to face human ‘smuggling’ charges - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9hcHd5T0tnUXIxUlEwR3huQ0p2eGloUVFrdTlSUC1meHdHTTJsQmFVNWE2YmRmRXFKcDAyYTFNUEZrZ0c2aW9TdkhzYW10MlRVY1Q5SEpDZ2VhYmNtSHFTNG01cFNzdjFPX3BOWEZJNnA?oc=5) |
 | DOGE caucus leader says Elon Musk made a 'massive exaggeration' about spending cuts - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxONWJPcmgxcy01Zy1kWGg2QjlQWnExdjc5NFRsc1ljSDJkV3B0a3lwcmxLejNqSXdLS3FNZGdZNy1tR2ZqeURBZmdvcWtFbjdFSHp1VUJUbV9JMThMMlRrcVZEaW9IRXNYZDRYTEc5d2x6MW82RGVBOFgxSkpTeUZhem04WlB1amdNNFRsNHZHdzRzSlBGVDZz?oc=5) |
