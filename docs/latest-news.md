@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月08日 02:01:25（北京时间）**
+🕒 更新时间：**2025年06月08日 02:21:44（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump says Musk will face 'serious consequences' if he funds Democratic candidates - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOenppbkQ2M2xVenNQRGM2M1FQSmpGS1ByYTF1eEFkTmR6NVZwMEpvMGNGa0NTVDdkclRsaWdKdVRrMGw1YzFJOFp5YV95aXMxcFZlMV93ZW1fUVhwNUtRNDBYRTNiR2piVDNQS2l1QmJIa1BZdTVNY2NMMUdneE1iRDlJWFB1cDI4SVprTUhLTnd1VVFSVXhqWnhTdVdXRWtaZ1EyX1pfMmMtZG1PckQ5WUtWZ9IBVkFVX3lxTE9CNW1XUDVoM2dfdUx4QmY4OUFHdzB5RXhRbkRMOTVNb0VrNGpRWEZ5V0MtbnV4MFZId0FxSGR5RUREU2FNcVdvVWN5bkJKdWVBN0tSYXZR?oc=5) |
+| Elon Musk appears to delete some explosive X posts amid feud with Trump - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9sbTM4dUpZamtYUFdCWlpTRUt1WFpsX19CeFRyMHJVSTMyX2pDQVJFSzhISnhhdWVleV80U09pS3BWUjNfbkZWb2ptcURWR1M2RWZUemtoclNoNTBJVnhnNVg0cG95NVh0RHg5ZNIBckFVX3lxTE9DYUYyeGMxM3ZtT3MtWDVnUlg5UHdMUmRjbmEzd0FVaERzdHJ0cWhIbDNnVW5lczdLMmt2cmNxRHZOQ0EtaVFOdEUxMGNGbTgtejRhdksyT0p5YnlfRWxYdEc0TVZsdU1HUHBlbV96cjBvUQ?oc=5) |
 | Federal agents conduct immigration raids across LA. Protesters and city officials respond - LAist | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFAza1ljYTZxSUFuV2N4SjRmM0pmVVFxNWhpV1BOaDQ3c1c4a3hYQUFfNzdIRjFLRU5ta3FzaWMwN3JXbEZjeDktMVpTc1dBZ0lzUmw3RlVfZmJQaXQ5a09mQzMyaEkzVnlzRGVsbzFjWlAwOXc?oc=5) |
 | Kilmar Abrego Garcia Returned to U.S. From El Salvador to Face Criminal Charges - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNMEgxUHhqZHBfOThZV1dleG1iZ2syanVMZ3NVVHZaUWgwR0J3cFFMcEZxNDdmamI5UE5NZldEUzhwN1FOSTQ4MUl4STB4V1pjTDRoUjV6SzV1TFFFeGUyUDlfY2FublZHQkgtaG5GbXIycFVLdE5UWk9vOEQxZmZQejRrc25teWNvZmJ3MUNGanFweDhMREtv?oc=5) |
 | Kharkiv hit by ‘most powerful attack’ of entire war, mayor says, as Russia pounds Ukraine again - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOOFdYQkpWa2xwc3RiV3VTYjYwbjlBZFl5SkdlYzdydXZrc2FBcmx0OFNUM25QakZUSF9kVGhUOWJ0UWpDZHBHbWh1ek1yYnNpWUNranlqX1hnYlFZSHlESlpoalYwUWlYZF9XQkV4MEZWSG1YOHFDWHBPOU5IcUdtQW43WdIBiAFBVV95cUxPbjVUZzBxRlNlSndSMkdRWnJEZmcxMGRqbTJ5WXFJWmdnTS1zNmNUZWthOXV6OTdVVjNoQnJqUVhKRml0YzVaaG90TTNvbWwxRjYzbWVnV0pKcGVrRmdtRHNiYUwxSERvVTI0ZXJLMTNNMFducWZwUGk0V0EtR2V2RWdiZmdCQ0Ff?oc=5) |
