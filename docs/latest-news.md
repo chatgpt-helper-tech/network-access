@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月07日 20:00:08（北京时间）**
+🕒 更新时间：**2025年06月07日 20:21:21（北京时间）**
 
 ---
 
@@ -10,10 +10,10 @@
 |--------|-------------|
 | Government struggles to cut foreign aid spent on asylum hotels | [阅读全文](https://www.bbc.com/news/articles/cgmjd8evd0go) |
 | MI5 misled watchdog about neo-Nazi spy case after lying in court | [阅读全文](https://www.bbc.com/news/articles/c0572v3j7dvo) |
-| Parasite infection warning as 190,000 expected at UK-wide farm day | [阅读全文](https://www.bbc.com/news/articles/cy5e1wn6n22o) |
+| Spending Review: Massive cheques from the chancellor for some - but what do totals hide? | [阅读全文](https://www.bbc.com/news/articles/cx2x1e441p2o) |
 | Millions more to get test results via NHS app, government says | [阅读全文](https://www.bbc.com/news/articles/c4g6y48080zo) |
 | Rod Stewart cancels US gigs ahead of Glastonbury | [阅读全文](https://www.bbc.com/news/articles/cx2j3ljw3ejo) |
-| Stop whining, do something on climate change, says Schwarzenegger | [阅读全文](https://www.bbc.com/news/videos/ce80kyxd05wo) |
+| Parasite infection warning as 190,000 expected at UK-wide farm day | [阅读全文](https://www.bbc.com/news/articles/cy5e1wn6n22o) |
 | Polo-loving drug lord's double life catches up with him | [阅读全文](https://www.bbc.com/news/articles/c14jpymxrkno) |
 | We always joked dad looked nothing like his parents - then we found out why | [阅读全文](https://www.bbc.com/news/articles/c4gexw7l7rwo) |
 | Secret Glastonbury: The mystery of the festival's surprise stars | [阅读全文](https://www.bbc.com/news/articles/cvg5zd3nkkwo) |
