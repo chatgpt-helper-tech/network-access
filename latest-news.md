@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月08日 00:43:48（北京时间）**
+🕒 更新时间：**2025年06月08日 01:01:38（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| David Huerta, president of SEIU California, detained during L.A. ICE raids - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQeXh1N0dSMVI2NnluWmNuWEg1UmppbUpIdlFfeXZoeGtGR25OM0JVSi1RSndibjRnM1FENmtvV2xYRHBsbWYxdmdaa2trRXYzckJkNlktUUlBMnI0TGxFdGg2SUh5TDkzdndHYWNKQm9zT1R5WnktRU1XU3pNOXpubUJ4NklWaW5rdS13Ym9ua0U5VnBYRm9xRUhxREdtNVJoampGMDVUeWhhNlplWThVa1NRUW0ydGRY?oc=5) |
 | Elon Musk appears to delete some explosive X posts amid feud with Trump - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9sbTM4dUpZamtYUFdCWlpTRUt1WFpsX19CeFRyMHJVSTMyX2pDQVJFSzhISnhhdWVleV80U09pS3BWUjNfbkZWb2ptcURWR1M2RWZUemtoclNoNTBJVnhnNVg0cG95NVh0RHg5ZNIBckFVX3lxTE9DYUYyeGMxM3ZtT3MtWDVnUlg5UHdMUmRjbmEzd0FVaERzdHJ0cWhIbDNnVW5lczdLMmt2cmNxRHZOQ0EtaVFOdEUxMGNGbTgtejRhdksyT0p5YnlfRWxYdEc0TVZsdU1HUHBlbV96cjBvUQ?oc=5) |
+| David Huerta, president of SEIU California, detained during L.A. ICE raids - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQeXh1N0dSMVI2NnluWmNuWEg1UmppbUpIdlFfeXZoeGtGR25OM0JVSi1RSndibjRnM1FENmtvV2xYRHBsbWYxdmdaa2trRXYzckJkNlktUUlBMnI0TGxFdGg2SUh5TDkzdndHYWNKQm9zT1R5WnktRU1XU3pNOXpubUJ4NklWaW5rdS13Ym9ua0U5VnBYRm9xRUhxREdtNVJoampGMDVUeWhhNlplWThVa1NRUW0ydGRY?oc=5) |
 | Kharkiv hit by ‘most powerful attack’ of entire war, mayor says, as Russia pounds Ukraine again - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOOFdYQkpWa2xwc3RiV3VTYjYwbjlBZFl5SkdlYzdydXZrc2FBcmx0OFNUM25QakZUSF9kVGhUOWJ0UWpDZHBHbWh1ek1yYnNpWUNranlqX1hnYlFZSHlESlpoalYwUWlYZF9XQkV4MEZWSG1YOHFDWHBPOU5IcUdtQW43WdIBiAFBVV95cUxPbjVUZzBxRlNlSndSMkdRWnJEZmcxMGRqbTJ5WXFJWmdnTS1zNmNUZWthOXV6OTdVVjNoQnJqUVhKRml0YzVaaG90TTNvbWwxRjYzbWVnV0pKcGVrRmdtRHNiYUwxSERvVTI0ZXJLMTNNMFducWZwUGk0V0EtR2V2RWdiZmdCQ0Ff?oc=5) |
 | Kilmar Abrego Garcia Returned to U.S. From El Salvador to Face Criminal Charges - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNMEgxUHhqZHBfOThZV1dleG1iZ2syanVMZ3NVVHZaUWgwR0J3cFFMcEZxNDdmamI5UE5NZldEUzhwN1FOSTQ4MUl4STB4V1pjTDRoUjV6SzV1TFFFeGUyUDlfY2FublZHQkgtaG5GbXIycFVLdE5UWk9vOEQxZmZQejRrc25teWNvZmJ3MUNGanFweDhMREtv?oc=5) |
 | A former police chief who escaped from an Arkansas prison is captured - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPNUFreFczWmh1TmNsblp4ZTZFSHQzV3loN29IaDdCNnZncm10d2dRb3NVNnhaTkxQV0Z6WDJob3ZZN3NlZmpqb3RmWWR5Vk1jSXJsOFpFR291YmdlU3JVSURUdFQwcy1YWjFIWU9YQzhkeEVYMlRuT3EwLWp6ZHB4dVJPR2gxaHA1STJ2ZkxwYWwzU1JhUTY0dw?oc=5) |
