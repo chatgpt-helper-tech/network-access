@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月08日 17:43:21（北京时间）**
+🕒 更新时间：**2025年06月08日 18:00:50（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Trump threatens ‘very serious consequences’ if Musk backs Democrats - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTk9XSWVkT2pVY0k2SS1acWdETTF6YnV0ckpDT1IyWXNOUWE5N0JQeWhvb3pfT191UFdIcHFMcTZaanZTUElaaV9Jby1QNW5EZFdJaDFkUG84TFUyZ3lCYVJ6SFJuMVB1VGZvUUozeHN0ZUVLeXFsM1dhLXdkMnlwQTdkOA?oc=5) |
 | Miguel Uribe Turbay: Colombia presidential candidate shot in head - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE54ekx0S3R4bW9uVzJVRkNmVktkNnRrQ0lXQS15SXdfY2MxY2FFS212UFNqelBwcG9sQjRzNmhRZ2RXTUJSdUdSVi1CRVRjTjFTUEhKcXBXZDZ4UdIBX0FVX3lxTFBuZE1qVkx2cUZBRFp4MngyMTdxSEl1SUMxMjNLSTZ4SHRWTUUzTWRlaFQtcWkxTG5zVW9MUTFhMkUtaE1QSnFXRGx4Nm5MSjczYTFoUDBsNUliSmdNNlNV?oc=5) |
 | New questions emerge from the new charges in Kilmar Abrego Garcia case - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNazBZbjJZQmthTVFJRlJyTnFiaU5ObmRoUEhmY2Z5M2U4R1JKVTJSMkRoaE5TOWhkU1c2MWVCbk9fM2pMdnVPQl9XbHJIeEtmclgyXzl3T2stZy16eDVydmloNHF6R2Z0N2UweEhYNVFaOE5rTTA5eDRPLXhoV2xRem1HV3XSAVZBVV95cUxPTHA0T3dtNEliLTlSemx1ZW52S3JZT1dBUTFwX0VCckpSaDZHY19uUGdkV1o0aVF1Y1ZfdHpxZGZHblAxWXJPS1dYU1M3YUNydWNvYlBzUQ?oc=5) |
-| JD Vance says Elon Musk’s attack against Trump is a ‘huge mistake’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFA2eENjeDF6Y2U3eDFkSGpVaHE0TVowRGQzc2N5ek13NFZVb25RS3dmaGFFbzZ3T3RWeEExMFFvQkZ5SVRIQjktZ3FPWHFadmdEZm5VaHpLalJDTVpnVS1lQjQzclpnTWVDTEJTRTRRUzZ3UDRuTmh2VTNpOUE?oc=5) |
 | Italy citizenship referendum polarises country - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5JNFZPbEppRW9fU2tfYzlNbmR0eE5GSHRpMS1aN1JwQ3BZZ1dCczB5UnBWR0kyM01QaGlRMFRPTDJ5ejQ3WEJVUVRuSnF5WjFKQWNRNUpvbmVzQdIBX0FVX3lxTFA0TVBVRFVFWE50RFVzbHFJbThuTmNGdzAyWEVWN3QwdTc2ZUV4aUV2d3h5SElmT1p3Nld2c05MaG5CcGgyLUpHQ3psdTNOdF9BcjByNDZaYjRKNTJ0Q0tR?oc=5) |
+| Ukraine war briefing: Putin yet to retaliate in full force over Operation Spiderweb, officials say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxOOWExS2lmVnk2TVN1VndMTjlfeFczbnBScUtzWjdkU3BFZ3pKeEtoUFctZS0wb3N0TzJveFpOU3RuRExYNVNvc3NDdjQ2WTI5ekw0QjZWck9HS3lyeFQxQlAwdHJycDhHcHpJWmRnNUNTZy1NNDRiazZnbk81Z1dNUnJSRmNrVmhwanZBWmN3cFMtd1Q1aXpKS1Vla0pfeXkxbHV1dTVxYjFnZHBtelR3YkFHMjdrUmlJaVNBQ05EdFJxODRTbl9FYW5oaWNWRkpTcHkzMWF0WjlDQQ?oc=5) |
 | Decker manhunt: Officials reopen Icicle River area - KING5.com | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxOZU5rSkNhN3RyVGZlbFpKb0J2cS1IbjItS21vVUJlaE82NHo5Znl1cFQ3RGgzcUV1V3BqVTFNU3RfZG01VURHeGpkZHhCVkRXam9GZHpvUFNiR0lXVXFZMHhra2hNSmZlM0tnc0FUa1ZuYzlXeUVEejdaUHhMa2FWbmFFbHZoNDhXOUhvX2dtYzBHeF9rRmhLMEU2YlBWQXNEblNDV1ZXbHprQnoyN0VsY2xrUVVxUU9lc3NvNUJkaGdjMnVwYlNsWTNvdw?oc=5) |
 | Air Force veteran Gina Ortiz Jones wins runoff race for San Antonio mayor - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQYUNGanBxRVJJaTB0ODhrcl9YMlgtcDd0cTlUV3dEMGVrSUlXM2JjZFJCMWZoa3hDQ3lBRldVenowbS1kR3NpRERMTEZ4bE11LUgtNUw1dWg4cjUxcmVHcWlTaHNvSkZRT3RIUnM4RFlsTzkxWlNzeTVxOEVxLUdLbg?oc=5) |
 | Man shot, 2 teens stabbed in Dupont Circle - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1DdENnOVJIZFoxLXlxcnAxQXlHa0NZN0ZYTy10enRjV0JwNEtBZjdFQ0JqNFhSVE9ZdXRlRnpXaGMzUkRCckh5U1dqbENzVzBoWEwzbWZGR04tcXdDSGVKQ3pSVHlDV0Z4RHZuYl9WVjhETlM2V2d1X1hsUQ?oc=5) |
-| Cloudy skies can’t dim joy as thousands fill nation’s capital for World Pride parade - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNWGJaSmxmejk2Wi1WM1hTY2Mtd3JHcDAwNDlRZW9jVXBKeVJkRjVVUzhXczdmSWs1RXM5cHBzLUtjYzJGRjIyb2dSY1dIanNVSHJxNW9jRkxmQld0V054aDJqMWdHMG9QQUU2V1BEWF96Yy0zb2p5WkZ2T3B5VXhxOGNJdmpBYWRXc1haejhtYUJiN0xndFVKQzBIX18?oc=5) |
+| Multiple wires and trees down across the TN Valley following evening destructive severe weather - Local 3 News | [阅读全文](https://news.google.com/rss/articles/CBMikAJBVV95cUxQcUVzOUtMRFJvZEhfUktpZW0zTkRtOTVDbUFreVBISENJTGE4dkZCWlkwWDhNTEd3bnhmZGU4QXJRY1NQaXJwUTd0STNiSHY0ZDRNNnlYS2VPMWdLYTVpNnV2aFB3eVllYU0yam4yNWpweXU3VVkxMWdxcF9FT3NoTjk2dm9KVElTNHdObzVPODhxNWc5SFpuZ1hpcEVLQllWU3AtMXFQMndJcTNfeWcyTTh1RnRJQWJBcEZuS01xaEZjRmRMYUtTUVIyRUdodlpfVnBRYldPWTh2eWJ5ME4xMlZBVGFiYTBJelIxZExiQWtPX2o3dDRvNHJBYm53Nk1SdDRJRWl5enp4SEE3TjUwbA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
