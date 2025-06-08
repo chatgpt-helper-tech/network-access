@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月08日 20:42:15（北京时间）**
+🕒 更新时间：**2025年06月08日 21:01:49（北京时间）**
 
 ---
 
@@ -9,14 +9,14 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Bowen: Israel is accused of the gravest war crimes - how governments respond could haunt them for years | [阅读全文](https://www.bbc.com/news/articles/c0r1xl5wgnko) |
+| Gaza health workers say four killed by Israeli gunfire near aid centre | [阅读全文](https://www.bbc.com/news/articles/c5y5wpz49xlo) |
 | Police must 'do their bit' on funding, minister warns | [阅读全文](https://www.bbc.com/news/articles/cx2edggr805o) |
 | British soldier arrested in Kenya over rape allegation | [阅读全文](https://www.bbc.com/news/articles/cx27vqvkn9vo) |
 | William warns ocean life 'diminishing before our eyes' | [阅读全文](https://www.bbc.com/news/articles/c3d4387x1d0o) |
-| Colombia presidential hopeful shot in head at rally | [阅读全文](https://www.bbc.com/news/articles/c9dq8yxxy8zo) |
-| 'Our mum went to jail for stealing our inheritance' | [阅读全文](https://www.bbc.com/news/articles/cvgdzznggdvo) |
-| 'I burst into tears': How airline carry-on confusion triggered legal row | [阅读全文](https://www.bbc.com/news/articles/cz70ny09x07o) |
-| Labour tiptoed cautiously through its first year - now is the time to escape its own shadow | [阅读全文](https://www.bbc.com/news/articles/czdye1963jmo) |
 | 'I moved to Italy as a baby - now in my 20s I feel invisible' | [阅读全文](https://www.bbc.com/news/articles/c780yk3z2lyo) |
+| 'I burst into tears': How airline carry-on confusion triggered legal row | [阅读全文](https://www.bbc.com/news/articles/cz70ny09x07o) |
+| Chappell Roan's Apple dance, and other Primavera moments | [阅读全文](https://www.bbc.com/news/articles/cn4qn8l0pd3o) |
+| Labour tiptoed cautiously through its first year - will it now decide to escape its own shadow? | [阅读全文](https://www.bbc.com/news/articles/czdye1963jmo) |
 | Tinder's height filter divides daters - 'My boyfriend is 5ft 6in but it doesn't matter' | [阅读全文](https://www.bbc.com/news/articles/c98prk6ljdyo) |
 
 ## 📰 Google News
@@ -30,7 +30,7 @@
 | New questions emerge from the new charges in Kilmar Abrego Garcia case - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNazBZbjJZQmthTVFJRlJyTnFiaU5ObmRoUEhmY2Z5M2U4R1JKVTJSMkRoaE5TOWhkU1c2MWVCbk9fM2pMdnVPQl9XbHJIeEtmclgyXzl3T2stZy16eDVydmloNHF6R2Z0N2UweEhYNVFaOE5rTTA5eDRPLXhoV2xRem1HV3XSAVZBVV95cUxPTHA0T3dtNEliLTlSemx1ZW52S3JZT1dBUTFwX0VCckpSaDZHY19uUGdkV1o0aVF1Y1ZfdHpxZGZHblAxWXJPS1dYU1M3YUNydWNvYlBzUQ?oc=5) |
 | Italy citizenship referendum polarises country - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5JNFZPbEppRW9fU2tfYzlNbmR0eE5GSHRpMS1aN1JwQ3BZZ1dCczB5UnBWR0kyM01QaGlRMFRPTDJ5ejQ3WEJVUVRuSnF5WjFKQWNRNUpvbmVzQdIBX0FVX3lxTFA0TVBVRFVFWE50RFVzbHFJbThuTmNGdzAyWEVWN3QwdTc2ZUV4aUV2d3h5SElmT1p3Nld2c05MaG5CcGgyLUpHQ3psdTNOdF9BcjByNDZaYjRKNTJ0Q0tR?oc=5) |
 | Air Force veteran Gina Ortiz Jones wins runoff race for San Antonio mayor - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQYUNGanBxRVJJaTB0ODhrcl9YMlgtcDd0cTlUV3dEMGVrSUlXM2JjZFJCMWZoa3hDQ3lBRldVenowbS1kR3NpRERMTEZ4bE11LUgtNUw1dWg4cjUxcmVHcWlTaHNvSkZRT3RIUnM4RFlsTzkxWlNzeTVxOEVxLUdLbg?oc=5) |
-| Decker manhunt: Officials reopen Icicle River area - KING5.com | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxOZU5rSkNhN3RyVGZlbFpKb0J2cS1IbjItS21vVUJlaE82NHo5Znl1cFQ3RGgzcUV1V3BqVTFNU3RfZG01VURHeGpkZHhCVkRXam9GZHpvUFNiR0lXVXFZMHhra2hNSmZlM0tnc0FUa1ZuYzlXeUVEejdaUHhMa2FWbmFFbHZoNDhXOUhvX2dtYzBHeF9rRmhLMEU2YlBWQXNEblNDV1ZXbHprQnoyN0VsY2xrUVVxUU9lc3NvNUJkaGdjMnVwYlNsWTNvdw?oc=5) |
+| A missed drop-off and tragedy at a campground. How a manhunt for a father accused of killing his 3 daughters is unfolding - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQelZGLWYzTGE1a3V5Zy1BaEx6TGRRRVhTcWhMLVBpWGNpeGxkYzRjN3FFTm5xOUdPMlRRWGIzWVZia3JMT1FvZjRaVHlra2lObldnbFVCb2tPTXhwcFJUelV1NTQ5Rk50Z2t0eUNvVjMyWDhKRWVBeEtWR1VGTDBIWU5B0gGHAUFVX3lxTE1IdFhRcVNVN29lU2lnMkpPU1ZMSHFCZy13MnJOSUNBamU3MWg1TVE4dHgwZVJtX2I1d3Vldm1HM0xaTVFRbWdvcG5NWTd3WTlmSk8zVHN5dkZRN2xvZzFSbUhoYVdwUjZiaUhNQlEySFlOTWZmbXFpcGJvZWU0VG1weVdLRlNoQQ?oc=5) |
 | New disputes emerge ahead of US-China trade talks in London - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNazE0d0hPMnVqLW1MNTRRaHduODJEVGtVczFvbTJjM0VRZE1tSmhLMjVuOUxJZ251YVpmcm9ZemlzRHJwWTVMMlRiVWNIMVpsb1BtODZROGVVbDJLbWtfMWhsTXpEMWkyY1U3V2gydzh3dTVwWnZZbGRhbDV2VTZLTnNlSmZKNFA0QUluSEQ5cFlpZDlQNF94MElocmxLNndicTJ3akRn?oc=5) |
 | 2 juveniles stabbed at Dupont park and 1 man shot nearby during Pride - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQMUcxWmVLSTFMQmJiX09MYllwUlk0aVlPWU92cHJEM0Q0VWZPQlpGSTJ3QjNGVlg4UFZIOEh5ZVRacGhPMGhwdGI4NVR5VWhnYzl6U292akQ2eHRIdEVWLUtXcVVlQ0hZLUlKNGJ0cFdkTnFSU3g1NDVWc3lKWDk4NWJhWkdOZUhFSnpsalhn?oc=5) |
 
