@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月08日 16:42:10（北京时间）**
+🕒 更新时间：**2025年06月08日 17:01:05（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | JD Vance says Elon Musk’s attack against Trump is a ‘huge mistake’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFA2eENjeDF6Y2U3eDFkSGpVaHE0TVowRGQzc2N5ek13NFZVb25RS3dmaGFFbzZ3T3RWeEExMFFvQkZ5SVRIQjktZ3FPWHFadmdEZm5VaHpLalJDTVpnVS1lQjQzclpnTWVDTEJTRTRRUzZ3UDRuTmh2VTNpOUE?oc=5) |
 | Decker manhunt: Officials reopen Icicle River area - KING5.com | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxOZU5rSkNhN3RyVGZlbFpKb0J2cS1IbjItS21vVUJlaE82NHo5Znl1cFQ3RGgzcUV1V3BqVTFNU3RfZG01VURHeGpkZHhCVkRXam9GZHpvUFNiR0lXVXFZMHhra2hNSmZlM0tnc0FUa1ZuYzlXeUVEejdaUHhMa2FWbmFFbHZoNDhXOUhvX2dtYzBHeF9rRmhLMEU2YlBWQXNEblNDV1ZXbHprQnoyN0VsY2xrUVVxUU9lc3NvNUJkaGdjMnVwYlNsWTNvdw?oc=5) |
 | Gina Ortiz Jones, a Progressive, Is Elected San Antonio’s Mayor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNQjZRU3U4WjAyd1NGQjFMa3pzNjZkYnpPcXZ2blUtTHYxTTd1S002VDZxSjFLU1pGT1RfcmNOSGxLakJDRGRxSEh2cXVET2MtVmhlU3Y0NmhkVTI3cThmNkZEOW50ZUk3ZTRENG9XcFJkQm5DMmYyamxOSmN3SHQ2cFBDbTF4MExadldLTXln?oc=5) |
-| Cloudy skies can’t dim joy as thousands fill nation’s capital for World Pride parade - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNWGJaSmxmejk2Wi1WM1hTY2Mtd3JHcDAwNDlRZW9jVXBKeVJkRjVVUzhXczdmSWs1RXM5cHBzLUtjYzJGRjIyb2dSY1dIanNVSHJxNW9jRkxmQld0V054aDJqMWdHMG9QQUU2V1BEWF96Yy0zb2p5WkZ2T3B5VXhxOGNJdmpBYWRXc1haejhtYUJiN0xndFVKQzBIX18?oc=5) |
+| Man shot, 2 teens stabbed in Dupont Circle - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1DdENnOVJIZFoxLXlxcnAxQXlHa0NZN0ZYTy10enRjV0JwNEtBZjdFQ0JqNFhSVE9ZdXRlRnpXaGMzUkRCckh5U1dqbENzVzBoWEwzbWZGR04tcXdDSGVKQ3pSVHlDV0Z4RHZuYl9WVjhETlM2V2d1X1hsUQ?oc=5) |
 | A former police chief who escaped from an Arkansas prison is captured - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPNUFreFczWmh1TmNsblp4ZTZFSHQzV3loN29IaDdCNnZncm10d2dRb3NVNnhaTkxQV0Z6WDJob3ZZN3NlZmpqb3RmWWR5Vk1jSXJsOFpFR291YmdlU3JVSURUdFQwcy1YWjFIWU9YQzhkeEVYMlRuT3EwLWp6ZHB4dVJPR2gxaHA1STJ2ZkxwYWwzU1JhUTY0dw?oc=5) |
 
 ---
