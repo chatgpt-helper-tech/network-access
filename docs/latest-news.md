@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月09日 20:22:26（北京时间）**
+🕒 更新时间：**2025年06月09日 20:42:10（北京时间）**
 
 ---
 
@@ -13,8 +13,8 @@
 | Britain's energy bills problem - and why firms are paid huge sums for unwanted power | [阅读全文](https://www.bbc.com/news/articles/cdedjnw8e85o) |
 | Teenager jailed in Dubai over sex with girl, 17, pleads for early release | [阅读全文](https://www.bbc.com/news/articles/cn0gn722jd7o) |
 | Sarah Snook and Nicole Scherzinger win top prizes at Tony Awards | [阅读全文](https://www.bbc.com/news/articles/cx2ql1jl74no) |
+| Prosecution case like a movie script, Mark Gordon says | [阅读全文](https://www.bbc.com/news/articles/c1ld16y9vmpo) |
 | Reform UK row 'storm in a teacup', says Zia Yusuf | [阅读全文](https://www.bbc.com/news/articles/ce81kj65x40o) |
-| Brit Awards to leave London for Manchester after 48 years | [阅读全文](https://www.bbc.com/news/articles/cdxk7l58xjzo) |
 | Xbox finally reveals handheld console after a decade of speculation | [阅读全文](https://www.bbc.com/news/articles/c1de113lkdpo) |
 | How LA erupted over rumours of immigration raid at a hardware store | [阅读全文](https://www.bbc.com/news/articles/c1kv1lgdpkjo) |
 | British photographer injured by 'plastic' bullet | [阅读全文](https://www.bbc.com/news/articles/cvg7vzrj6g3o) |
@@ -25,10 +25,10 @@
 |--------|-------------|
 | In photos: Trump deploys National Guard to LA as ICE raid protests flare for 3rd day - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNM0RXbmtocHdCcERvNWdMWTRsZ2RnYzliQzZBcC1YT1hTeThGNGNkd2psOXhVNkJmWEF6OVlSTWVKMk1BajFkUlF3TDNMT3YwMU8zUE01WTFnRk16WDlwWndJMUs3d3hYc3dkcVZPeVVQVUR4enJCZ3dJNlJHcXlXTVlfeE1FX0hFbFE?oc=5) |
 | Israeli forces halt Gaza-bound aid boat and detain Greta Thunberg and other activists - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQY050UV9VR1dETnhjVlZxWUVfUldpOTA0LXR5cWRnVl9Dc1d4Wjc4eVM3aWJac095U2ZSV2VacHhKYVRqemZjX3ItdFJUREpack9OcTFZU240SFQ5TG8yeUVKLWRjSGVJcjJxeU9jejg4YW4yQ1ZQWDdvc01lcF9OU0w1RC03c3o1Vy1EUXI3MDhSbTlETFhPdXBUem8ycWlFdVM5V0xPbThSNUJUMU1PMUVn0gG3AUFVX3lxTE9MbTcyR0E3UTVrZ2l4VkQ3aUZaYk15TjgtcnNDTFhTOVlQa3dsdHoxMlRxdzJ4djIxLWdWS19RUGhtZFoyblJSVURUdU40RHU5dzkwVmZTMEppLS1YdDNKc01nbHdvZUI5WHFzS3ZGR0FWWk9lZWxmb3hnYXZJVld1RWQ2anozNDV5Um5aNkF5TWRJVGdkUVZDa1d1RHREMFd1cVFySW5GM2kycEVBTDVqdlAwMzFMSQ?oc=5) |
+| ‘Arrest Me, Let’s Go’: Newsom Punches Back At Trump Border Czar - HuffPost | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPMXFmYnlqallOcUNrQWw1c0hnWlc5T3l0Sl8xb0ZxUVdtb0laVllDcTVHZDN0VXNRYWMxTHdLdk1WRS1oYXpSUU5XV3pSUW83cFlaVHhTWnN6c1l6SUo3Z0FyclZ0RVhxRXIzNC1XdjZXRHhPTVNNSFlLUGJmbG9MT2RkSGlWTVRGY1pFdWo5MVZ6SXNvWEpDZThxN2FWX2t2X2tz0gGoAUFVX3lxTE00anZTZmFpemNtRzZNUXh3LUNxcWtsdEF0UExvTDV4anBQbVZQdm5tVHQ4WlF1cWpRdzVYOWpidFRYcXlfNGtjeHJmRnMwYlNpeHB4Ymlla0J2WWxFTlhrUmY3VC01dDNINVQ3VkVpUFY3ckVZSmJ1a2dkVWRzZUstUjRvcGFyRTUxUDVLaThfdDJodWh3akRTNlVVck4tQy1BUk0xYTZ0cA?oc=5) |
 | Trump travel ban barring citizens from 12 countries takes effect - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE03YUh2b1FZSVhxWHZOQkRlRGpNRG5sMy1BUDJLdnhGWWVLY1ZxQ25KUHdvZjFoU1VfbVB1c0Q3cl9qM2x4aloxMzZpanB2dTduNEdMbG1zWXNOUdIBX0FVX3lxTFBUaER6S1lTMEY2Z2pVWTlZaWg1VGtiWlU2azJ3Q0R5TkN4OHdmdUJrbWk0VFdtY0Z6N1BJbFdnZ0FibEYtbjlhQktJUE55ZWxKV25SNldzVndfVFE0MmNj?oc=5) |
 | U.S. and China to Meet at Precarious Moment in Trade War - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPbm1BMTVjOVpqd1pGSmphTVgxdzJzbUNNTHB3T0gzNldMQVN1eXp6UXRxMzZNM1lzdVJLaDhYMjlkeFZOaS1nTVAwTGU3cGVXSWtxQ3VuTWc4QlpjckdwNlQ1WlBhZFc2UF9xb0lORkJ4XzJYTGZhcXJmaVZ3UlRsN2l5OEgyQQ?oc=5) |
 | Silicon Valley's not crying for Musk - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9xU0V0S0dfTjVFUHBMblhaR3FMMDZ5WF9hR3hFOXdiUmdPMEw2ZDV2Tlo5Q2ltbUEwTUFwRXJUcFdPZzJVTFpmME5pV0Fia0p0Mkk0VUhaMnFNc0RBWnBiOVYzRDA5Mkg4cF83Mg?oc=5) |
-| Trump has long speculated about using force against his own people. Now he has the pretext to do so - The Conversation | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPdThURVljUTBlRnVwejdwY0xXd3hTZldIRVFpZU14Wm5JVk5hdW5ndUdIUi1SXzVDZHRtRm9oVkRKZ3daQVh6X3RRVzFvdl84OGJ0SVJQTTFfODVWbHlnLXJXd2ZTLTl5SjloSlI2YWI4TW9MSEgtckZQb1doYVVleUNCX2NyVFVWNkRPd3JkSHAzTjBpeHhHc2pBWjBZQ0U0ajNGb05BUXg4d1FYeFdmUFZvdXpUMVdubnZmb2FWd21fZ0QxdHJJZFpiZm84QQ?oc=5) |
 | 2 dead in Las Vegas Strip shooting, with suspect known but not yet arrested, police say - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQWTdvQjQ0ZXVGWl9IUUt4X2MzWWtKMW85UDlXTEE3M2FQTWdBd3p5bXlzcEZLaDg3T1dRY0otcDRhZmJfVm9GQmpmVU5GU1RVZVUzNVRFMWZnYkhWVkFmTmx0cDlma29BbHpNU3VHcERVWWhTNE00NGthTU9RdlFUbmNuZlpaNFEyY2cyRtIBkgFBVV95cUxQaWsyanU2ek9kWEtfQUxQOUJGd0RnY0JqYUtJdWhHeDlNZ2h2RHVIZUEyalY2Ti1waHBwbFhfMWhtT0NEZkZyNlF3UWJJTXlnbGFwVm9LSW9Bczd6VWJBY01CTlBqbHBKSUhtMlRibG9KRWdFMGc2bkJUSDhRS1F5Qm53TlMzTjVOYXVxcDROUjdPdw?oc=5) |
 | The stealth Senate dealmaker who could deliver Trump’s tax cuts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNcmVrZTI5bDZwVnRTUk5tOFdzTlRTeUdfd0JHQU5SMURpYVpxM1BLQlM5bXhBRS1raEt0UHYyMGs1aW1YTGpCVnNhVWhOY1I3Y19RZDJvRFB6Tk1URDQzOU5oOFFBWGprdEZrSXBCSUttN0tCN0FZN2tlMW1vdXJsbmFsU3lKNEMwOU1qUnBMQ3B2dWxPMk10NEJpaVZwSExRSDFiUWJQdkFWak4xdm1zM3Fn?oc=5) |
 | Democrats’ big bet on the Big Beautiful Bill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOQjlndzVZVUFySkxYVi05Rlg4YUhvOXVEaDJsMkkyQlVyZG9vemJQSktmTjU1eTEtZnQ0aVhOUEVraktsNFlkd1c5ZDF4ZV9Hdi0tekZWYlhfV3B1elFHNzUzQ3dVS0MtUFp2UXdGeGVGc0NPY3ZZaFVTUm1DUkhMMk1nRll4YjNlYndsYWZlbjRNSTRfYy1r?oc=5) |
