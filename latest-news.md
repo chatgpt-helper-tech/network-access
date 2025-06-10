@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月10日 12:42:54（北京时间）**
+🕒 更新时间：**2025年06月10日 13:01:34（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Palestinians say local gunmen and Israeli forces opened fire near Gaza aid site | [阅读全文](https://www.bbc.com/news/articles/c79e0zxy2lro) |
 | Foreign Office staff told to consider resigning if they disagree over Gaza | [阅读全文](https://www.bbc.com/news/articles/cy8nzx1475ro) |
 | Teachers can use AI to save time on marking, new guidance says | [阅读全文](https://www.bbc.com/news/articles/c1kvyj7dkp0o) |
-| Sly Stone, leader of Sly and the Family Stone, dies aged 82 | [阅读全文](https://www.bbc.com/news/articles/c4g2d5yz1r1o) |
-| Disorder breaks out in Ballymena after alleged sexual assault of girl | [阅读全文](https://www.bbc.com/news/articles/ckg4v04p008o) |
 | Paternity leave is outdated and unequal, MPs say | [阅读全文](https://www.bbc.com/news/articles/crmk07jyjmxo) |
+| Disorder breaks out in Ballymena after alleged sexual assault of girl | [阅读全文](https://www.bbc.com/news/articles/ckg4v04p008o) |
+| Sly Stone, leader of Sly and the Family Stone, dies aged 82 | [阅读全文](https://www.bbc.com/news/articles/c4g2d5yz1r1o) |
 
 ## 📰 Google News
 
@@ -30,7 +30,7 @@
 | Trump announces $1,000 government-funded accounts for American babies - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNSVZXQjRDTHlGUEs5LTd2QTMyZGZON2diSXc1OEt3bk9VOUZVemYzTEZCRDZTa3czVG0tQ3dTYjc2UkQyeGFxNWlyV3luQ0VJckkxN2d2dnB2T2x5WkpMMEw3azJFWXM3b1BWYmxYdzEwTzZiOFEzY1h4cC1yUzRHeWdR?oc=5) |
 | Pam Bondi's brother overwhelmingly defeated in heated race to lead the D.C. Bar - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOOERiVXJoS1BtWkRlclpUVG00X1U5LXAzOENKU0FtOHR6MVA3OW5Qa2tRcjlxckZ5NXEzc2RDV1ZQRzFWWS0wZE5qamJzT3pXbjV0a0lBdjJYRHdQSlRrYTR3emFHQkNZR1ZLQkJvMzZNd2xNN0dpVzdPaHVjQ0tTUnRmeUhWMmc?oc=5) |
 | Waymo Limits Service in San Francisco as LA Protests Spread - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQZS1LUnBNaVdwN2dqRnkydWdDT290ek1nME5pa0hzMTRUQ2tDOGxpcjlCVUxhT1NIUEdtNEtFc0N2RWtKRFJmZHR4OEc2cGpDMUNkZGtBMy1PVUdkN2JuaC1lcUVoU09rekpWc2tCMm5OdUxtZ2RZVk5TXzlZclo4ZzhOZzBvMjdob0dWQmpuRFA4V2RiOGc?oc=5) |
-| White House Pushes Texas to Redistrict, Hoping to Blunt Democratic Gains - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNdVAybXZjOUM0VUlNNlIwT2xwRUpVTlJHclh3NHBYSi1DbFFLTDh4SFYtWWREVGtOYld1OG1Qd25Tb0EzOEgwTTZXSUFkeW83UXV0TVFkemV3UUVWWTZ5ZGhGemVmVFQ3UXhpdG1UbUtmZEUxc2tlMGtKdHhERWwtcGVlTQ?oc=5) |
+| Texas’ GOP congressional delegation meets to discuss redrawing districts ahead of midterms - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOTzhYWUJoZHBOeVFPeThsZE1FS2JLZDlvX1dVZ0VEVEdRdUk2elZhZUpEUFdWTjZwQ0g3TF9reXhrMnliczJXaW1PeEI4czVVaEp0d1Npa2pwVXVuU2JzQzZkeFlIMWdBTlEzWDY0aWZwVW04NDMxR01vNFFxczBLaGVVNXQtbWxJWVRHYS1ZUUxadW9ESkZ2RnA5WDk?oc=5) |
 | ‘Everybody stood up’: Why a union leader’s arrest galvanized California Democrats on immigration - LAist | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQLXFkSE9ON3NVR0dQNzgyWGdGQlkwMWpaSnp4VUZPWmdDb2E4QmgybGt2SzFUQmRybktqSUNNdWpqRTNXbHgyWXJ3MjFEXzllR0hucjVCc19jdjltS2pKdmxGaHlnUXhpQ2U4TzhDSl9yNUNZYU5BOFQxM1RJQWVudVJHWDNkNDlUb1VNUThfTmNjWWdXaVNqSUpOSkdUQXppR0RhYg?oc=5) |
 | Tennessee Republican Mark Green to resign from Congress for private-sector job - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQVEV0QmxBV0h5TllqRzgtT1ltMVNBajRJUm1WT3ZvMzFJMWhDSTZSczZ2VGpUNkZieWVlaWFDdTU0ZEFZSEg1TXh3RWdOdlY1UlZFTW1tMHJ5aks2dUdTcXRDZTBjbDNHbVZKVFExbTJ4U0cwQVZVSXJ0WVpuYjZmMTQyX2xSZEU0MFZVa3o2RUNVRkswUEw3X0d2X3FvM3IwUGZrQWJlaTJNZFh5WnlQT1p5Wm9seE5UTnfSAVZBVV95cUxQd2EwOUNtNjV2UkxrNkhrZDRuVmpibmRXVmlwNm1DaVpZYXV2UTQ1dVZMbXBIeU9wSmdWdGVEMjFiREFOYW5FX3B5MVltSW9FWG1BLWxnUQ?oc=5) |
 
