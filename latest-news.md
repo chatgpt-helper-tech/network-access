@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月10日 22:43:52（北京时间）**
+🕒 更新时间：**2025年06月10日 23:00:13（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | At least nine killed in Austria school shooting, authorities say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNTDBpNDdWbzV5RjA5ZU9yZEozb3VUV1hDanluLU83aGJaODh6cnhtTEN1MTc3WUtHdzZqWDNqbVlWYllFNmw5aVNZWmdQMjF4alFhQ2w1UkRzd0FqTUlWRkRYb2VfRFNJRFVSSFd1bmxscjMzd0VZa2hhUnlqek13SUVzVTZZTjRacnpB?oc=5) |
 | Army parade will cause numerous D.C. street closures, some lasting four days - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQY0doWkZxQnd2WWVhaU5lTS1nZmI3OS0yVHNYbTNabXE0T0dGYjVJOC1LMU0zdUt0WUxtQkRCV2xJV1RuYnhZM0hWZFZUbk9NdjZFZThMTFg4dkdFMldPb0VZekhMalFXNDhJcV8xbDRRaGthZnEzNnZTUEpQOUk2TldoWHZFQjBNR01fVURoN2VwSk9P?oc=5) |
 | UK sanctions Israeli ministers over Gaza comments - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE0xR19yMk5WRlhVMDVhR2tUMWtYdlRWM29yTTZ5djRWN2tnN0QtaEdMYzNjVk5RQmJsVUE4eDlGT3RKWk9iRjBKZno0NGRINHh4U3VkNS1WSG9oZ9IBX0FVX3lxTE92b1d2U3F0QXM4dnNDaG9VbWEwbUxKMWhWTDhIelRkaDhjTFZKT2tqdm5OOUtMRV9fTFUtNzh4Z2VDWE9mdzQ2UzZKdXFCQnBWdXp6MkRDSFg2WW5KTms0?oc=5) |
-| RFK Jr. removes all 17 members of vaccine committee for CDC - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1VT3ZYN2pfaHFzR2kzZ2pjazFlUlBDbmRZampueXhtRUh5OXFjbGRQNk1lcl8weF9SeFdxMXAxdDVEWXdIZVNVaDJ1eUZic0xNajZYR3VsTWk1cFFINlVibVNKNzdmV3VaVVZyb1VmUWFwNkpkc1dWOVB3?oc=5) |
+| Capitol agenda: GOP eyes cuts to Trump’s tax promises - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQaHVxRVp4WklkNmc0djN1S2hMM1hGWlMzX3FrQmZNNWpxNFJHSWhHVWxJT0xEOVRQVktoZGRTbXYtOGNxbTVheHRCdDVTaFJnX3JGLVBOaGNxSzdXb1JnVUdpSTR6MHRVX3MwcU5hS0d2Q19IeVlQT0VUNThISGZnUTVyN1Z3R1RYQzNqRk4zVjltVzhRSEkwVW0xVTVCRjE4VFQyaHdIb3N0YjVjQVgwdW1lRQ?oc=5) |
+| Inside the MAGA vs. hawk battle to sway Trump on bombing Iran - Politico | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1hMEhLZDZpM2RkRERmT2thZGRRZzVCaS1rM1Ixc1FvbWhuZVU2b1hCOXkwOG16ZzI4SU91LTE3czExdF91ekRMTnlLQVFYNXBMdzZ0MEtCbzlfcGNSSmI1N21MU2MtT3ZWNGo2SVRvd192SXlsNnN1VUUwQQ?oc=5) |
 | Trump–Xi call boosts Chinese president’s tough man image — and may have handed him the upper hand in future talks - The Conversation | [阅读全文](https://news.google.com/rss/articles/CBMi3gFBVV95cUxPd2FGZ0gxbU1NaHpMeUEzb3ZqM0xrR1pJNWJEbFY3aHNLaDB1MU82ZFdyS09zaE5LdEFsWHZKTGQ3WE54eHJ5Yi1NZzEtZDJqZE42b3B5UE9nTXlEaEJVbUdLdUt5bTczenpRa01JNndYV1U1NC1ZMlQ2aGU0UEJyazljVXRCc1B5X04wbDVMN0ltVUQ4bWRJZkNWUXRWZHp4eHJMbmc1Ym5ja05OZXl0N3A5Mk4zb0tfTHJsdjl5ZGk2SE41UWgyaG5KUF9zdFRPV3BuQjV6SXpOMWdHT1E?oc=5) |
-| Steve Kornacki: The geographic dividing lines shaping New Jersey's primary - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQc2pnY3ZqZ3BPaTg1M1cyME1mQndzTk1oVERocllwbjRXTzlwMEZlRkk4Y2NkZ1J4YmNKWnRITkJ5aGtSMEh6VmFIaUp2TkQ2c1VOYWZoWTJzSTYwV1V2RmplSU1LVWh5TnE4SU5meHpRVjlLbVd0aW9RMExHMXdWbGdVcUh5bUJRYU9ORmI2aDc1U3pCdjVpVWJhNkdUSHVnNmhRTjFlWmtPaTdJZXd2c3AtRktFSXg2V2FFUnBKRdIBVkFVX3lxTE1jTGNMXzRacU1UYmNEanpHaEhWU2FIX0FTMTRLNHNMbzBDcVBwOFFhZFV5WGJRYndnX2ZGaUZtVXVyQUJHeThZR3kwYkdHWC1KdTVKTlF3?oc=5) |
-| Who Is David Huerta, the Labor Leader Arrested in Los Angeles? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNekZRV0RzZnRocTdjTy1LeXBXT0ctanN4VklWNHg2LTdseTJyeEtkV0FLTDdhaHJpMjZKVkZ2ZlY5bl9rRjliRFkyYVhDeDhMR3RtRnhlMEJpUl94b2xzX2JvN2ZDZmg1QVZDdjJtYVdxOWU1eUVjUnFValE1aUdISndHT2F0cTg?oc=5) |
+| RFK Jr. removes all 17 members of vaccine committee for CDC - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1VT3ZYN2pfaHFzR2kzZ2pjazFlUlBDbmRZampueXhtRUh5OXFjbGRQNk1lcl8weF9SeFdxMXAxdDVEWXdIZVNVaDJ1eUZic0xNajZYR3VsTWk1cFFINlVibVNKNzdmV3VaVVZyb1VmUWFwNkpkc1dWOVB3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
