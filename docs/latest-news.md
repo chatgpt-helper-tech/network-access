@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月10日 11:21:05（北京时间）**
+🕒 更新时间：**2025年06月10日 11:42:14（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | The US and China are holding trade talks in London after Trump’s phone call with Xi - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQUDNfQnNrWF9vMHo4Q1M5d0h3UFREa1R3cWFRLXhLajVnRUVjajFrSWt5Q3FhaU4tcnlrNFh0WlFCZEdoTlB1bGdxTEtDUnplb0VtVXZyc0NtSGNHMTB4cEVjdFl1TGdHQTh2RlFrNVdQZXRFeHVtQnJZWFJQaHR4TGtxNmVlUm1FWGNxS1lUZFQ?oc=5) |
 | Trump announces $1,000 government-funded accounts for American babies - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNSVZXQjRDTHlGUEs5LTd2QTMyZGZON2diSXc1OEt3bk9VOUZVemYzTEZCRDZTa3czVG0tQ3dTYjc2UkQyeGFxNWlyV3luQ0VJckkxN2d2dnB2T2x5WkpMMEw3azJFWXM3b1BWYmxYdzEwTzZiOFEzY1h4cC1yUzRHeWdR?oc=5) |
 | Trump's travel ban is now in effect. Here's what to know - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxONURoQ2dCMjg5bFIxQ19hQ3dqOFRBYUdBTWFENkxxdkNuWXpqckx5WVRPZU9qUUtEVC1wV2JTd21RTVZaNFVJZEplbWgtSE1kbTdSX2U2TEkxXzQ5THJJU1V6ZVpxZk1waDlfbk1fcEdyZEdJWkl5cDYzbWM5b1NrQXJxdFlmdFM4VndqRUhaMDZBMHRnWnp4bzNCaw?oc=5) |
-| ‘He’s waging a war on us’: As Trump escalates, Angelenos defend their city - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOaXNTN3ppNXprWVIycmhUckN4bS1fOFM1NGFrNTgtNHBHeHNXOEtnTjJjRXhLaGZCeHh2NVlLQVlOWFhjb29QWW1sY1RwbHJwNTNVWFY2QkNITExyOUlORWRGZTMxZGJ4MUp0Y05EaFFzSGRmYS1MUWtnUEUwV3VOWjVvR3ZEdFFVX2hidS1fSFlhYmJZ?oc=5) |
 | Waymo Limits Service in San Francisco as LA Protests Spread - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQZS1LUnBNaVdwN2dqRnkydWdDT290ek1nME5pa0hzMTRUQ2tDOGxpcjlCVUxhT1NIUEdtNEtFc0N2RWtKRFJmZHR4OEc2cGpDMUNkZGtBMy1PVUdkN2JuaC1lcUVoU09rekpWc2tCMm5OdUxtZ2RZVk5TXzlZclo4ZzhOZzBvMjdob0dWQmpuRFA4V2RiOGc?oc=5) |
+| ‘He’s waging a war on us’: As Trump escalates, Angelenos defend their city - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOaXNTN3ppNXprWVIycmhUckN4bS1fOFM1NGFrNTgtNHBHeHNXOEtnTjJjRXhLaGZCeHh2NVlLQVlOWFhjb29QWW1sY1RwbHJwNTNVWFY2QkNITExyOUlORWRGZTMxZGJ4MUp0Y05EaFFzSGRmYS1MUWtnUEUwV3VOWjVvR3ZEdFFVX2hidS1fSFlhYmJZ?oc=5) |
 | White House Pushes Texas to Redistrict, Hoping to Blunt Democratic Gains - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNdVAybXZjOUM0VUlNNlIwT2xwRUpVTlJHclh3NHBYSi1DbFFLTDh4SFYtWWREVGtOYld1OG1Qd25Tb0EzOEgwTTZXSUFkeW83UXV0TVFkemV3UUVWWTZ5ZGhGemVmVFQ3UXhpdG1UbUtmZEUxc2tlMGtKdHhERWwtcGVlTQ?oc=5) |
 | Airbnb attacks New York mayoral candidates in $1M digital ad spend - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNVm84VldiSnJRQVEzcVhDNkpXdkhWVy13U3c3ZmlWM1cxTTRTZDNUYWc2akdTcHh5c1FwTTdIZkZreTl1LXNTX1EzaWR4QlFqWVJjejVVNUtSOWREenZHM29KeTZERloyclQwLTM1VG1EaHZYWTFqQVE5bFg1bEw2blU0VVhpSmhmbDNzbDNtVmNiMzUwSG1VV0VJT1hwaXlqV25VRldTMFM0a1U?oc=5) |
 
