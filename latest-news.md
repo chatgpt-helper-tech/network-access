@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月13日 03:42:08（北京时间）**
+🕒 更新时间：**2025年06月13日 04:00:48（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump Blocks California E.V. Rules in Latest Move to Rein In the State - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOeDFCSnB4Uy1TaXA5aFVURUVGbHd0VjhkakRGcXFIclhXS2wxdUcxcFN0MmthM3hYV0Y5MENZMWh2TmswNnF6SzNoMm9VWV8xRXB3bnFFb2drZXlwRlBZTTRaV1R1blpGN09rU3c4eXVuRndTa2JyVzRZYVhDUTdLaElPTFdxVzQyRDhV?oc=5) |
 | Maps: Visualizing the anti-ICE protests and government responses - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiXkFVX3lxTE5iT0o1Q19pSldoTXJDZ0tzODh2Z2Jhd1ZXU3JNSlBTWEdUSkxYeERxeHBmWEUxOXE0TnotQTBEX1B1NTNtSjZweGI1V3hOSlRydTRBWjdkSjVpVFQwSFHSAWNBVV95cUxOemdqNkk2OWsyNzB0NkZsZGRORWNodXFuSVozRGNRdTJtWHVQTDM5Nm1JUmJ6d3A4RXNOMTUteFBsdEF1clp1OGRYb2dFdzVUWFlnV19fZGRlNnJqUVJUYXFiVU0?oc=5) |
 | Supreme Court says family can sue over wrong-house raid - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQZG1WbmxRTmdod25vb0J5bWdLb29OWVpZZ3ctQmgxUUx5T1Bfd2VEVjE0UnJMRjVReC1PdzEyeEpkNWZWeHFmMWlVaDNMcDU5RVN1Qk94Z090ZFIwN2RJTURMcHJUZ3lpU0FaZlYtaElTUFBsS2NrSUFEOHI2YkM5TkNvZ1RHZw?oc=5) |
+| Hegseth says the Pentagon has contingency plans to invade Greenland if necessary - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQYklqbFRtSk9OWDNDQWx2TVg2ei0yajMxZEU0MTVWbV8xelpCNHc0NXBXWVBnSXZpOUF2enM4SmVlUXZPcTBnYVpYTklXTkc3R3J3UEtzNkhXYjlKa20yd283N2NvZFh6MFRMeHltZG1rQjR2TUpUdW9WYkV3TzF6c2tXaTRlclR3alk0LXZCTTlhMWp2MnJCUA?oc=5) |
 | ‘It’s a winner for him’: Dems work to turn LA debate from immigration to Trump’s executive powers - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQRW9kZHo4QUlNLUhTY0pQdHI1ek1nb09WNGJrRDVTR1RGTDBsNXJ5cU5RUFRhc3c0ZHRuZ21pcUJZNFlKUUNIYXZWN0g5QmdlVDVnNjNfcmRESzdhTkpRQ1FEWVZULUhqUVk3M0hWLVNSMjN4LXo1NU5INFFKWVYzQVdZQUNFUVZEZUN4NXVUaU1IQmtf?oc=5) |
-| House will vote on Trump’s request to cut funding for NPR, PBS and foreign aid - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOVV9IN19aMGl4THVhX2V0X0U5eEJIOTY2SUdWc2U0MXJ4cHBWNnRreUJQTEd2c3E5QkV1VmxSa1VNVUZwSGtFT0dfVzBJR2YyMzZrN0sydFpTc2ZXRGZUVW10R0dLaUdDdVRWSUJWbXU4NE9CSV90Umg0VlVBWlppdnRJZEpGZU0yNmZCYUJoNjlvNVZ0OXc0T0ViQ0hSenBV?oc=5) |
-| Protests and curfew cancel L.A. Phil and ‘Hamlet’ as arts groups’ losses mount - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxNdnJrd3RXSi01MkJZVkU5WnlWWE4zYWdqZEQzdGNtdEdjX3VpdDN5SncxTks2VEJ3aElhZkxMblpod0ktb1k1aFNrdi1zSHlOZ1FmQWRwVlJOaFktRzhqYlB5ZFZrVm10N09RRFZrZHRBeVJqR1NDMnBNM1lTQUNRekw5aTFHeDZFaElJa3c1S3dWUHBBclpoN2RGbVlBSHRGWEQzeW5NbjFrbUhDTGZ3SEF1VVp2V1Q2S2Z1bjRGdlFIYmEtbV84VkE3VQ?oc=5) |
-| Boos, cheers and a heavy dose of irony as Trump takes in Les Mis against backdrop of LA protests - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxOXzVLMG9WNHFzWFFxVlg0ZDV1b0hDSzlxOGpKVWhqb2ZaSVdRcFlzWHZqekF6Q3hKQ0RiaVJISENWREQzWHBkVnlKTXpWOXJMalRzSGhTWHREdHk1Z1dTcmk0cVhzdVhDR3BOMUdaRlR3Z2hvS2dlc2FLdHotMUszQU0yNmpLbHA2QkRrMVg2bmhGY3piaDVPdWJRdkplQ3FnUTBaYWk3cVZWMUE5OG1PSWVMVVZjVHlnXzVHWXhzNC1EeEJ2SENTSk5fMDFMMWdhaG9iZVVBTDFxdzg?oc=5) |
+| Trump mocked at Kennedy Center opening: ‘Someone explain the plot to him’ - PennLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOcy0xNU90UXNfc1VCdFRVZHA2Y2hJc01xdXJKZ2twRUpVMm1BRzI1QkFnN1laNGNGNTRJUTRjbzYyOFBGYmVGZ2RfWXRWZE9mUFROeGdEZ1ZwTlJCLURTdVJUMWc0VEtiNmxUYUI4WTNXRnlHa2FJTUZCdTgyVVBrWWY5eWZuR2xabUdET2dRTlM2X2lZR2VROExGOG4tQm42UXBJMW9mNHdvd3ZwNjNKTmNIWXpPcGJz0gHMAUFVX3lxTFA2bzhfMmdHNXRWaUY4b1oySDk4T2tPU1h6TUJmcEFYeWRrQ2VWOURBaHJMRVVwLVFQWHpYd2RqY3hnY0hSNzVBSFhKX2x6ZnBCTTdlLUNpM0dmaHA1bFFPV3ZOb2Y1Z0d4WDlfVEVJMF96NEJJRjl5UDFkNG1ObHlyYVJSMDhSU05FV2s1cFBfcDlhY0E3TmhLUzBETmMtX29QRTU3VkV1Y1BxSzhkN0hvRE5MMkl6MnhkcEdaVEtwdjlxYjNDYmRPd0tVeg?oc=5) |
+| Trump’s ‘done deal’ with China just brings tariffs back to Liberation Day levels - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNWllaVElWc0xJcElMSk9mUkZUM3pCMmZNUGx2TXlGSFVtN2pRMC1XaWJueUY3M2JwT2RzcmNKVG1Nd2FNelpvbktndmVEbnJmRVJ1T0ZzeUZsaWNXdGNaUnQ0YkxDR3Rwc18xalZjNUFfcUYyWlNtdlo5TUE2c29NWWdlcmlOVVNDeU1rODg0N045c1FCeGhHdWtxSmk3X2FYcFZfbzVBaw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
