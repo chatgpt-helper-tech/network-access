@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月13日 22:42:38（北京时间）**
+🕒 更新时间：**2025年06月13日 23:01:54（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Trump Warns Iran of ‘Even More Brutal’ Attacks Without Nuclear Deal: Live Updates - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9mcXRITk41WGZWTEdiQ2xlV1czVDV1LVd0a1dyNVFySnc1NU1NeTA3Zk9wUnU3NkV0SHZSb2FwdGpvbkhTZU5veVI0VzNQQWplek5UWHZyUW8td2xXRThSanVDR0dBQm5fYXp3Yg?oc=5) |
 | Commentary: Sen. Alex Padilla’s crime? Being Mexican in MAGA America - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQeXpJN3F1bEhVYS1WS1k3NU9jV2dMSG5jYkFOZGNBT1F3QURmbDNyNXNNTGtTcm9KTWxQU3VOa2txbXNuWlJXcGhob1h1UHRmdDNJMi0wWHNESmNOdGRTOEtCZnRPbGlmOWgtZGFPQUlTUFdfcWFJWmxmN3ZXMkM3ak9JOHU0TzFwSzh4Y2RnYkliUDZ2R3pkb2hEQ0VlWUswX19ISXJtY2w?oc=5) |
 | Appeals court temporarily allows Trump to keep National Guard in LA - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA3QkRZTHJ1UVdieFFqX2g3VDhRUU10X3ZrQXdXMC1QR0hrcHBiMm1UVkFFaG1yMm55dnItZTlzSmhzNU9KWFlSM3JUUU43ZmNDSnhCcnRLNXVTQdIBX0FVX3lxTE9SLTdSVGpyNVprZTZQVHpUVVBoUWxhTHVhYU8taS1BcnI1ZmJFZlNqdHRYZjVkOXJmdS00eldQMlBnZ1ZCRE80VUo0dHJYX1pYVk1DRnBqQWVJSlNSbnFz?oc=5) |
-| How the Passenger in Seat 11A Became the Only Survivor of the Air India Plane Crash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQbS0taXk4YjFkclpUNFFjSk42QVNJaTNZUThiZkpIYks0U0Z2ZFBObmsxdkd4dERfSWRtLS1FVUFRblNDTXFpYjBkSjhGY0dwVU9IX3ZSaWFLRGdNOE9vVDhObWkyd002NlQtS0hqcVVUZ1pMUHl0Q1c4TmRHcGdQc2pUb2dsbFdVNmdWU2RkSEFNOGRVelZ6Z2VVSGgzUlRGNldvMTR4T1UzZw?oc=5) |
+| What to know about the Air India plane crash that killed more than 240 people - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPTTROQklUcFZpdHJuVThCUURaVXI3N1pFeC00d3JPSXB0bnZVMl84THh2NUNyMEE3eDM1ejdOWlo5Vms0U21sanVDTlFHN0Vzcml1MHJ5UXFFOTItY2t3S1BxMnFGeDZidmtYakNCdmFPNUNOdlY5bUtKUnAxM2dGVkZnYXFTTjM4dDVoczNVTkNFQWRX?oc=5) |
 | It might rain on President Trump's parade - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9aRzZWQ2VLbndVblVJQ2FQR2FNUXh2WmhuWEJreFItZzE4MENhS0xZb1JCQ2s3N0s2aFZncTdaY0xEY2o4TFZweVpmSHRZd0w3TlVXWHk5Yjcxc2tPa0ZPQWtTQVVZbXJDMmxXMWMyem5NZmRObmJyVlhpS2M?oc=5) |
 | ‘No Kings’ protests nationwide to push back on Trump’s ‘overreach’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNYjNucG9GVEg1UjNkbHJYaURSaE4xUjFJd2pVX2J2Uk9xdHNSU3NQb09GTHdHSDh4di1NZXpxalgxcGc0ZVRaeXFLYmkzbEFwLVdqM0c1aHI3SUZMcTgyYVBvLUZTcjdnTUQxVTdjd0E5a1BXQnVMMWZrTGt4bzhwODhDVGZFV2NOeEtoOGRRY18xOVk?oc=5) |
-| RFK Jr. blows up America's vaccine policy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE0yOXU2X0h0d3pRTnNCQXJCN1JITHFsanNIREdRS056SU1UaHUzT0VSNlZoX3lwOURyU2xBako5UG1lbkhJckNJVnR3b1lmQW1oV3lKMGVqZERkOUpKZjI5SHlReTlMUTJua0c0Tk1TdGZaUQ?oc=5) |
+| Kilmar Abrego Garcia scheduled to be arraigned on charges of human smuggling - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQSUJocFVJeTR4bmVNUVBvMkRHYnpMRHZoYmMxMFEzLWhtakdCelFKSnI2VFgzUVp5WjA2YVhOaU0xODhSVjNyd3FvbGc5RlVNa1ludHRTVEsta2sxaTc2ZXZJa0x4Qk9oaERXcVVPVURtVXRKQTl2bmd2WE5zT2EyNVgtcXphZjBqR0ZVbkpzb2k1bG5kMXNveXZCWjUwMjNTU055OG9CdFN3WlFaaVHSAbMBQVVfeXFMUFdfU1FGUERhTXlrSWFRNnA4S05zWkRXMnlSTkRzUndLcllRRUxjc0VQZWNMdTdkU19vOTJVaDRVZkVLalliQ0U2M2wtNnhuWEE1elRUcmJwc3Voc281RFRsMXhMdEduZFNJaXNpc1dvNDRXeWxNLTExclJFcno3Wml1NzFCX25tOHRpbXFVdEgxWndIc3NwWU82ZkRnV2FzOVBRSEl4cDFERDZ5WE5kdlRIYkE?oc=5) |
 | House votes to claw back NPR funding. And, Trump keeps control of California Guard - NPR | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxORVFBNG1GV3JhTFVVLWgtTHd3QnlObUVlUjJLR3FadmlTRDBiNXdsc19weFhiOEEtTWNBU2M2Y1V4TS1XTHB2Skt2OXJZQnZPSTM0OFBMeS04YWYwUjl2WXQ5QmdtWUJGZTJZQWkwWF9sQlNST0FpdzRRdGRqM3MwX01DQ0NEVVp3amU0SXNSY2owZ2RnYmthVEFGaWNQd0llMnFiamd2ZDE1b09jbGdubXhoRWdveVZCeDQ5Zk1MV1Q0dG1KSVlPR21MS3hyZEk?oc=5) |
-| Cuomo and Mamdani trade fire in the final New York City mayoral debate - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNYzdkaU9jNkx0azlSb2xzZWJjalpBSUYtWWZuS055YW0zNkppNzVZcGRySVNYckZMOVBQbmFkSnV6bXpfOHZHdjJJaXZveXJuWllWQlVob25YOXlxb185T3ByUDd1UThTaTVKQmVBWlhjR1FjcDhCcEUtWUx2bm9lWnM1SmtpOGROZUVBdjVCQjYyTmM1Um1RSHZKZWUtc1R5SXJHd0VXZUd4VDh0OG85UHZGWlcwUQ?oc=5) |
+| Judge blocks Trump’s election executive order, siding with Democrats who called it overreach - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNa0NMN3Z3YkY3ejdYZ2pwWHl1VmE1R1VYbmkwbnJrUjA2OTQ4WG9pLXJpNWtJdkRZVEF1NkRocGcwMXhqYjJTeFN1RktFVzhXM3NJOXVmemhab0tBT3I4REFndWVzcmxZVDV3cWlpVmdwYnJ4MkhkNWlBeDgtRGJZazNkMFhiX0ctNmFaZGxjUnNFTWY4bXc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
