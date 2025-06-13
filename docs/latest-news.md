@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月13日 14:43:42（北京时间）**
+🕒 更新时间：**2025年06月13日 15:00:54（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump, Who Has Likened Himself to a King, Bristles at ‘No Kings’ Protests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPc2lBRmxIektyRnoybGcwbGE5TllfanhleGNBT2RrclViZnIybEU4U3V2Y2VsQ2lsWDdVY2xkczV5bkFsX3FYMFctdC1XWUc4NE1rUlZaOGdlb0hVVmtEeGVUQTJoeGlJU1lFYU84aTR4RVU4dWQxeVFkTG5uTjFjaA?oc=5) |
 | Harvard, Trump admin clash over court protection for foreign students - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOWlRSQjVWWTc0dlZrQWJoZWZYVlJ2VTJhQWxGcWpLd1VUZGw4aDlDd3EwaDI2ZDFoeDg0UGlmb2s3Q0NNaWwtQTJyV1NDZDItZnRxeHVyN2V1ZlJQcElDWU8yNnl3R0F0UGczLS1GRzlwQjUyQlRfQWRRMlhyZncwVzZ3eTVGZW5ONktDZDEyQktyR3VYQ241dzNTNA?oc=5) |
 | Cuomo and Mamdani tear into each other in final New York City mayoral debate - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPNjJIYVFWeUhSd0pQRm4zY0dJd0Z5REpoanIwOENhZVE2YUdwYjFET1phMmxjdVQ1VzRtdklQTUd5VXRCZU1NMTRqUzIzdU56MnFjN0tNMVRaRHdQLXBocVV6Sk1QUVdxTXZFR1ZoQjNHdTRyUWYzdEJQWEpuSENfNW9QWjVaWEpoWGl2Ml8waU7SAZYBQVVfeXFMTWt0ai04bjVFeV9XQ1hyLWVSYzgySlg4NEl3MW8yWm1yaUdrc0MtSThnSkNCVzREZGJxV0JlaGllVmpRUVZBb3FhNERpZGZmRDRnaG8yYTJWVFlHbmYzUmZEZTB1c1NKdkZ2ZFg3UFdYYVQxVXlRVFhMQWJIeXZoUFBtaEd2NVZBdnNrcjY3cllueDAzeF93?oc=5) |
-| How thunderstorms could disrupt the massive Army parade in D.C. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNZmN3enRFNUZoNG1oUTV1cmIwZFVvVnZpbE11R281a0xjamFzeTdiZmJ4a2U2WGJ4YWdqcmxPejZuOXRNNEtWc3d6R2lhQzlma3VjQVM4RlVhZ0FtOVpBeEg5RzNpZFZlNHpVYmlocU5JUWlpUlJfYTlWSkY1a0pId3B5TE9RLWdKbVZXSUpGd1hDQQ?oc=5) |
+| Trump signs bill blocking California gas car ban plan - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBLdlowbGZZM3Njbk5GaWlGczlvd3ZqczJ0TDdieW9VNzQtZUJGNkhxRHhnMmNFdnpraTh3dWl3MVpJTVYybVhkMDZxNjJXbkRrd3RuTVcweS1vQjhST1lVYlJyOGN6T0dBdV9sV01menpqVzFmbVE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
