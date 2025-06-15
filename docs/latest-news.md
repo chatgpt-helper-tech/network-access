@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月15日 14:00:07（北京时间）**
+🕒 更新时间：**2025年06月15日 14:21:03（北京时间）**
 
 ---
 
@@ -16,15 +16,15 @@
 | Mass protests against Trump across US as president holds huge military parade | [阅读全文](https://www.bbc.com/news/articles/c70622038yxo) |
 | The first trial of its kind: A Russian soldier takes the stand for an execution | [阅读全文](https://www.bbc.com/news/articles/cp8ylx534j0o) |
 | Manhunt after two Minnesota state politicians targeted, one of them killed | [阅读全文](https://www.bbc.com/news/articles/cgj83q2e562o) |
-| Missing US journalist Austin Tice was executed, claims ex-Syrian commander | [阅读全文](https://www.bbc.com/news/articles/cvg72g960pxo) |
+| Ex-Syrian commander claims missing US journalist Austin Tice was executed | [阅读全文](https://www.bbc.com/news/articles/cvg72g960pxo) |
 | Museum's plea after couple break crystal-covered chair | [阅读全文](https://www.bbc.com/news/articles/cn05dd4pz0jo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Minnesota lawmakers shot in "targeted" home attacks - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNUkFkOExSd1RvZGRrcFk1MUNvdlhLZWExSkdVRC1BVzFGQ0trQWY3R2xoUTc1Ry1vQkJyb0UwaXJiXzdwZkxMOEd1MldrRlZMVkFnaGd6Rm42MkpUcG9MUWgyWHRNYUNPd1hMZ2tPSmJOSVlDWnlzS0lvWGZsZnYyNV9jajF3dlhuZE0zeGFsbGVsQnhSVUY0?oc=5) |
-| Photos of anti-Trump ‘No Kings’ demonstrations across the US - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxONXVPS25IR0RydFZIUW9DaS1icktDaXRIWUIxb1hFdjVUWFRpS3IxTVVhX09KYjU4TDNNa3RyMktvQXctU2RsLVJLajBrQ0xXUEFXNmIwMFVFTWhDVENRZExSUUoyOFhDTGc0aWdGcXJ1aFR4N2dNMnpqOFJxcFhOUHZjcTEzcjBPX1d3TTVQMlJHU0Q4SFE?oc=5) |
+| Minnesota state Rep. Melissa Hortman remembered as a trailblazing public servant after fatal shooting - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPR1QwSV9XX19lZWN3Vy1aZUpubFZHd0NZTnYxT1U2ZW1sWmV2LUJHSkkwZkJOY1UtVUZVMjY0YUdKOEx4TEstdGZxZ2Y0MGhNU1VRemxkLVd4Q3hfM3FpelNzVnRtLUFrLU94N0pCTDV6Mzhma2FzVW8wQ1dXLTRTcFR30gFWQVVfeXFMUF9UTk8yRGtxenBRcGRiaG0wWnZHVTZHa1dHV0ZtZzNEcXFuUFdRbFhxNEZseFd0aVVIdUZ2N203dnIyUXpaWlI2dUNwY1ZHbTdXSUpwYXc?oc=5) |
+| "No Kings" anti-Trump protests attract millions, organizers say - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPbGRxVFJINlI0X0V6Qkl5TnBaeDh4dWxlZnF2bkZ4dUpNcl80V0FZR2NmSDNvTFNxZmstdWh1djdQUVl0VWplRXNWRXloUFo2dU9Dekd0TFA1MTlOQVJIRHppN0x4bGRKWDZfR1BIQjBzUWVtTEMycjFpdWtaOGZDcmROQ0dKLTg4TDhFQg?oc=5) |
 | Israel and Iran strike at each other in new wave of attacks - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOLTAwNDNoY0tsWUdrZ0tGY3pFelJiN2haSTd3a29iWE82cTJrbEtWOXZMTmIwNzVJek5fUjVNQjg1R3JmVFVJNFdOMkdDdDhLMmMzXzIzYVdhV24wcGNoRU1pSG1HRno3eGd1WWRGNEttZy1uekZRNEVhSEg1SGpSLWlKNzEtaWtGN1piVWlZUEc1dFg4Sk9mWnB5LTZqOTVnYkE?oc=5) |
 | Police declare riot at Portland ICE facility - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5leHFNM241dTFHYmtwbWJQaTJDTHY1eU5DUlZqY3c5cURGNVZsUlpkdWpEbW5XS0JCS3IxOExTQURBSS1rZXMtZDZjWUpzQW9KLW9rREM5RG1UaEd6X3JMeWZWaFh5OUROcGlDNlFtdi1wSkp1XzllWjRUa0Z4Zw?oc=5) |
 | 1 wounded in shooting during "No Kings" protest in Salt Lake City, police say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBmWDkzZURDNkR5b25ncV9jdDBHM1JxZnpCQWktR2xjc0ZxRmZpZ1pkdndndmcxeFBCd0JGTi1La2txSmdUREtyc2ZMQm9IX0J0UWVhUEVzVGJHcEpOTG9WdGJscW9VNmwxdjQzV29Pb3N1ZXdZcW94Qmp30gF_QVVfeXFMTW1jNVlVRS03T0tmTlEtWEtPTnF1OXpIb1NIVHZUejF1SnRqb1V2SjRMMnJrcUpmWXVOOExSVkk3YXhteW1TV2FaaTNsZEZXUHRJclJxVkxjWlBwb3ZxdnNCQXVta0cwaEhkSWlfYWhzdy1melAtOWYzVE1LVUJBYw?oc=5) |
