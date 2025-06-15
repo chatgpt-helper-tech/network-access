@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月15日 16:22:57（北京时间）**
+🕒 更新时间：**2025年06月15日 16:43:20（北京时间）**
 
 ---
 
@@ -24,14 +24,14 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | "No Kings" anti-Trump protests attract millions, organizers say - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPbGRxVFJINlI0X0V6Qkl5TnBaeDh4dWxlZnF2bkZ4dUpNcl80V0FZR2NmSDNvTFNxZmstdWh1djdQUVl0VWplRXNWRXloUFo2dU9Dekd0TFA1MTlOQVJIRHppN0x4bGRKWDZfR1BIQjBzUWVtTEMycjFpdWtaOGZDcmROQ0dKLTg4TDhFQg?oc=5) |
-| Minnesota state Rep. Melissa Hortman remembered as a trailblazing public servant after fatal shooting - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPR1QwSV9XX19lZWN3Vy1aZUpubFZHd0NZTnYxT1U2ZW1sWmV2LUJHSkkwZkJOY1UtVUZVMjY0YUdKOEx4TEstdGZxZ2Y0MGhNU1VRemxkLVd4Q3hfM3FpelNzVnRtLUFrLU94N0pCTDV6Mzhma2FzVW8wQ1dXLTRTcFR30gFWQVVfeXFMUF9UTk8yRGtxenBRcGRiaG0wWnZHVTZHa1dHV0ZtZzNEcXFuUFdRbFhxNEZseFd0aVVIdUZ2N203dnIyUXpaWlI2dUNwY1ZHbTdXSUpwYXc?oc=5) |
+| Who Is Vance Boelter? The Minnesota Lawmaker Shooting Suspect - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPTVh2N0w1THp1ZEN3TkJrRFA1eml3UUQ4SFFvV0sxR2NXTDZDUldyZmNKcTlQOVpUSHEzLUxzenpLTUhJWUN2aXJqdV82VUpHSjkxT1FDQ1REMTVfM1dJZm9VcDlLWGJHb3lteDlVenpiMENESlRwbjlHQlljMEpvQmo0cTE?oc=5) |
 | Israel and Iran strike at each other in new wave of attacks - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOLTAwNDNoY0tsWUdrZ0tGY3pFelJiN2haSTd3a29iWE82cTJrbEtWOXZMTmIwNzVJek5fUjVNQjg1R3JmVFVJNFdOMkdDdDhLMmMzXzIzYVdhV24wcGNoRU1pSG1HRno3eGd1WWRGNEttZy1uekZRNEVhSEg1SGpSLWlKNzEtaWtGN1piVWlZUEc1dFg4Sk9mWnB5LTZqOTVnYkE?oc=5) |
+| Tanks, troops and flyovers in D.C. as Trump gets his military parade - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOMDJmZnl4OGU1SWFWRDdReVNNcEUzTnFGc3ZZbXVvZTlBTnBwNHQzaVhpVll0NDVYd24weFY0UWVmWVlhVXRULXpiQjVYcnZ6YVhQQUEwN1I3bHFuNnhXcmdnaWZGbzNqdm9qZmR6dzhKdWNFZzc5aEE0NzZYaTlWNXdZV0tsb1hyVmRKZGFMWnctcFFzRFF6R1lOZw?oc=5) |
 | Police declare riot at Portland ICE facility - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5leHFNM241dTFHYmtwbWJQaTJDTHY1eU5DUlZqY3c5cURGNVZsUlpkdWpEbW5XS0JCS3IxOExTQURBSS1rZXMtZDZjWUpzQW9KLW9rREM5RG1UaEd6X3JMeWZWaFh5OUROcGlDNlFtdi1wSkp1XzllWjRUa0Z4Zw?oc=5) |
 | Wait for bodies deepens pain of families after Air India crash - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9SX0JfNGlUcTFNUzROSFcyM3YtS0pleTZDNUJDLU9qbzR4LXlRX0FncTNXVDJ2TUFqcjNyZGxsVFl4NlJOVEotX0IyZHFZVndVellTa3AwbVdSd9IBX0FVX3lxTE9DVlZYN1RsYXp3Nzh4TVlveHFmVk5DQ2E1Vy1HQ3lwekVYNWtBQUVmUU5sbUk4SHRDMlRiZlo2d0J0cVcwcDVwUlZPRGd3a2pXSm5mcS0tTWVReFp4NFBF?oc=5) |
-| 'Protest is patriotic.' 'No Kings' demonstrations across L.A. against ICE sweeps, Trump presidency - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPR0RMTUd6Q1lpTjg1T0hsZFVuQWpuRjNaN19ycWZqOV9KWU1yYWdPYmNUcDJmMG1PTk8wdVdNNmpzSnNMZzV1SzFuc2lyMEpEeXRLd0xDNGdSUzYxOVhyaTVBX2tpbkRiTGV1MXNiMXdMbzM0d04ydHpBLVN3bnNWd0RCemVlOXM0TlhwTzg1RQ?oc=5) |
-| Trump addresses huge military parade as protesters rally across US against his presidency - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE9qRGo2bWRWRnlzYUhkNjlOMVpYTnc0NUdJM3cyMGdLTEM0ektHSnJDZnBxeDNkYzhsVHh2RTZVNFNpeTZILWJYdjR1RVR0OUFrN01jRg?oc=5) |
 | One person ‘critically injured,’ three in custody after shooting as 10,000 march in Salt Lake City during ‘No Kings’ protest - The Salt Lake Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPWHNxOW94UkRVcG1ZT243S0taN3p4Q0RnTnBqalZKRXh4VlhaWVJoMS0zQ0FtdzZ4YV9DUjNYd2V4YnE1OTQySlAxRmxtQXBhN3BUSDVySUQ2YzVTOGd2TDk1UVBhczEwV0p1akgwenpoaUN3VGhIY00yMGZNZ3BfQzB0LS1ISG5SNmc0?oc=5) |
 | ‘No Kings’ protesters in Virginia and San Francisco struck by motorists - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNV3JBUm5wWlo1azVoNHMyOVdIYjI0Q0dJQjdLOUhUTVlTMkFaOGJWcm5MbWpiajNOQ09fUXRJWEptZnZxNE9mVG54dzdCMzg1Q0NiQklIeDFiS1FtZm1ISVZUMFJVeEVWbjNxdm1DSGsxaHMyWVc4cDFkQTZVZmRPRWgxYk9jMXltTG9CXzRZeGpoNWVl?oc=5) |
+| Police Clash With Protesters After Anti-Trump Rally in Downtown Los Angeles - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9VQUh0LVpPc3V3UFl5Z2h3bm5TRENCbXVlNkloVjFFSlFMSlc1NlEteWlfN2g3cFlGT2xkNEdmZXNWZy1PenBvM1M2V0hickVPV3lkRzNkM3N6YVR6QkJLYzdKYUtjTDVHQzhISlVldHhaS1hyRFpCTg?oc=5) |
 | Scoop: Every Senate Dem demands Trump withdraw military from Los Angeles - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPbC1XZUxKSHNxTjZ4UGJzbW5uQ3JhazBOUjNTdW9LVk1kOF9XOWFFNUJOVDk4S2wxWVdUUlRWbjZDa3pPdUJxTWZJaWFhekdUYl9JUDNLeUh5aEpUbkQ2eXR4QlFqeHN3YU15cFZCcGRBaVFYUy1FYTNnX1ItdEVmendTanRTYW9nLWFBZDJFbWk?oc=5) |
 
 ---
