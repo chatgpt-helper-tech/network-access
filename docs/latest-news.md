@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月15日 18:42:22（北京时间）**
+🕒 更新时间：**2025年06月15日 19:01:09（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Protest at Portland ICE facility declared ‘riot’ as feds clash with demonstrators - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPMHJSbi1RV3F2cmh5QkF6U1ZZUjhlX1NwSkZ6d0pRaVFVNDB3MjFWcnBxdmR1dFR5Q3RKbW9kZXlNOWluY3ZvOGlhT2JjQjVWY2NoYzVvdXRhQnAwQmdwdUZRU0pwUTNvbzRTUGc5X1pHZF9HLWFlSFlhSGY1NzVzNVNXQWpoOGY4eWdRVUhDUFRpZ04wMmVZVzZRbXloaTRtZlJMLWRkc0xabVNNTllORXA1STU5SWhuVURYTlhqb09QQjYtR1ow0gHbAUFVX3lxTE93VGU5UlJ4Zk9CSEl0Wk9CT1diVlZjcnRuVzVkUEtiMzVyTWlMaHVuS01RdWlZNE9KTWNHOWlkTE9wN3g2Z2dQeEpvNE9WeXZKUGRrdUEwd1dobktGZDVLb2RoZVFRZVNnT0dXMjA4Rlg2LVFnR3BwaDU2STZrU1dtQ2FLZU1KS1BDWmprcDFnSVRabG9TSU1LbE5VVTRWdDdQbjk4NDUtSHVkMm5ZemRWRjdodG5DTkNtQk5WcjBCeGdMRC1rVXgtSlZrQ25VMFJQTHdxOUdfRkNKbw?oc=5) |
 | Photos of anti-Trump ‘No Kings’ demonstrations across the US - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxONXVPS25IR0RydFZIUW9DaS1icktDaXRIWUIxb1hFdjVUWFRpS3IxTVVhX09KYjU4TDNNa3RyMktvQXctU2RsLVJLajBrQ0xXUEFXNmIwMFVFTWhDVENRZExSUUoyOFhDTGc0aWdGcXJ1aFR4N2dNMnpqOFJxcFhOUHZjcTEzcjBPX1d3TTVQMlJHU0Q4SFE?oc=5) |
 | One person ‘critically injured,’ three in custody after shooting as 10,000 march in Salt Lake City during ‘No Kings’ protest - The Salt Lake Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPWHNxOW94UkRVcG1ZT243S0taN3p4Q0RnTnBqalZKRXh4VlhaWVJoMS0zQ0FtdzZ4YV9DUjNYd2V4YnE1OTQySlAxRmxtQXBhN3BUSDVySUQ2YzVTOGd2TDk1UVBhczEwV0p1akgwenpoaUN3VGhIY00yMGZNZ3BfQzB0LS1ISG5SNmc0?oc=5) |
-| Trump’s case for sending troops to help ICE involves precedent from Fugitive Slave Act - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQQ043QkdteGg0ZWdDblMwVzMtN2FYSVpvQ3F0bjJsQlQ5M19KNWk1MmNHc09TcTRRdU1FMTJOd1JuWGdJVmZ5Ri03NWhCQ21YN1ROZFJrbTEySnQ0WlYzSmpfNDhQMjA5Y1BNNDVYQy1XQ0FTT3JvQkN1WVRXa011RTJVV0dfN2NDQWhhallNS2EzX0t0RUhFQUUyMWtURlZlSjJIWDFMbng?oc=5) |
+| Iran does not want conflict with Israel to expand but will defend itself, foreign minister says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxQdlVoQmhyU3dUZFJuT0ZUc3hXRmhEODhGbkhQU2oway1mNUpfRjhMQlYybWptd0dGcFZjaW5FcG5ZdVVlZkFVTUxZMTNTRVphRk4yZzJpemdNNktKbVJlcW8ybUF4YnVBRXIzY2V3SDkzaUliYjdmRXhNS2ZoTTkyZmk1ZTJBanFCNF9NVUs5Q2hyZFAxMmM2SnJnNEVqM041R3NuYnYwQ0RuOTA3V0xDcWVhZURyRmswMHlQNXUxQ3otRmtuWnc?oc=5) |
+| Scoop: Every Senate Dem demands Trump withdraw military from Los Angeles - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPbC1XZUxKSHNxTjZ4UGJzbW5uQ3JhazBOUjNTdW9LVk1kOF9XOWFFNUJOVDk4S2wxWVdUUlRWbjZDa3pPdUJxTWZJaWFhekdUYl9JUDNLeUh5aEpUbkQ2eXR4QlFqeHN3YU15cFZCcGRBaVFYUy1FYTNnX1ItdEVmendTanRTYW9nLWFBZDJFbWk?oc=5) |
 | Inside Trump’s Extraordinary Turnaround on Immigration Raids - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNNGdkSlpCbkg3QXlrQUR1Rk85eThRczlnQ1hBRTRWQlo0NWhuSEE3NFJIV1VsNXJGV09GM0U5NjR6ZEhPZkRwOTlmRTNBdHZXWE15Tm0wUk1UMDFOM3VzS2hQZXkyQVAydURmanhVaERVdnRsNEV1WDhPS254MTZFVTBSREgwT3FfQjdz?oc=5) |
-| Wait for bodies deepens pain of families after Air India crash - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9SX0JfNGlUcTFNUzROSFcyM3YtS0pleTZDNUJDLU9qbzR4LXlRX0FncTNXVDJ2TUFqcjNyZGxsVFl4NlJOVEotX0IyZHFZVndVellTa3AwbVdSd9IBX0FVX3lxTE9DVlZYN1RsYXp3Nzh4TVlveHFmVk5DQ2E1Vy1HQ3lwekVYNWtBQUVmUU5sbUk4SHRDMlRiZlo2d0J0cVcwcDVwUlZPRGd3a2pXSm5mcS0tTWVReFp4NFBF?oc=5) |
-| G7 leaders gather in Canada for summit overshadowed by Middle East crisis and Trump’s tariffs - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxObUZVaml4VEs1LWhVOFBoQmViV2o4U3MwcWFyWmlSM3BGMWNqcGZxS3pZX1hjaDRpdG9mdnJXaDY2ZWNnbUVyUkRRVkRZWGlVZkhSMlY0VHU2MlMxTl9JN0h6M01sNVVWaXJnUGlxUkliV0NJQkZ3V1Vack9iQzJOTkJJRkttTDNBNHc3R2F5Zms?oc=5) |
+| Air India crash death toll reaches 270 as search for bodies continues - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOYklNcWs0MHVDQ3JUT0Z4Z04zbDBXUm1hOHQ4VWZlb3pUT2dSRXA4SGtQdkw5N3lyTFotUkdHMk5VM2xwa3dYN2RvRzVHaTJ3UXN0c1FibmFzS1otUmgwTkVoVkJoc01tWGlEWnFVY085UlhJV2RxalpXd21Oem0zQWpHek9jekdmZEhNWVBRdXlTNU4yRnBzNDhfYzZWTEp1aEJlUXBhSkIwdlM4WEI5U19oVkdYWkk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
