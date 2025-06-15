@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月15日 15:00:39（北京时间）**
+🕒 更新时间：**2025年06月15日 15:22:33（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | 1 wounded in shooting during "No Kings" protest in Salt Lake City, police say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBmWDkzZURDNkR5b25ncV9jdDBHM1JxZnpCQWktR2xjc0ZxRmZpZ1pkdndndmcxeFBCd0JGTi1La2txSmdUREtyc2ZMQm9IX0J0UWVhUEVzVGJHcEpOTG9WdGJscW9VNmwxdjQzV29Pb3N1ZXdZcW94Qmp30gF_QVVfeXFMTW1jNVlVRS03T0tmTlEtWEtPTnF1OXpIb1NIVHZUejF1SnRqb1V2SjRMMnJrcUpmWXVOOExSVkk3YXhteW1TV2FaaTNsZEZXUHRJclJxVkxjWlBwb3ZxdnNCQXVta0cwaEhkSWlfYWhzdy1melAtOWYzVE1LVUJBYw?oc=5) |
 | Wait for bodies deepens pain of families after Air India crash - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9SX0JfNGlUcTFNUzROSFcyM3YtS0pleTZDNUJDLU9qbzR4LXlRX0FncTNXVDJ2TUFqcjNyZGxsVFl4NlJOVEotX0IyZHFZVndVellTa3AwbVdSd9IBX0FVX3lxTE9DVlZYN1RsYXp3Nzh4TVlveHFmVk5DQ2E1Vy1HQ3lwekVYNWtBQUVmUU5sbUk4SHRDMlRiZlo2d0J0cVcwcDVwUlZPRGd3a2pXSm5mcS0tTWVReFp4NFBF?oc=5) |
 | Trump addresses huge military parade as protesters rally across US against his presidency - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE9qRGo2bWRWRnlzYUhkNjlOMVpYTnc0NUdJM3cyMGdLTEM0ektHSnJDZnBxeDNkYzhsVHh2RTZVNFNpeTZILWJYdjR1RVR0OUFrN01jRg?oc=5) |
+| 'Protest is patriotic.' 'No Kings' demonstrations across L.A. against ICE sweeps, Trump presidency - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPR0RMTUd6Q1lpTjg1T0hsZFVuQWpuRjNaN19ycWZqOV9KWU1yYWdPYmNUcDJmMG1PTk8wdVdNNmpzSnNMZzV1SzFuc2lyMEpEeXRLd0xDNGdSUzYxOVhyaTVBX2tpbkRiTGV1MXNiMXdMbzM0d04ydHpBLVN3bnNWd0RCemVlOXM0TlhwTzg1RQ?oc=5) |
 | ‘No Kings’ protesters in Virginia and San Francisco struck by motorists - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNV3JBUm5wWlo1azVoNHMyOVdIYjI0Q0dJQjdLOUhUTVlTMkFaOGJWcm5MbWpiajNOQ09fUXRJWEptZnZxNE9mVG54dzdCMzg1Q0NiQklIeDFiS1FtZm1ISVZUMFJVeEVWbjNxdm1DSGsxaHMyWVc4cDFkQTZVZmRPRWgxYk9jMXltTG9CXzRZeGpoNWVl?oc=5) |
-| Big turnouts for 'No Kings' day, more ICE immigration raids and L.A. police fire rubber bullets at protesters - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNdjk3clhueVF4bmRwMGplaHdoRGdfQTRaaUdRNlR4bWpGdkZEZURwcUVuREh1Z0VYR1llc0ZsejJoSWhsbE1RUkRENm5mY2VFZ1dObHlMd2NUaEplNWI1UThNalkwZkFPM2YtbWNxTFpwV2tNVHhBd2RaaXZtT3dsRmZ4RnJ3QVMzdWlMMGt0ZlIxbmlQMTdLRm9MUkpXMzFUcFMzZkhkQV9qQQ?oc=5) |
 | Ukraine war briefing: Putin tells Trump in phone call Moscow ready to resume peace talks - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPZ3RVZ1Jka3pMbnlsdXR6bXVVZ2hfdVRvdDZnQmFGamtvWlFTNXU0clJlQlliSHBkWVBVWHBOMm1YOXFZd3ZMWlJqTk9VUHlESHg5VmRCU3BQOGN1blE4S3J2b2dSZ3VFd0YtVDZHMWtLb2l3RVk3S1dxUGJDTC1zUUVjU0tSckR6djFCc3FQY2VGX1g3SGdpUDRjOEJtYy1qem1tRlVINkZ5WllLNUEyb0ktSUlJSm4yQzg5LUpVQ0hQMEEwOGUtNXByb2V5UQ?oc=5) |
 
 ---
