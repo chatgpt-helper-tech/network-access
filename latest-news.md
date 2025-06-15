@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月16日 07:22:41（北京时间）**
+🕒 更新时间：**2025年06月16日 07:42:07（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Woman with gun among 2 arrested at Pueblo 'No Kings' protest, police say - 9News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNVnRCVFRKWm50OGRaZjh3UnNINi1YMVVDQUR3bFFvTnFyU2YzUUVHWVgweXNvU0tEc3pRU0xBaWZLRF9wLWxQeTg5b0pKMjBhR015Y2EyR0M2c045TTBGRHdTZXI0eV9SbEFzMV9kRU43SFZWTUhuaThhdVZVZnBtZGxIaUVkbk1pUFJXRXFsVTF5T1FKdTBwQjVMb0JfbVFEczg3MGp0bnI1dUpfVGdWN3lOeU1jUQ?oc=5) |
 | As Trump Returns to G7, Rift With Allies Is Even Deeper - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNMTA2djVhRXdQaGNPZlB4cjlPZ0FEVUZrVHgtcE13NnlCNU9vNzk4WlpBZkNhWEs2MVNuaEdhSDA4U1FoZ0EyODVBYWtRRTdTNmtGUHNhaGU3SWlOeENfMnVyRjdoR3ZMX05wbHJnenY3Y2dCRmNiakJkWUI2VjVPS1lIYUVETVN3YU4zSVdzTGxmSlE?oc=5) |
 | Trump coveted a military spectacle but his parade proved underwhelming: ‘Just kind of lame’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1kOUVIQW16RUFQQUhaNWZqWTVxWW9ISE85S0Q2OU9BTE1NVUFQQm9zdVl4cDJINk1TSTR5SVoybHdPa2ZELTZGTmVsM0JwYXlBOEYtY3RNZDcyUlg3czhJbUIzLXpEY25wR0wzYk5zRDV6TGM?oc=5) |
-| Air India plane crash death toll rises to 270 - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FdEluMUxWbzNpcDBEZGJpU2VXSGtYaURDOVcxYVZyUVRuR202LUVwZVhKa2k0bVUtbXJnUHduMVdTUWNfU1FKTVNkNFM3VzdlaUpSYzNud3Z6Z9IBX0FVX3lxTFB5WUFsS3Uxc1k5OFJNTDBuVWJoVnVKYXZuc1RYVjU1cnpSMmxiLVJBVGJyb2hteGp4RU92QXpOY2Y4bE5qTVlIOGFrckVXUlNNOFZUNVJTQXk3WnpRMFFn?oc=5) |
+| Trump administration weighs adding 36 countries to travel ban, memo says - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE55MXlwa3R1cG1lWWFFejFmQ0NRdmRiTW9VS3J5VFlRMml6QVVaNktWOVJxZlJodHdfTzRzN0VuREhaYkVVYloxa1lhS0xZQUNVRG9vNjlGWl92RElmTTBsVVM3c9IBaEFVX3lxTE50cHJJSFJ1TlVJMjU2Y2RxblZtR2JHeUpsLURhMlA4UmtwUkRXbkFMbXJZWVgxal92enExVUdaMENCWDZwRnIydE9VWGNjbTBhOVFiNXFkb2x5Z0dxdkx4MGpQWEcxRG5y?oc=5) |
 | Padilla says FBI agent, Guard member escorted him to Noem's briefing before removal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE05RzZnOVRJY2JrekFWUW4wOU9WSmhaaHY4Z251ZkctRlJUZTM2TXNOZjZvWXAzeVREUllLbFcyX1dtQWJnS25zREdON3VaZUx0elNCQjUtUmRFV2NRTFhnVXhSejE0ZkxoaDVtRFZYWW41dUF5M0RnSA?oc=5) |
 | Flash floods kill 4 in West Virginia, 4 people missing after inches of rain fell in 30 minutes - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1ZYWNHUWVFYVZMUjZkWDFpLWc3c3hTQUN0c1I1VEFreEhvYlZSVVp4N1lyN0JSaGpLSmV4dXRhN0pRVF9jSmR1WWtCeVl3d19XRjM5QU85dTNJUm1WQkRORVhoZldPWkJnXzFtTURvNkRnemPSAXhBVV95cUxQeElzelBzalg2V1VTQTdFTmhXRkU0STlVa0ZNRTB1dW9idHA1SW5OMVRqZkFUam9YMGRrVFZRdzE4c0wzQXE5LXJiWWpaQWUxTy1WVFpqd0UxLTNESW51Sm4zQXU4ZDFxSGRQdEhndjd4VkViTHdic18?oc=5) |
 | After Omaha, Nebraska largest worksite immigration raid, a community works to recover - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQQkZWemFWRWxiZHBPRElPNDlXTUgxXzJQSXlicTZIOWVqbnNfZWZtYWdZZnEzaThtd2NrMWR2eXM1QldoZ243SFVNWEJsVl9zZ0JVSWt0ZGN5R19ZTW5rTFZtOVRLZUhaX2JONmRrWVNRM1Rld3pLQnk0MFo0SEpsXzBRQlN2R2JMVXVRU29MOXpMYUhI0gFWQVVfeXFMT0dhY1R3ZjE4UjFLRDhOamNhSXRNSFFnbUQ5eXE1QVVyREZtUFcyaklrX0pGTEp2YUZ1cFllZ0d4SFE5TFhGWWN5OV94ZDhuQlg1ZGxSRmc?oc=5) |
