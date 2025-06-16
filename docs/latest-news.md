@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月16日 08:01:10（北京时间）**
+🕒 更新时间：**2025年06月16日 08:21:29（北京时间）**
 
 ---
 
@@ -13,10 +13,10 @@
 | UK advises against all travel to Israel | [阅读全文](https://www.bbc.com/news/articles/c1kvk8jpy3vo) |
 | Footage shows burning cars after missile strike in Israel | [阅读全文](https://www.bbc.com/news/videos/c8rermxkx75o) |
 | Satellite imagery reveals damage to key Iran nuclear sites | [阅读全文](https://www.bbc.com/news/articles/c7808xvv737o) |
-| G7 is a big moment for Carney. Here are five things to watch | [阅读全文](https://www.bbc.com/news/articles/clyg07jj17eo) |
+| NCA to target gangs as report on grooming is expected | [阅读全文](https://www.bbc.com/news/articles/c70601550rro) |
 | MI6 appoints first female chief in 116-year history | [阅读全文](https://www.bbc.com/news/articles/czxyx04dv1wo) |
+| G7 is a big moment for Carney. Here are five things to watch | [阅读全文](https://www.bbc.com/news/articles/clyg07jj17eo) |
 | Vigils held as Air India plane crash death toll rises to 270 | [阅读全文](https://www.bbc.com/news/articles/c0575me7j82o) |
-| NCA to target grooming gangs nationwide | [阅读全文](https://www.bbc.com/news/articles/c70601550rro) |
 | Truckloads of Scotland's rubbish will be sent to England, experts say | [阅读全文](https://www.bbc.com/news/articles/c0r1de24pdgo) |
 
 ## 📰 Google News
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Live updates: Roommate details Minnesota shooting suspect’s life as authorities search around abandoned car - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPNjViM0o0a2V3NEtNRmdWUDFrZjBLNlJ0N1ltZFdmWmJCeGtkQTFqbnhPOWMyUHlHLThiWVpxQW1fc3FIUzdFQm9ibTM0S1ZoZW5DWU1SNTdHV1pwNlZoZnlJa1RtRk0tNl82bm1GWjJxOGlmUF9xUGo5U3BuMzVPSC12Vlc3dGs0RzRCOUlMT1BXYUNPMmZHcHBVaFVmUDhUb1E?oc=5) |
-| Netanyahu says ‘we’ll do what we need to do’ with Iran’s leader - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5tS3ZZXzVPOHpDWmtXYk9Ba09xMFpwYl9Jbzdhc2FkR1FlMUdvWE5pczRNVkxSVU9OZDl1bHBhUkIzdXBSWWpUajZCTkpneWMwd2lMZlVoa2E0d0ZGa1RMMG11ZkVLWUhMV0o1VW9yaHk?oc=5) |
-| Woman with gun among 2 arrested at Pueblo 'No Kings' protest, police say - 9News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNVnRCVFRKWm50OGRaZjh3UnNINi1YMVVDQUR3bFFvTnFyU2YzUUVHWVgweXNvU0tEc3pRU0xBaWZLRF9wLWxQeTg5b0pKMjBhR015Y2EyR0M2c045TTBGRHdTZXI0eV9SbEFzMV9kRU43SFZWTUhuaThhdVZVZnBtZGxIaUVkbk1pUFJXRXFsVTF5T1FKdTBwQjVMb0JfbVFEczg3MGp0bnI1dUpfVGdWN3lOeU1jUQ?oc=5) |
+| Iran launches new strikes on Israel as Israeli attack widens - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1aMHVmazhSLXMzM1ZCV1QzX2hsX2ZBRlBhYWF2SFh2bFUzanJYbHZrVjI0bmV1cFdBZ1pfS2J2OWVoRW0zVFNvRU1zR1Fxc1pNWWM5RzhSaXE2UdIBX0FVX3lxTE9DY3loamU5X0MxYVJuY0lQYm5fYkJVZUNnOURVS3VaMG1WVU0tUy15dlExdjlxdkFaWGdkeHlMMHlyLUU3b2IxYzdRN3c2WV9iT3pDSlpIeGdhV1VOR2tR?oc=5) |
+| Trump vetoed Israeli plan to kill Iran’s supreme leader, US official tells AP - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQOEhvV01VVGNyRE81d2s4bWdKSkJMQ213MUlkaGFwYWtDWTBXejYxTzBsckwyVExaSjEwUk5mS1kzSHJ6OS1fQ0Job2pzSm1mb2YwSkhSR1J2NlF2ZUNWc2tLa3FCclJQcDIyc1ZNSDJwVFEwODdZNkRSQnhFZmlTcnNBMVBMZUE3ZmM3MA?oc=5) |
+| Photos: the ‘No Kings’ rally in Oakland draws over 10,000 attendees - The Oaklandside | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQZ09pUjdZeng5U2pBUmlmMzVVMFd2S0QyeGVDOXlqRXZrSlIxa0x3b0lxRngxbzhHbHQycEhZLXJvT1c0T0ZVU05VRE9oRHowb2U3eVdCSDVzZzZlZnQydVNXRnM2cGNVb1hrQTN6SExsR1EyUlJ3MGY5R2V3M3d0VGRLaEljRlAyZVZSNXcyNDBvTWEzV0ZZRVdjNmtjVmQ5?oc=5) |
 | As Trump Returns to G7, Rift With Allies Is Even Deeper - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNMTA2djVhRXdQaGNPZlB4cjlPZ0FEVUZrVHgtcE13NnlCNU9vNzk4WlpBZkNhWEs2MVNuaEdhSDA4U1FoZ0EyODVBYWtRRTdTNmtGUHNhaGU3SWlOeENfMnVyRjdoR3ZMX05wbHJnenY3Y2dCRmNiakJkWUI2VjVPS1lIYUVETVN3YU4zSVdzTGxmSlE?oc=5) |
-| Trump administration weighs adding 36 countries to travel ban, memo says - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE55MXlwa3R1cG1lWWFFejFmQ0NRdmRiTW9VS3J5VFlRMml6QVVaNktWOVJxZlJodHdfTzRzN0VuREhaYkVVYloxa1lhS0xZQUNVRG9vNjlGWl92RElmTTBsVVM3c9IBaEFVX3lxTE50cHJJSFJ1TlVJMjU2Y2RxblZtR2JHeUpsLURhMlA4UmtwUkRXbkFMbXJZWVgxal92enExVUdaMENCWDZwRnIydE9VWGNjbTBhOVFiNXFkb2x5Z0dxdkx4MGpQWEcxRG5y?oc=5) |
-| Trump coveted a military spectacle but his parade proved underwhelming: ‘Just kind of lame’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1kOUVIQW16RUFQQUhaNWZqWTVxWW9ISE85S0Q2OU9BTE1NVUFQQm9zdVl4cDJINk1TSTR5SVoybHdPa2ZELTZGTmVsM0JwYXlBOEYtY3RNZDcyUlg3czhJbUIzLXpEY25wR0wzYk5zRDV6TGM?oc=5) |
+| Deadly flash floods kill 13 in San Antonio and at least 3 in West Virginia - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOYUdHeVBjaDgxU25HTXhZNmFQamJhYURJT1dLbE02UWFkYVAtbG5xYnF2Q2NIazNmcWJ4elVlVlB4Z2g3Tm1GSlA3Rm9COExHMmNTUVYydWwwcXRjOEFWWGt2clNjWW1wdW5NVnQwakcyU21rWmwyUWd4cjhEU0lrcjJoM25FbkNKMkl0TUlzNkpPRE9x?oc=5) |
 | Padilla says FBI agent, Guard member escorted him to Noem's briefing before removal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE05RzZnOVRJY2JrekFWUW4wOU9WSmhaaHY4Z251ZkctRlJUZTM2TXNOZjZvWXAzeVREUllLbFcyX1dtQWJnS25zREdON3VaZUx0elNCQjUtUmRFV2NRTFhnVXhSejE0ZkxoaDVtRFZYWW41dUF5M0RnSA?oc=5) |
-| Flash floods kill 4 in West Virginia, 4 people missing after inches of rain fell in 30 minutes - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1ZYWNHUWVFYVZMUjZkWDFpLWc3c3hTQUN0c1I1VEFreEhvYlZSVVp4N1lyN0JSaGpLSmV4dXRhN0pRVF9jSmR1WWtCeVl3d19XRjM5QU85dTNJUm1WQkRORVhoZldPWkJnXzFtTURvNkRnemPSAXhBVV95cUxQeElzelBzalg2V1VTQTdFTmhXRkU0STlVa0ZNRTB1dW9idHA1SW5OMVRqZkFUam9YMGRrVFZRdzE4c0wzQXE5LXJiWWpaQWUxTy1WVFpqd0UxLTNESW51Sm4zQXU4ZDFxSGRQdEhndjd4VkViTHdic18?oc=5) |
+| At Least 4 Dead and 4 Missing in West Virginia Flash Flooding - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9ZWFJoRnhRYXBMemZGb1RqM0Zid3l5d01hNm9vXzlkUl9PZHo1VTlMd1p4dnRPcFZ1b1Y3NEpReWFJX1l0VHoxMzkxQnVSakw5LXM5cnd1OEJaamQ4bVhVdkc3WHdDa2FuMF9USjVQREpqQjItZTBiY3g2bzQ?oc=5) |
 | After Omaha, Nebraska largest worksite immigration raid, a community works to recover - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQQkZWemFWRWxiZHBPRElPNDlXTUgxXzJQSXlicTZIOWVqbnNfZWZtYWdZZnEzaThtd2NrMWR2eXM1QldoZ243SFVNWEJsVl9zZ0JVSWt0ZGN5R19ZTW5rTFZtOVRLZUhaX2JONmRrWVNRM1Rld3pLQnk0MFo0SEpsXzBRQlN2R2JMVXVRU29MOXpMYUhI0gFWQVVfeXFMT0dhY1R3ZjE4UjFLRDhOamNhSXRNSFFnbUQ5eXE1QVVyREZtUFcyaklrX0pGTEp2YUZ1cFllZ0d4SFE5TFhGWWN5OV94ZDhuQlg1ZGxSRmc?oc=5) |
-| Trump says 'it's possible' US gets involved in Israel-Iran conflict - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOQWd5SU5DVzRNVFQ0cWxfWU1PVzJtN0xoc1AtdmFfajRtc1Rja3RmbElEWFVKdk1nQm9zVklac285dUZxVFYyMWRsR3locWVZOUhyeTBaNUtpV0R0ZHJvcjB6WVhrbGcxNTNfbFlrMU5maU40UHBaM3lERVZhRW45UGhNbUcxaG1OZllVdDBETC1fY1NkN2FKX21B0gGfAUFVX3lxTE5QLThDUGxXUzJHZGNkZ00wWU5PQnB5RU1GYWFfOWZ2TGtfWFRFZnBWV1FoUzQtVmNWblB6TjVaWGgzUGYzY0R6Z1dJUmtvWmk0ZzFWRG5KRnBzOVoySkcyTUxFSlR2VkFxeGkxcGRmTkdibUdTVWJsZHBkejNfTU42OGlndnFLc3QyUHk5XzJZU05yUnhOWU1JR2tveHNsWQ?oc=5) |
+| Trump Military Parade: Darcy cartoon - Cleveland.com | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSXlfN0JQUDktSkRfb0dGa05nZGNYVDlSMmFOZ1lKWkpad0hveldsdmszWmhhOThPSGJUT2w2R0lGUXZPUVNJSGRsMlhnQ0djX3ZsS1lVU1hQZG5yOG5QcnpGcmRyTEQ5TGNMMTRha2p2MnZHbERONW12YWVxWTJRNE52cFQ5cDjSAZsBQVVfeXFMTjhrZEFpWUZzRjQ4Umx4Zms3R2FVZU9oTW1jRjZkNVBxQWJRQnMwQ2IxUlJvRnVHSkVQeGxLSU5oNVZONlZveFJoU0dtem96b1ZwalNfMUo3SHdzWDZIaFIxTVlsWUtGRXU1bnhJdEFFY2Fvb2VDZktyeXI4UjgyckxaUTNmOTdJS0sxVktFaVpHRU5oVG42ZkxPVU0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
