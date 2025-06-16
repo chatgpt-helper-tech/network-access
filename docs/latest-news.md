@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月16日 14:01:17（北京时间）**
+🕒 更新时间：**2025年06月16日 14:21:49（北京时间）**
 
 ---
 
@@ -8,13 +8,13 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump told Israel not to kill Iran's supreme leader - report | [阅读全文](https://www.bbc.com/news/articles/ckg7gl4zegyo) |
+| Trump told Israel not to kill Iran's supreme leader, says report | [阅读全文](https://www.bbc.com/news/articles/ckg7gl4zegyo) |
 | 'Nowhere feels safe': Iranians on life under Israeli attacks | [阅读全文](https://www.bbc.com/news/articles/c8xgxdr01wro) |
 | Footage shows burning cars after missile strike in Israel | [阅读全文](https://www.bbc.com/news/videos/c8rermxkx75o) |
 | Satellite imagery reveals damage to key Iran nuclear sites | [阅读全文](https://www.bbc.com/news/articles/c7808xvv737o) |
 | Police operation to target grooming gangs nationwide | [阅读全文](https://www.bbc.com/news/articles/c70601550rro) |
 | ‘I broke my jaw in half’: Accidents raise questions about funfair safety | [阅读全文](https://www.bbc.com/news/articles/cg5vjn604qqo) |
-| 'Forever chemical' found in all but one of tested UK rivers | [阅读全文](https://www.bbc.com/news/articles/cm2yjxxvx08o) |
+| 'Forever chemical' scientists fear may affect reproduction found in 31 UK rivers | [阅读全文](https://www.bbc.com/news/articles/cm2yjxxvx08o) |
 | MI6 appoints first female chief in 116-year history | [阅读全文](https://www.bbc.com/news/articles/czxyx04dv1wo) |
 | G7 summit is a big moment for Canada's PM Carney. Here are five things to watch | [阅读全文](https://www.bbc.com/news/articles/clyg07jj17eo) |
 | Chris Brown returns to Manchester for first show in city since arrest | [阅读全文](https://www.bbc.com/news/articles/czdydj938mvo) |
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| A Timeline of the Minnesota Shootings - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE90WmxXbHY1TVFRbTJEejUyY3h1X1FoOXhxTUtsUWdGTGtpOExDVEhJUUQ0ODJ6TE8zTnp4ME8yRVlXb0R1UjZpV1JheXg3R2N0MDBFc0JYRVB2cjRpRTZSOUJKMjROMWx4TFU3aHc2UGVyZ2wtU3IySG1B?oc=5) |
+| Vance Boelter, accused of assassination of DFL House leader Melissa Hortman, apprehended - Minnesota Reformer | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxONW84cFZNLVNXQmVlaVFGRlo5Vi1aRFdtaU9Da09ZdEVSZm9jQmVDR2ZqbUt0b2hoTFVYNjJITkNCS3Y1OE85bjl5cnpXYm14UVV0Q3l6TS1zQVMzYlF0b2pIS0c3MmhiNVkySDU1ZjdEd3h2NWxhNjBIM196Z01heTlCOUp1TnNscUVMWU5nYk4zZW8zZW5ERjVkQUlNYXlBX011ZVdhbUNiZFBuT0lITE4wZHNGal9mLXdnbWN1b0lXVnR5d3Iw?oc=5) |
 | Israel-Iran latest: Four die in missile strikes on Israel as conflict enters fourth day - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBqN2dXcEhVM2g4M2UyTnFndXd1WnJqVUNkRG1PSlA1UW03X1VaVmdyS05wZmRFalZqWTJmSTluZlNIZ2paTmxaN2V1MWQzYUl2eV9BQTRMWnRWcDZ0MjJ1cTRYYXd3SDJPOGh0ckQ1Y3Y?oc=5) |
 | Trump orders ICE to step up deportation efforts in Democrat-run cities - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQNHhjNllOQk1abG4wRWhzcnNpUWoyVm9wTTR2cGV5bWdYbFJEeUp1cEp6aWZjVnRLNHJlallUaDhTZC1ZZHZWWUkwY2gwNDJKMnFjd1UxQ0ZLRG9DVWZCMlBsU3pyNV81dHJ5Rl93T201TEY3eXpyZ0taci1pNE5wZ0NXUQ?oc=5) |
 | Military parade and No Kings protests: a split-screen of a divided America - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNUkJMcWUxOXN4WkQ1azVRQ3B0dHo4LU5VN3NBRE5HQUl2blZncUM5emQ0Z0YtQ2xJdHgzaHhMZDFPMXJ6ZUlxNG9naWpuSUt5UWVsM0UwWm1OajdxbVZ1LTVFMTNjZzB4NHdRMHBXY2pqdlVvb0FoY3NfWTNVNVhiMnpDTGQ3ZWluRzlzZnREVWhRVjk0dnFkc0pqVi1OcmlRcHVwVmwyUmtIUVRwQXVJSTNqeWtXZw?oc=5) |
