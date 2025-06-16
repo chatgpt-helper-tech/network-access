@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月16日 13:22:46（北京时间）**
+🕒 更新时间：**2025年06月16日 13:42:54（北京时间）**
 
 ---
 
@@ -12,19 +12,19 @@
 | 'Nowhere feels safe': Iranians on life under Israeli attacks | [阅读全文](https://www.bbc.com/news/articles/c8xgxdr01wro) |
 | Footage shows burning cars after missile strike in Israel | [阅读全文](https://www.bbc.com/news/videos/c8rermxkx75o) |
 | Satellite imagery reveals damage to key Iran nuclear sites | [阅读全文](https://www.bbc.com/news/articles/c7808xvv737o) |
-| NCA to target gangs as report on grooming is expected | [阅读全文](https://www.bbc.com/news/articles/c70601550rro) |
+| Police operation to target grooming gangs nationwide | [阅读全文](https://www.bbc.com/news/articles/c70601550rro) |
 | ‘I broke my jaw in half’: Accidents raise questions about funfair safety | [阅读全文](https://www.bbc.com/news/articles/cg5vjn604qqo) |
-| MI6 appoints first female chief in 116-year history | [阅读全文](https://www.bbc.com/news/articles/czxyx04dv1wo) |
-| G7 is a big moment for Carney. Here are five things to watch | [阅读全文](https://www.bbc.com/news/articles/clyg07jj17eo) |
-| Chris Brown jokes about 'nice' jail as he starts UK tour | [阅读全文](https://www.bbc.com/news/articles/czdydj938mvo) |
 | 'Forever chemical' found in all but one of tested UK rivers | [阅读全文](https://www.bbc.com/news/articles/cm2yjxxvx08o) |
+| MI6 appoints first female chief in 116-year history | [阅读全文](https://www.bbc.com/news/articles/czxyx04dv1wo) |
+| G7 summit is a big moment for Canada's PM Carney. Here are five things to watch | [阅读全文](https://www.bbc.com/news/articles/clyg07jj17eo) |
+| Chris Brown returns to Manchester for first show in city since arrest | [阅读全文](https://www.bbc.com/news/articles/czdydj938mvo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Police arrest Vance Luther Boelter for allegedly shooting Minnesota lawmakers while posing as officer - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxQMnprNHBpUlZhQ3JtX09HRnczeGpFSGNGT3pvYzRyWEIteHJMY19VdzNzQnlLSlY2U2RBLWVGcnJYd0pDenEybnJHSXZMUmtNSnJzdkRVRWpCcmxpSmxKd0Q5ZmRxVWlfdkNuaTVhQkNoMEc0ancwOU1wQjNkSmlJZElIWEdOa1JsVFFvYnM1bmRzWHI1dDA3WUN5djlCZlF3bzNrdlljXzJDLVNkalhkYXlFQVJ1em1EbjJLWnVpRGJzaXE0R243V2RrT3ppXzlYZU5peA?oc=5) |
-| Israel-Iran latest: Israeli air force attacks Iranian missile sites - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBqN2dXcEhVM2g4M2UyTnFndXd1WnJqVUNkRG1PSlA1UW03X1VaVmdyS05wZmRFalZqWTJmSTluZlNIZ2paTmxaN2V1MWQzYUl2eV9BQTRMWnRWcDZ0MjJ1cTRYYXd3SDJPOGh0ckQ1Y3Y?oc=5) |
+| Israel-Iran latest: Four die in missile strikes on Israel as conflict enters fourth day - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBqN2dXcEhVM2g4M2UyTnFndXd1WnJqVUNkRG1PSlA1UW03X1VaVmdyS05wZmRFalZqWTJmSTluZlNIZ2paTmxaN2V1MWQzYUl2eV9BQTRMWnRWcDZ0MjJ1cTRYYXd3SDJPOGh0ckQ1Y3Y?oc=5) |
 | Trump orders ICE to step up deportation efforts in Democrat-run cities - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQNHhjNllOQk1abG4wRWhzcnNpUWoyVm9wTTR2cGV5bWdYbFJEeUp1cEp6aWZjVnRLNHJlallUaDhTZC1ZZHZWWUkwY2gwNDJKMnFjd1UxQ0ZLRG9DVWZCMlBsU3pyNV81dHJ5Rl93T201TEY3eXpyZ0taci1pNE5wZ0NXUQ?oc=5) |
 | Military parade and No Kings protests: a split-screen of a divided America - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNUkJMcWUxOXN4WkQ1azVRQ3B0dHo4LU5VN3NBRE5HQUl2blZncUM5emQ0Z0YtQ2xJdHgzaHhMZDFPMXJ6ZUlxNG9naWpuSUt5UWVsM0UwWm1OajdxbVZ1LTVFMTNjZzB4NHdRMHBXY2pqdlVvb0FoY3NfWTNVNVhiMnpDTGQ3ZWluRzlzZnREVWhRVjk0dnFkc0pqVi1OcmlRcHVwVmwyUmtIUVRwQXVJSTNqeWtXZw?oc=5) |
 | 'Innocent bystander' shot, killed by member of 'peacekeeping' group at Salt Lake rally - KSL News | [阅读全文](https://news.google.com/rss/articles/CBMiTEFVX3lxTE1KRDBGdjkxRE1FLW1TRDlGbWFWQ1NOZkxWbWpwQmlwQ1l6eVd3Q3dENzUtMFVnVklJOFc5OXdyN0Fudlo3V0RybUNDQ0s?oc=5) |
