@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月16日 20:42:29（北京时间）**
+🕒 更新时间：**2025年06月16日 21:01:15（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | 'Nowhere feels safe': Iranians on life under Israeli attacks | [阅读全文](https://www.bbc.com/news/articles/c8xgxdr01wro) |
 | Man and woman who died while skydiving in Devon named | [阅读全文](https://www.bbc.com/news/articles/cy4e4jmzep4o) |
 | MI6 appoints first female chief in 116-year history | [阅读全文](https://www.bbc.com/news/articles/czxyx04dv1wo) |
-| Tory MP Patrick Spencer pleads not guilty to sexual assault charges | [阅读全文](https://www.bbc.com/news/articles/c4g7g1858rpo) |
+| MP Patrick Spencer pleads not guilty to sexual assault charges | [阅读全文](https://www.bbc.com/news/articles/c4g7g1858rpo) |
 | Investigators find cockpit voice recorder from crashed Air India flight | [阅读全文](https://www.bbc.com/news/articles/ce818jlz5mlo) |
 | First heatwave of 2025 likely as temperatures to surge above 30C | [阅读全文](https://www.bbc.com/weather/articles/c4grg1w2xr7o) |
 | 'Shared ownership is a con and we felt trapped' | [阅读全文](https://www.bbc.com/news/articles/clyz8m8jj4mo) |
@@ -30,7 +30,7 @@
 | After early reprieve from immigration enforcement, farming industry reckons with raids - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNOTl5RXRIdmktODc5VXRGSlRCZHNIN2Yxam5IM2NXM3AzWDFkVThMV2lvdlFyb0RYaTBEY1FmeVROcUlNZjF0d3R4bG5Yb3VwY0FKVzdpMXFuNHRjMnZMdDUtTUdIenl6MFJ0YzBsZ0dXUktLZjM3Vk40SG1kaG41aG45S3R6QzM0T1J2N1NXLS05S0piNkZNSldzM09MT29hNVRLbkJLVQ?oc=5) |
 | As G7 leaders meet, allies ask: Is Trump with us or against us? - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQaEkydEZoYmFuUVVzbXBocGVCaXdOMnVuZ2xJdVVkSnFjTWlENXp4M1MtcVk3bWtVRzkwZUh4WHlmOGc3MmgybV9KbTF4R3BFS1Q5SDhCZHdXaU9aNU5yYXI4bkZkazVrUXlKNjl0ak9YUWdMdEtpaFJzUm5ubC1ndW5SaWFXZmRHNnJNb3piVUQyTTZnSG1pYS1FTFp2V2ZNeUJiRXBpVdIBrAFBVV95cUxNUzhkeW01ZXJOZDJsVWs4STBya2V1SFYxaEVkX012dE5jRXVrRVFINTVPQk9yZUV6aVFYdEVrQzVzeGRMUWtjbW9KT19XNldVckpDOGJLc2ZMaVBCbFFxSURnZ3hGREVJTV9RMlI5a042ME94SGVCOC1TTWZhZlBlWjRSQnppVzh5UGFvUGFRSC1HWlpXNThsamp2LUktbHF1U2RnemxYYmd4OWw2?oc=5) |
 | 5 shot, 3 fatally at "WestFest" carnival in Salt Lake City suburb. One of those killed was an infant, police say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNN2ZPbzdUUEJCcFRTb0J4X2lnc0FIdGlrNzRHeEpHWVNFUEFHY2xmcW5ValJvOHo4dVBQMkNDUUF4YVBjaGNySTVyU0puWEN3RnN5S0xYTDVyamJtQjRySU01aUZvRHBsV2VXQkZRT3g5NHM3WEdUYW9DQTc4ME16NTlqejI?oc=5) |
-| A day after Trump’s military parade, a quiet return to normalcy - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNT2FmVFhDb0VidlJBRzhubE91SHE4bnlkdVBzb1A1NDZSMkgyTlU5Nl9vSVFzYjA1TWhTLWtFYVFacU5fSkRvMGNabm1rblJEQTRBeFI2Ti1ILXUyWlpCaHlLSE82QkNhYmI5ZkhaNWZtQ0RSazVGMEZheGZJTG9raXhOcmc5UmxWSkZBOXg3SC12T2M?oc=5) |
+| Military parade and No Kings protests: a split-screen of a divided America - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNUkJMcWUxOXN4WkQ1azVRQ3B0dHo4LU5VN3NBRE5HQUl2blZncUM5emQ0Z0YtQ2xJdHgzaHhMZDFPMXJ6ZUlxNG9naWpuSUt5UWVsM0UwWm1OajdxbVZ1LTVFMTNjZzB4NHdRMHBXY2pqdlVvb0FoY3NfWTNVNVhiMnpDTGQ3ZWluRzlzZnREVWhRVjk0dnFkc0pqVi1OcmlRcHVwVmwyUmtIUVRwQXVJSTNqeWtXZw?oc=5) |
 | Protester shot and killed at ‘No Kings’ rally in Utah, police say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9jRS1MaExvdlFWenRFdGpON1ZZdk90MXM2WWxvWlZuZjV0TFdWZDFpRUZsUVhQTndpTjg5eEVSQ3NINmlJWlZDdGlfZ0NvOEdyQkl3dVRNaUo1MXZ4YkoxRGJJRlk1QVJFYjJmLTR2WEN0OEszS1F3WmZIWFJzbzDSAYQBQVVfeXFMT3NmaDFyc0tXX1J2Zndjb1V1MjhvMllwR2hYZGt0bWhZdWwwZHlyNnNraWdhWlFNNEE5UkhHVFpqYlBYZU9zVGY2Zlh6SEJ3SmdwTUtWd2MzSmppNWlmWEVSalYzUm9PbDBVLUtPdERWZEViencwWTg4eTE2XzRTTXBTX29W?oc=5) |
 | Former surgeon general fears precedent from vaccine board purge - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5yejdRM1lvalRKS2l5Wkd4cEV5M0x4alNYbkFKVEEwdkVEYmZIZDgzeTA5dGNGd0poMVg2RWdNbjFGb2MzMUpEQVQzSWF3U0xSTVhxd2FHcmlaZ1RtbmN6NDFiR0ZFZ05aSThwV01TMXRYaU9kVkE2QktfcHU3XzA?oc=5) |
 
