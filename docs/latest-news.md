@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月17日 14:22:44（北京时间）**
+🕒 更新时间：**2025年06月17日 14:42:04（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Grooming gangs report pulls no punches - but will it lead to meaningful change? | [阅读全文](https://www.bbc.com/news/articles/c5y0lrk2dqyo) |
 | British Steel signs £500m deal securing thousands of jobs at Scunthorpe plant | [阅读全文](https://www.bbc.com/news/articles/c2k1jjkd9e0o) |
 | Tennis player Katie Boulter reveals scale of online abuse | [阅读全文](https://www.bbc.com/sport/tennis/articles/cj42rvdk2k4o) |
-| Family of three Britons killed in Air India crash say they feel abandoned | [阅读全文](https://www.bbc.com/news/articles/c5y0lwreg9qo) |
+| MPs to vote on decriminalising abortion | [阅读全文](https://www.bbc.com/news/articles/c3rprg8zv18o) |
 | Church admits failure over sisters' 'sadistic' abuse | [阅读全文](https://www.bbc.com/news/articles/c2d5w0x6g7zo) |
 | England needs more hosepipe bans and smart water meters - watchdog | [阅读全文](https://www.bbc.com/news/articles/cj939kpnvx8o) |
-| MPs to vote on decriminalising abortion | [阅读全文](https://www.bbc.com/news/articles/c3rprg8zv18o) |
+| Warning over TikTok filming by hospital patients | [阅读全文](https://www.bbc.com/news/articles/crk6mml5pemo) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Iran's nuclear sites before and after Israeli attacks: See updated maps, satellite images. - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQWmN3cUVOWFdyZzFpY0FEanBKeTk3OExKZmNGZ2t5WElraGpXSHJNalB1bEczR1p3Sl9lLUFTZFhsemh3d1gyZTBBSW9wUEJvb2hveVhSclhwcXBaS2J1Qm5EN2ZkMl8yWEFzcG1ZQ012c1pYWUxGdlE3dnd3SUR0WGY1bnJzaU1hRmI4X05FcnBQdzFGRTZPX3Y3dERqQ0ZnMjZZRVRJTXpHQQ?oc=5) |
 | US Senate Republicans change Trump tax-cut bill, setting conflict with House - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQQzN2OWh3M2htR2dubjBFRmJvbHVDRUlFcE45VTRjVXN3UmtRSzFSWF9lMkhuYmVRd3lvb2d4Q1BCek1UZzVOQWJjWlZzN19tSklBS3pPSS1hbV9nbEprSWpsUUFvTlJtUEoxWFBqS2RYSzRKTXozbGkwMkpyRTZ6OXFpMEZDbzVkTE14blFRM2F6TGZqS1ZXbjFPR053ZGo1ZWlnb3RoNDVrY3B6OWdvcmp5OGlQekNR?oc=5) |
 | Judge extends order suspending Trump’s block on Harvard’s incoming foreign students - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQc2ZmcmJuLVBMR01WY0MtNC10WGRDYVJlZTF0VGhXMjJXbUNjTWZaWEtHTVFETE4tSXVyQU9qQU9BbjJDeWJxTmRKb2NiNllUd2RKZlY1bTgzWFdjX0x5U3dsMHRqaVZsYXF6aDd5QS1zUGYwVF9oUlI4YTBlTDg4NElpVG0xX3hzMmlFdkFsS21qU1RNLVlnd3dzLU4?oc=5) |
-| Man killed at 'No Kings' protest in Salt Lake City remembered as acclaimed Polynesian designer Arthur Folasa Ah Loo. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPb3dQYkdGZ2RWbGhONzhrNmF6dG1nMXFFZm9OV21oa0lRQUpiQkl1clhnU0RQUmNkb3NibEdpOU9ab25SY0FseFl6bFA0QjZvaGRZVFdmbzEtVnp5WEptS0E0SWFFbllIVnlPYVhqUWN2X2FJUlpfOXdfQUJqQUotaW5DQnlIYVp4T21RTGVkdDZuSjVDa1ZobWFuUVhEREI0akpMZGtwaDN5UHhuNDQ1Wmp30gFWQVVfeXFMTzVXVU1rS3BXcmJhWDlycm5BMXhxZWx5NV9adERuYTI1a2JHZldLNU02b3pGWGMwcGpCWVhfdGF0VUZwNXJZTmZRanVOaV8xenFYZ0JIV2c?oc=5) |
 | Mike Lee Draws Outrage for Posts Blaming Minnesota Assassination on Far Left - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNM3lpdF9qM01waVNkU2xCdVBwbzFneFR1LXY4bnNEVVBEd3RTMzR0Q3Jrb21Ebm5iSURMM3pPUWctRVF1Mk5DTUNWSEdSMVBMUXlYZjBZWW5fWEdkanpMQVlRMFgwaldwYnoxWlAyR2l1emdfa2xYRG1fR0EwR3RlM19FWXBNNXptNVJPeTRuMW8wVFRON2VPYkZ3?oc=5) |
+| Israel-Iran conflict live: Trump denies he left G7 early to work on ceasefire after Macron suggests US ‘offer’ was made - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQcHhuYVJCTEJOVXdod3ZnYUVKV3p3QXBzUUJFdW80U0lLWFRmUUFFczFTUmliTlhDRFZMcl83ZUtXQTgwVjJ6SFE1eDhHZnprN0kyT2FPN0ZCSG4yWF9mX3BGbGFPNXd5cHp5OUpZZFVWdDhuRldUMGR3SUNYNktfQTREQU1QNnVSSUNoangxMHBfUVlMa1hNWmxGd3l6Mlg0ejMzSnp5WUs5RV9zbHdFUS0yMUVweHJRVjU4aQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
