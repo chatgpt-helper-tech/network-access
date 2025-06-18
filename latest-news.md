@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月19日 01:21:14（北京时间）**
+🕒 更新时间：**2025年06月19日 01:43:27（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Lone Air India survivor carries coffin of brother killed in crash | [阅读全文](https://www.bbc.com/news/articles/cvg8591rpjyo) |
-| Kate pulls out of Royal Ascot as she looks for right balance of return to public duties | [阅读全文](https://www.bbc.com/news/articles/cjrl34rvdxdo) |
 | British woman dies from rabies after stray dog contact in Morocco | [阅读全文](https://www.bbc.com/news/articles/c98wyllp170o) |
+| Kate pulls out of Royal Ascot as she looks for right balance of return to public duties | [阅读全文](https://www.bbc.com/news/articles/cjrl34rvdxdo) |
+| Future of Notting Hill Carnival in jeopardy without urgent funding, organisers say | [阅读全文](https://www.bbc.com/news/articles/cq8zxk083qko) |
 | Kneecap rapper bailed over terror charge as protesters gather outside court | [阅读全文](https://www.bbc.com/news/articles/cy4k4xnlj8qo) |
-| UK braces for heatwave as temperatures near 30C | [阅读全文](https://www.bbc.com/news/articles/c8d6jmmdq5go) |
 | Jeremy Allen White sings as Bruce Springsteen in first trailer for biopic | [阅读全文](https://www.bbc.com/news/articles/crk6ded7krdo) |
+| Cats rejected as Westminster pest controllers | [阅读全文](https://www.bbc.com/news/articles/cqjqrddnldgo) |
 | Meta offering $100m plus to poach my staff, OpenAI boss says | [阅读全文](https://www.bbc.com/news/articles/c8730088e5do) |
+| UK braces for heatwave as temperatures near 30C | [阅读全文](https://www.bbc.com/news/articles/c8d6jmmdq5go) |
 | Chelsea's Mudryk faces FA ban after doping charge | [阅读全文](https://www.bbc.com/sport/football/articles/cgmwg1w9130o) |
-| Record rise in chocolate prices as inflation remains highest for more than a year | [阅读全文](https://www.bbc.com/news/articles/c5ygdqp922vo) |
-| Foreign criminals should expect to be deported, minister says | [阅读全文](https://www.bbc.com/news/articles/cd978x4pvjxo) |
 
 ## 📰 Google News
 
