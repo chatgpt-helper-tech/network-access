@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月18日 13:22:09（北京时间）**
+🕒 更新时间：**2025年06月18日 13:43:44（北京时间）**
 
 ---
 
@@ -11,12 +11,12 @@
 | Steve Rosenberg: Russia fears another loss in Middle East from Iran's conflict with Israel | [阅读全文](https://www.bbc.com/news/articles/c3w463pyj90o) |
 | Dozens more parents demand maternity care inquiry | [阅读全文](https://www.bbc.com/news/articles/cp861jezrj1o) |
 | Police 'could and should have arrested' US diplomat responsible for Harry Dunn's death | [阅读全文](https://www.bbc.com/news/articles/cj0m8erl3rdo) |
-| How investigators are uncovering what caused 'rarest of the rare' Air India crash | [阅读全文](https://www.bbc.com/news/articles/c4gkd555jlko) |
+| 'Taxi boats' pick up migrants in waist-deep water as Channel smugglers switch tactics | [阅读全文](https://www.bbc.com/news/articles/cpd1l6p8vw9o) |
 | Extreme heat is starting to change the way we holiday | [阅读全文](https://www.bbc.com/news/articles/czxw6331grxo) |
 | Co-op offers members discount on shopping after cyber attack | [阅读全文](https://www.bbc.com/news/articles/cvg85r4yr5jo) |
+| How investigators are uncovering what caused 'rarest of the rare' Air India crash | [阅读全文](https://www.bbc.com/news/articles/c4gkd555jlko) |
 | Opening of HS2 line set to be delayed beyond 2033 | [阅读全文](https://www.bbc.com/news/articles/cy0wr7nw7wxo) |
 | MPs vote to decriminalise abortion for women in England and Wales | [阅读全文](https://www.bbc.com/news/articles/c2le12114j9o) |
-| 'Taxi boats' pick up migrants in waist-deep water as Channel smugglers switch tactics | [阅读全文](https://www.bbc.com/news/articles/cpd1l6p8vw9o) |
 | Sharks and oysters set to thrive in warmer UK waters | [阅读全文](https://www.bbc.com/news/articles/cx2gn5e9y33o) |
 
 ## 📰 Google News
@@ -32,7 +32,7 @@
 | Brad Lander, NYC Mayoral Candidate, Arrested by ICE Agents at Immigration Courthouse - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNbzZuR2NjVE93eHI5bEhsOE4zYzFBaFAxckVpOTBoZVBETC1GZWZkMmt6RFNxaG1pczEteEs0SU5wOGdYZ3ZSd3g0WmdEYllWVGdDX2Z6MlV6SldiX29YN0VMS2ZTd0RkNWZFUHdpY2lTbDRKYWViSVJZdHFwS0lKQUVB?oc=5) |
 | America’s spies say Iran wasn’t building a nuclear weapon. Trump dismisses that assessment - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQWnBhRExOVDUyMWI2TnBBcGdCa0xBNTZ6bmp2UWFjSUdoUDJ2QlNCSWJnMk1Jd3luMFl2MWFhaWhWbVVDZERYcGZJbkhnakJISkhVMVJ0REgzSUYtZWQ0TXZFMGxUcFFpQUFQNTJHZ0M1eF9xa1lmNnM3dHNncDdXV0tSdDRqNElXWEFNbXVGRXRXRDBQVk5ubXFHTHRRUnFMaHU2LWF5dm44cVVIOThTSFA3ZVpaOFVKYXo4YXJRTm1kbU3SAcgBQVVfeXFMTVY3NHVQRHYzY0M3WGZ6amEwbHhkWTNYVFNLQ253ZUZTa2hmZEZ5a1BwWE03UUhjX2ZEUU5kUm96Yy1ZMzZidzZDZUtqdzVhNG9hZ2lhZ05tNXY4UGZKNXI1UzlKMWl4aGFranVkYjNnTUtGX2FlLTJsQ2k5T2pTNUJ6ekdiM0t5b2ZBVUhpYVA1eWJwMFhncGFha25TXzVSeWxVcXotUHk5bGtzRzlhbjcwaFlSRnZJbVRPaFQwRUNaNjRqWklYZUU?oc=5) |
 | Alex Padilla recounts his removal from DHS news conference in emotional Senate speech - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPbUoxRC1iQ0V1QVZmalR2bzNLd2o2YW9jN0EzQWlNMG9IVDNuX3k3bGNWM2JraEkzQ1JGcTNrRThKUzBiaG9sek1TQXNhTl93TVVDcEl2bzNoY3pyWEtqeGRKaEl4ZjNqTkxlOS1PeXREcjFpYmd0ZWlEQjB6MDEyYlluQ1R1eU5idHNBNlV6c0dsWlg0ZW5XQ0s1RloyNzVhVmN6ZmFEeGIwZWVLTmFIMzFiWU1JemM?oc=5) |
-| Mark Kelly finds a receptive audience to talk about gun violence - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE54bmZDbmZnM2FFRjRORHlCelJobjhUUGxpMTVYQ3VwdU9QVnFIbS01eEtKMEJHU253Z0piamF3RGlMX1JFcTF3RlB0VmMxMWxaZWNjbzZiclNDeExLUzF5V3gyYTh4Z3l2R2tTeTRzd05Ka05VVHBNdThDS2Jsdw?oc=5) |
+| Florida’s GOP skirmish has been dominated by lawmakers. It’s DeSantis’ turn now. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPZW5MZFB2THM5Y3VBWHNVY254U3lVN3A0RFJHMnBWQ1EtMVRDSzdORWdLbzNsWENOdF9wQ3VFRUJabVdFM1FkT2FYU1gxZk5kcWtHblluODY3SEdrZkdSMFBLREFUaHQ3V1FzM3kyZkg4UEZiRWlySEp2dFgzMUwxLWNHZU5ZYzQ0WmR6X0xuZ1RJNEtrNkV0VFRKcGg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
