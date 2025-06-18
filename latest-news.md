@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月19日 01:43:27（北京时间）**
+🕒 更新时间：**2025年06月19日 02:00:47（北京时间）**
 
 ---
 
@@ -10,8 +10,8 @@
 |--------|-------------|
 | Lone Air India survivor carries coffin of brother killed in crash | [阅读全文](https://www.bbc.com/news/articles/cvg8591rpjyo) |
 | British woman dies from rabies after stray dog contact in Morocco | [阅读全文](https://www.bbc.com/news/articles/c98wyllp170o) |
-| Kate pulls out of Royal Ascot as she looks for right balance of return to public duties | [阅读全文](https://www.bbc.com/news/articles/cjrl34rvdxdo) |
 | Future of Notting Hill Carnival in jeopardy without urgent funding, organisers say | [阅读全文](https://www.bbc.com/news/articles/cq8zxk083qko) |
+| Kate pulls out of Royal Ascot as she looks for right balance of return to public duties | [阅读全文](https://www.bbc.com/news/articles/cjrl34rvdxdo) |
 | Kneecap rapper bailed over terror charge as protesters gather outside court | [阅读全文](https://www.bbc.com/news/articles/cy4k4xnlj8qo) |
 | Jeremy Allen White sings as Bruce Springsteen in first trailer for biopic | [阅读全文](https://www.bbc.com/news/articles/crk6ded7krdo) |
 | Cats rejected as Westminster pest controllers | [阅读全文](https://www.bbc.com/news/articles/cqjqrddnldgo) |
