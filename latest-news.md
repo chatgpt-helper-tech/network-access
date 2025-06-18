@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月18日 08:21:40（北京时间）**
+🕒 更新时间：**2025年06月18日 08:43:46（北京时间）**
 
 ---
 
@@ -23,16 +23,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump demands Iran’s ‘unconditional surrender’ and says US won’t kill supreme leader ‘for now’ – latest updates - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQcHhuYVJCTEJOVXdod3ZnYUVKV3p3QXBzUUJFdW80U0lLWFRmUUFFczFTUmliTlhDRFZMcl83ZUtXQTgwVjJ6SFE1eDhHZnprN0kyT2FPN0ZCSG4yWF9mX3BGbGFPNXd5cHp5OUpZZFVWdDhuRldUMGR3SUNYNktfQTREQU1QNnVSSUNoangxMHBfUVlMa1hNWmxGd3l6Mlg0ejMzSnp5WUs5RV9zbHdFUS0yMUVweHJRVjU4aQ?oc=5) |
-| Brad Lander, NYC Mayoral Candidate, Arrested by ICE Agents at Immigration Courthouse - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNbzZuR2NjVE93eHI5bEhsOE4zYzFBaFAxckVpOTBoZVBETC1GZWZkMmt6RFNxaG1pczEteEs0SU5wOGdYZ3ZSd3g0WmdEYllWVGdDX2Z6MlV6SldiX29YN0VMS2ZTd0RkNWZFUHdpY2lTbDRKYWViSVJZdHFwS0lKQUVB?oc=5) |
-| Donald Trump’s abrupt G7 exit causes disquiet among other leaders - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9XMktpVlpoLTJFTjJlN09mOGRiWFVDR3BDUWpsUHF6MkRHVzZUUGx3SzAySG9zU0NaWXAwYm1uY3duZE1kV2JTeHk3WXR3MEVYM3hqZlZJOE5LZVpsdlJOY1Q0d3ZaV3M5cTBjWTdpRm4?oc=5) |
-| Senators get security briefing following Minnesota shootings - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQZEc2T1otdWk3cDE2SXRUdkhNRUk5Vm1rOVRPdnlpRnFSbGdJSmozMW0zT3RRa0VBdEhCNnpnZFg4T01GMFJkTC1ES282d1NZTkF4ZFNmUzNhMGdWNDZtc2IyZDJqU0NfVk5UMlo1NkpWUU9jYlVOSzh3U3pGeVBoc0hRWUQ3am9ROHRMNGZBbll6elVhUUVEYzEzclp3UQ?oc=5) |
-| Karen Read’s retrial: Judge declines to answer 4th jury question, calls it ‘theoretical’ - Boston 25 News | [阅读全文](https://news.google.com/rss/articles/CBMi4gFBVV95cUxNa25pb2NFd0FiSDdxU1JEZ3lvdlBzRTlVUzVSOXlqblVtVFVXXzdReE54ZGFQNGtmVnVUeGlmdUMwVS1uOHVNX2U0OUN4ZnhKc3o3aUF4TWVoRXZjcHBSdTFuQlNBYW1PbVR0cUx4YWt5cUdfNTVNeGI2YlFBaEE3dzBlRkpLNC1NYTBUV0UzSHROaTFLbUE1R0lsYnI2OGRoc0NoRThaZUg3ZkdKaklQTjR0LWxZb3VDejNlcDRmSllsVXU2QXo2S0hmemExejd5SnJBbVBSc0pYYlRUSlZUNmtB0gH2AUFVX3lxTFBvb1hNdnAwTXVCVDduaFByejB3dXNXbldDZnI3UnVrX2pIa1dUWWs4M0F0QVVGNlNHMV80eHVNYk5MN3VuSEdNSzA4bGpYaU9zTDB1SGkzUFdfcmlnMEFKbzYzaE9Xcko0eGtPZGJMelE3RVFJb3pkaWJ0dHNPNzB5VW9ucGtKaE5iNTRKWHg5OVhZMVktTFA4LS03OXVRQWUwdjE2cV9haGgxdl8yMlRTU1FodGNaanNMY1FXRU45LVE5RnFYdUhseEVUaTlNSHAxUVZRU2FUWVEwRzM2QlctYV9RM0NYM1N5OU1QaHVWYnlLWEc4Zw?oc=5) |
-| As Israel turns its focus to Iran, the death toll mounts in Gaza — and hunger deepens - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1zakdfSUFHMHV5amExbmI4UDVHS2V5dEtDYlBGTXRkSHRibHE1SlR2UkhHSHRTQVVfYjV1WEtfUGMxQ2ZVM3pzSks4c2JVdUxGemFiVm5tQ3pOS09FN2pLdU4zc0dfcUZtUUxrdHE0bTlrWVRGWXZac1IyY3o?oc=5) |
-| Senate Republicans’ changes to ‘big beautiful bill’ tee up clash with House - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE93VzBodGkya1pBNFoycGhRZ1dOQl9VUE5rMFNWSkhYMEE3eDZSZXBCZkRWd2NKQ2ZPbWU5RDVEYmVMVTItNjUwM0hfV0hMWDIta3hscEE1LXA2S2pVc1ZBTFB2Z1d1d19UejdqVHhkdkI3Z0s1eHZ0ZTc4NzI?oc=5) |
-| Trump to extend TikTok sale deadline for third time, White House says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPbWVSbmo2SUlyeGthRXNKdFVXRG9XVlFiTldpdUxxZ0dXbXpIZ1pTaVpKWHFMTG5Sc19Fb3Zfc2hYU19nNk03bTBUeGdHemplV0FCTUdnY3hrOFFnQTZ3SzhlRW9nQVNIWUVMMTF2dW1iX1BJbE03Ukp2YUtQa1JnTHZ3dll3ekpfR0VOc2VLN0taOEkxVnBRdFRCcVJwdnFVcVQtZm1rVQ?oc=5) |
-| Doubts abound for Thune’s aggressive megabill timeline - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOUmF1T0EtLUU1S3RlWWRwY3RrbmpDSGMxV2lKWGJRN1M1M3NZb3hlRFVUSVhfVDNTWmJJU3pyUWZhWHEtdkItaGc0TkVJNnJOUW5yQ3VBT3J1a1Z3NzltMjFmUjNZUGVRZ0NpSWlqWWF5ME5nSVRKZms0WTZkSVF2R0dFTHpvTzdGRXJjMnJvUDBsalhhcFowcjhLX2Y2cV9WSjNRc0pR?oc=5) |
-| Mayor Karen Bass lifts curfew for downtown Los Angeles she imposed during anti-ICE protests - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQTGRhdWJ4dFZFblg4b0FFZnQ0MDE1MFpSYk5mM0NYX0xUTTlXa2hjbVhHeWtJUW8wOGcyekljWDRyb3ZKU2ZMMmNVbW1QNGNsNkpOcmFtM3ZPaHZFYjVERGQyejJ2bDNGYkRGVFZlSHg2ZEpmUjVUYVcyZHJHeTRmbGVET1Z4aVFCYWlXTEE5U2JRanllaUEtdnNEblUzUkhjMlFQZkNxM2NQZ29pbmJzUy1MMHpyQdIBuwFBVV95cUxONEhFbG11QmFCalVKTVptZ3FkcldUdHlGQWNNZzEzaFRDMzRtaFBieVpHbFdrc3ktSHMzR3E5RU1nQlMxS1JsTFBfdTZzTHJwLWZyRm4tbmh4OS1pSGJJVHk4NEdweHpHU29rU2liaGUzUmlBOFpXRHRhYi1DOTktZGxGRTVwdTdVZzc1VXdVNW1KenRGM1ZwemdTb3N0b2RQcGE0RzdhVzV3b2JPcXMtU0RPOHZSdUxPdWE4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
