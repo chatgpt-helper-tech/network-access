@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月19日 22:43:40（北京时间）**
+🕒 更新时间：**2025年06月19日 23:00:48（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | U.S. v. Skrmetti: How the Transgender Rights Movement Bet on the Supreme Court and Lost - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQVGdvb3RGaV9qbG9hMXlrRWxHaE9sZ2RjZXZfNnQwa2NSN2V5OVRFdk1MZ29aSWtmMTJZQ2RqRjVqR0xZbjRpeGUwczN3SjVnN21vdzItZ3NPZWVuM1JxSFAxTXpNYWtMVDRPMWtMT0ZBWW9CaHlvZFJFQV85YVJ6OHo3a0NQenNXWDJZTGtrVFB3NGJxV2c?oc=5) |
 | Friends, family of John O'Keefe lament trial outcome, demand justice - WCVB | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNRXZZUmdNTVJuU2U3TkxnaTNSUEJJTTFlWENDU0hyQUU2RC1YSzBRZzF0amJmeXo4OXBNY0c4UWhGWWhUUWdYck1sYXV2MHRodmlQZDdPOTJrdnFyZmd3SmNoMUIyRWFISVJ4aFM5QmRLS2h5c0RSWVgxNXQyM0dsMVhETXVMcXAybmRyWVU3WWgtY3kzUnpVVWdhbjJrVFBKaDlz?oc=5) |
 | ‘Weak,’ ‘whiny’ and ‘invisible’: Critics of DNC Chair Ken Martin savage his tenure - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQZWNEVkpNcGFJakxLbkgtU1IyeG5GRjRsY1hEMkFYSEg5c1BtcjNkRS16THlldzgxa05kMmJ6bnFLcUxyVUIxM1R5TUhfVDFLbmo0NVFOVnZsZk15NVFTaVBHTURWQm5OX0R1T29RRmE5a1U3endwNkVtNFplUjJXVGFRYjRlc1BJ?oc=5) |
-| Why Israel wants US bunker busters to hit Iran’s Fordow nuclear site - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQUHUydjR2ckdrb0JWT0p0NURHMG9ySkUwdXhJQkVBT0VlaHd5aEF2cnJtTDJHZEJBYjVkZWlPZC1pSHJLNE0xLXZQZWVIbFcwNTFDaVVtX0p5d0Z6V1J3cjAza2dQbnpFZXR4Q0Rtb1d4MlJES29xWml4TEZONUFBZWN2Wjd5ZS1WLWw3aFl1cThNcnlSVEN3bkRjX1FDWlNJYVIzbFlLSl9FUHhG0gGyAUFVX3lxTFBVdHNRUmtfZGRVQWp3eWo3Tmc4SW5UMUk0aVdIQl9zMDA1OGRKcEJmWlFtM25jNnBaRElRMzdmRmtwLVJPNUluNWV5MkxwMlJOMXFtSEpvak5GQkF6UmhBRHY5ZGszT0NnU0xhT0NRUWIxd0ZwcS1sY0cycGFBUkgxSzhKaWZ2aHByeDFSYTE2ZWJhNXhwdDJBRFdyWHc1UG9ObnRhRWZnV2VPSzF5VVNVR2c?oc=5) |
+| Israel-Iran Live Updates: Trump Privately Approved of Attack Plans for Iran but Has Withheld Final Order - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTFBCcDlkWDhoY0pyQW9OSzNVamI5eDVsRjBQeDBhX2piNzA5VkVQbzcwcU43V0lHLTBWeDZpeThYck54eXVWdi11a0dPanFQc21TQ1dheGVtajNDWFRlZTU5NVRLQVc1MDNwTlE?oc=5) |
 | Hurricane Erick 'extremely dangerous' as it nears Mexico - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1uQk5GMnRKa1MwVzZCUGZhTzRDcGVBVHNneWJ1QlZyM2txdTE5NDZUQ2xCT2xIVHJBT0ViYXc5RWFBdVlZWnNHamg2ZGZWZVJPVktkSXVaclBmQdIBX0FVX3lxTE9aNENpdE1iczNBVGNtRERGY0Ixb1lnSjNSWlViUkFZQks4SHV6c2w2QkluY0NNNG1tcE02Q1c3YXlqd1ZxUFlJUHZUaHRPdU1yWmxqOXFpVGxLbTRORVNV?oc=5) |
 
 ---
