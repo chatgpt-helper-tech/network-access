@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月19日 09:00:12（北京时间）**
+🕒 更新时间：**2025年06月19日 09:22:28（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | The U.S. could use 'bunker buster' bombs in Iran. Here’s what to know about them - NPR | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5XZXdzSG1KWkFGbkNadkhGTVFTdnpRa0p3Tlc2S0tXUzFnTmxzWmZVMmJtblJNTVhKakZtbnhQTE1IOUZnZDdGZnlNM1VnNktWbHJHN2xtQ0xod2VoQk5ZWmVGQzB2cHhySjBnWXV3MkU?oc=5) |
 | Mapping strikes in the Israel-Iran conflict - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5XWFRKWlVvbEFQNUpyeEwxM1VPWVhYZmlvcHFMZmxzeTVKcEg3UmhfTk9jLWVXSmR5Y25rc1NURXJZTHd0NDVDWk8yajJYMlZON2JuOF9Ma3RLLTZvTlJvcXc1ZFlrbldYVmhxNlFCNjdNUE1Ua0UxcEhvT3RWdw?oc=5) |
 | US resumes visas for foreign students but demands access to social media accounts - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOYjR5OHYzeGk5Q3pBNXFFVTh0V090a1JvN1QwekFNWGhhaVNFcDNfenM1dzJrQ3hqZ2FWMkRlWkQxa3oyaGExV29ib2hTM0NUS0ZTdUpHOVJEZWptcEVSM1lYRDh0OXVxVDhvcWNJR2h2ZFFoamtuUFV2ejVTajlzT2dxamdJbVpwVUZXY1ZMb2c3NEJlQXdj?oc=5) |
-| Suspect breaks into Rep. Melissa Hortman’s home in Brooklyn Park - 5 EYEWITNESS NEWS | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPT0lPZXhldlZzM19ob19lUktFaVhYWU9KaURhTHVHOVV1bzhmLXBWUUhWTkE5Q1pCcTlRWXQwdGxWQUswRU5uT2h3di13alREaTRoNlo3S3JnMVJ3U1NEeDRIN2s3YndQeUIyeHBTTzl3eVdyNE9nT3QxQjRjRUZnRzNEUmViNUdjalhxY2RhemxYQkptNWdhdUR4eEVueWtj?oc=5) |
 | US Supreme Court upholds Tennessee law banning youth transgender care - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxORElVazRzY3RmZjZ2UFpGRUNwOXBtYkg5ZmY3OE1PVk01M2RHcTRieEw2QWRhSnprX3FldVdjRU5qM3JzeXlKOE5BbjNhS1JRTXZKX0JSd0oxdVFmNEVUSGVGekVjUVJ1dEh1dlFXOXZrdHJSeHpIaEpXaFRlbVVCdHBtY0diQlpwNURVZGx1V2ZkRTlhc3F2Zm1VeUlRVUM4dUtrR0JhT250QzU0Y2JPeWNR?oc=5) |
-| Trump administration cuts specialized suicide prevention service for LGBTQ+ youth - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPNWN0UldMMnBOYU1BbGt4UmNEZEJuZUFOaDJDMmpldkdjS0tiU2ZjUTJydTIwRmlONWdGTkZ2bmx2VTR5VGdDU0RYZmZuVEd6SU1jQnBVVjZiY0ctT0c4RmdmNXZqNnQxREw1cEtuWG8tTWVrTUFPeTZrbWREM2NXMlFqM2V1ZDZPZm41LWphSkhLaktnQkw2MWRWMXE5RV84aGFj?oc=5) |
+| 'Senseless violence came to my door': Rep. Kristin Bahner reflects on surviving accused killer - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMiggJBVV95cUxOdXNnNE5OU0d3ODFRYmVBNXVtYmNpRENiaU9qeWV2aUptZ0tOdnNlVzRyWGhBSGdlNG9CdHZmNnpScE03RDB6Rnhkcm5tNmVYeEloLXh6a1hJdGdlWkw3TEREVmdFTXkyVmtzV1VwNE9MLWFSempETm5OVGVEZnVYM01pdFlWMDZhLXFTbkY1dFNaOHp0V2Q2cnVvbGNTdUJRZTF0OS1sWi00UkRhVzF3dy1RaDNtMXpFS0RlcTdpaDdOWks4ekctS0N3Vklyd05UbE5EY0FlbXJKeExRem4wSkh0Tmw1OTNqc0pDZkpxbjF0OHBjSXd2anpJcnB3T3ZsYVE?oc=5) |
 | Maps show heat wave forecast across U.S. Here's what to know. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE84MzRIcmFRLTJ5SE1ZWXFoVV9Nc0t3QXBxcWZ1QS1ObERBVXBOdHBuY2ZHQTI4ci12VF9Zb0Y4SHZxU1BMZFgxWk1mMDJZR0dEbWY5d3RsamZEQ3BzRGI4a0RLSzRXVEdOdEpqUmtFUW11RFlw0gF6QVVfeXFMTWpfa3JVcWZSLXRsNFdOQ1d1RmtscGEyeHlxSG4wVzJMVndTLURGU0ZDcF83VDhoTFJMdF9sb05wbnplXzdkeW9hS1VndlFGdG9XU25tVTdRTUotWFdhSHF3VENOcFNQVlhTSHhZTkxMQm5lTnlWTGxxVkE?oc=5) |
-| Trump Says He Doesn’t Want Iran to Have Nukes, Isn’t Looking for a Ceasefire - Barron's | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBSQ1hKdm4zR2lCYlZqUTNGMGdjTjlzdnBzRFJrMTZzRGQ5NVRXOExnejI4VUIxZDB3Q2xWZmwtRzRkRF9vS1gySFYtOEg3bnJjZXFVTVJXVmZnb3Y0TVhzLXJUVzlmZ0VGS21QNjdFc1lmLWExNDJJ?oc=5) |
+| Trump administration cuts specialized suicide prevention service for LGBTQ+ youth - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPNWN0UldMMnBOYU1BbGt4UmNEZEJuZUFOaDJDMmpldkdjS0tiU2ZjUTJydTIwRmlONWdGTkZ2bmx2VTR5VGdDU0RYZmZuVEd6SU1jQnBVVjZiY0ctT0c4RmdmNXZqNnQxREw1cEtuWG8tTWVrTUFPeTZrbWREM2NXMlFqM2V1ZDZPZm41LWphSkhLaktnQkw2MWRWMXE5RV84aGFj?oc=5) |
+| Trump presses aides on whether bunker-buster plan to bomb Iran will work - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQLVFVZVpSWjdSdmhiZEctbHVseVAwdEdkWkxmZElMcFpKMnV6WWJWeDBRQzNzOHI5MGw2S0wxRnBPYm5WeWRZdU1lb2ZwMDZGdVI1clJVTjZVX1BET0ZabGI3eFVFRVhFaW5sSVhjdTB2RVZVX19PUG1nVG1vVnZMZUFOUlk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
