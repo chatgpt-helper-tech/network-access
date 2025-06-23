@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月23日 16:01:29（北京时间）**
+🕒 更新时间：**2025年06月23日 16:21:15（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | As Israel recovers the bodies of three more hostages, how many are still in Gaza? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOZVYtVjZTNF9TSWdRSW5kN3d2LWxjSFlNaEJsQ21IWi1nLV9kb2ttU3lnaVlJVDF5NDNrMVNVQ0RZVWRaRkJpN2JGY0F3ZUFMSkJJQjJCRm40TTY2ZHpNa0kxcVpBQUotaEk3OGxIVmlGQ2xxSUtpNXZUVURZRUVoWm1jRnh5TC1NRE43R0lEZ0dWMFhnRVh6cVNMNmRGMzhobV9FclRNQkk3TWl4OWtDc0ljYVU4cmlCYUpyTnR2cG9sdw?oc=5) |
 | Police credit staffers for stopping gunman at Wayne Co. church: They 'prevented a mass shooting' - The Detroit News | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxNYjFvZ2IzQXJvOGJQVkoxVzNsS2ZzaWNQdTBzQXFjdWhTS3N3d2JMc192NC1lMFRRdkxxX3NIY2pxdnlzVmdYMm51ZVRwYl83RmxuenVyWjFseDBGRVpIdEhiZno5Q205RFhqWl9JdE5veVBCdGt4V242TTBkb0Q4X2lVWjhWaGptZFhzdjItM2Nqa0xtR2pGRXlwRG55YnJUYWNJTTItVzlrSG9EWlludDA2MkRHR3JQV0twNUQ0NEJBSEJfNTRBbkJrNGpnMGJCVEhzMjRSNndwelNNbVI2RUhwd3N4S2dGZE53aQ?oc=5) |
 | Netanyahu: Israel very close to reaching goals in Iran, will avoid ‘war of attrition’ - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPTHFmcEpiQ2hKTFZQZkExaEwxQU9JemVQN3pjalhNb3FZajR3b0dfTlI0d1NoSFBlVmNOS1dIY3RBQTVrcS04djFaNUFBbjhLZjFuSXUtTGh3LTdnUUpLcEFJZTZidzIwQVMxQldrdVdCU2NxeVFZakU1UHROaURWNldPSUhOMmJYZnBZZXA4d0hIMzlleWJXY2JBWWRGdXNEV1duZnluN2UtalJHazZZcmJB0gG3AUFVX3lxTE5KV0FVbEhsZkZIa0FUQVhjWFV0SG1CdGc4LWppQkpNQ0NIdk55dlhSUmgtMmltWFRSSV9Yc1BpamZMazdOX2FnX1NjVWNFN1habEdQS3NFTExGVDBXd1QzUVJ5djAxTmZ5aUpiem1yelBSdjRFaGRjcjg1TTEzbl92T29qZWttSXFVODcxMkdsTy1tUHJZcmlJSXpyZGlPTEVDSktfaDdMbWlqR3BlTWoyYTRoTzJtdw?oc=5) |
-| Gov. Greg Abbott vetoes THC ban, calls for regulation instead - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNMmxkckl3ZE9YekxLZTdrNzRqNU1UellLWlBBb200aDRxMUY5a2lnaUxpV1BwLXdnV2ZvMEhvZnhOZ0M5NVZJaWxETFB0c1J4SHZIWnlVYkJoMmxUV3hKRDZTTVROWFN2Q1QxVDUyRGpESE1qM0tsOVMxLXBtS3pKQ2pPZjA2aFlCeXQ2N2NieWxYdl9G?oc=5) |
-| Is the U.S. at War With Iran? What to Know About Trump, Congress and War Powers - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFAtTUZoOWJON3pWVWNmWHIyOElyVG96R2Q2M0dOOS05dGdjcFNnN2FGSU8zLWZDSnU5cnhoVHZ1cEN3Yk1lenNmYUh2Z3loRTZaNll2Z3R2d1FKN1hNMzNiM3lqbmJuakxhalg4c3B1alduVVFzWUFxZ0ZXSWUtUjA?oc=5) |
 | ‘It Felt Like Kidnapping,’ Khalil Says in First Interview Since Release - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQXzF2LUFJTFhkdmVERm1MYW5Dc3J0enR3UlpIS3E5TTN3STB1ekk0NGlsWmhYWmoyMjFSbU95d1A0QlpsWDVWVVlXYUF2VVg1UUdLdEtaUEk1ZkZRUGxNWkxGYXcyMDdidS1ManlLSTI4Wm9uY04yUkNrOWZmcGZ2a1JvVTlxUQ?oc=5) |
+| Is the U.S. at War With Iran? What to Know About Trump, Congress and War Powers - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFAtTUZoOWJON3pWVWNmWHIyOElyVG96R2Q2M0dOOS05dGdjcFNnN2FGSU8zLWZDSnU5cnhoVHZ1cEN3Yk1lenNmYUh2Z3loRTZaNll2Z3R2d1FKN1hNMzNiM3lqbmJuakxhalg4c3B1alduVVFzWUFxZ0ZXSWUtUjA?oc=5) |
+| Gov. Greg Abbott vetoes THC ban, calls for regulation instead - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNMmxkckl3ZE9YekxLZTdrNzRqNU1UellLWlBBb200aDRxMUY5a2lnaUxpV1BwLXdnV2ZvMEhvZnhOZ0M5NVZJaWxETFB0c1J4SHZIWnlVYkJoMmxUV3hKRDZTTVROWFN2Q1QxVDUyRGpESE1qM0tsOVMxLXBtS3pKQ2pPZjA2aFlCeXQ2N2NieWxYdl9G?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
