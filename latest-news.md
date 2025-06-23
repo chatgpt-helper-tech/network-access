@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月24日 03:42:32（北京时间）**
+🕒 更新时间：**2025年06月24日 04:01:04（北京时间）**
 
 ---
 
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Iran confirms missile attack on U.S. military base in Qatar - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE8wNjdNUlpiS1o3UFp3RVNQd1JxUUU5Znh2aHNWMWNPNGtCSkdaS3hmTU45SlhlNzRaOWpwbG90LUVlT18wZVlWT0hLLTZRNVp2aFNtand0VWJwSWVfdGVLcXh1c0RTZVFocXNNSjBiZk5JR3BH?oc=5) |
+| What we know about Iranian strikes on a US military base in Qatar - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5OWXRORUhLb0F2R0p5R1VHdDBKR1lmMEFPbFl5emhLZmp2US10UDQzY2Z0ZXg1ckJlZWo4dWNrVmpDVHpQWlg3VEllVmVlQXh4LTFrN0ZXX3Y2Z9IBX0FVX3lxTE9RMU14VXVSNDRFblM0R0xKaFNOWWJvQ0hlb3IyeE5xLUxYbUxPdlpCYlpnOGhzcDNwR1k5bzQtZ1FwWi1YTm9fSG03Qno4eUV4Wl9PeTI4TUU3eGZoa0hV?oc=5) |
 | What satellite images reveal about damage to Iran’s nuclear sites - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPcDRqVE5iWFc4REVKenVqSG1aa0NyZm1PTDhYQ2tRLWl2a3lGRzFCdDJ1Yk1lZnlON1duNkw5aHBKNm9RTnFIU0I4Q1V6VmVQc09vN3lJTm1Sd2RhbTByTnJoNXNWOE1SMjBRN1I5UWpnNFFISWR3RnpaU1Vhd3U2ejBJY2FsVXdQcjdXRHZJYmhDczVVWEpQWUpLNlBfVkE?oc=5) |
-| Israel says it struck Tehran's Evin prison and Fordo access routes - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1uRTFOYlVJak5CMThOVG5DZUF2b0tuVzhqaVRXY3hncGRNWmRJU3ltdWhWT3ItUENpN21GQmRFR0RvYzFDOWxHX2M2TVRPeFU4T1ZONHh5UkhyUdIBX0FVX3lxTE5ON1oyVkFGNEt0NXdzVEtjcXUtbU0yLTQtbzliQzduUk91WTY1Q1VwZnVOU0VEbFZhbEZNaFFHRU9qMkJ0d1dUZnBDUjJUSkh0a0pVZXZ1NzM1VVE4V3JF?oc=5) |
+| What to Know About Iran’s Notorious Evin Prison - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBqb2hBbVNEV2FQWkh6NE1MVER3ZXVuWDFLSVotTFdnLTlCWTB2Z1FKQUZFZ29jV0JZZ2UyZkJjMm5LVFo4SFBVMnZhaGRtbS1WRVFVSW1MY1dfc19SVk9RZkoydVJwbl9XN3c5T3Fia2FZRFpSYS1ic1pLUHBfdw?oc=5) |
 | Trump slams Russia's Medvedev for claiming countries will give Iran nuclear warheads - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBjUjA0SWMtT01hcUIwTGRCRF9VdU5qZ1RmRlBhYXdVRkZFV09mTWhNMjZOTFVYd2daaFV3azVHM1dQd1NqcmhGV1QycTE3bDZaeGp2cFRZc2RKbWNEREtiSzh4UXNsaDlTVXBraklmeG9JY2JoQ3FkMDVqNA?oc=5) |
-| U.S. braces for heightened threats in wake of Iran strikes - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBES2RreWtON200V3dyck9sYnJTLXlsVFlyRks4ZDhLQnBmU2EwVmJtZGJsNUNYTTV5UFh6MDY1SGpuSW50bGJFUWJQX25fbUNWdU5zeDQxZ3U2bWtLOUZ4WmxlUVZTLWpFbnluSWM4djNsSjZJaHc?oc=5) |
 | Can Iran really shut down the Strait of Hormuz? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNVmlyVmt4ZGlTN1o1NHk0RVJIVWQ4SkhnMkFwWFR1ckRpN2paQ3B5cmd0cGg3TDh4cU9zT045YlZXbkptNFZlSkFmUnBHM21aaUdFaExHMFJMTDA5MlBpX0lFdlVKTjVlV2xYR1ZzZW92U2psSFRKeFJkOEN2RUhUamVWS2wycnhrUExueF9fc07SAZYBQVVfeXFMTjNpR2xaVmNZblJJUEtPbnE3dGRVRTg1ZWZHLXFKN01BcC0xeDlLUTAzelozcUUwYWFfMzdncTNZYjJpYVF6QXB1RWpzSDgyRlRlRHNJS1h1a1FDQkxNU2hlU21sMlV2OE1GNGh1T2FMcFdDZ0lFTVdiVGZkVV95VjNNenM2bmJBNVZTV2V5d0RkbWo2QWx3?oc=5) |
+| Zohran Mamdani appears to pull ahead of Andrew Cuomo, according to new poll - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNdTV0OE5zSUNHNHFyQVU1R2EzWVRBM0VISC0xM1BLNUdxU2czclBLZnQ5VmpUbGM2MUJBZHhBNkJKMlJsS3h0dUlyUzAzYlRkd1ZNSlEtdDBfVWdjbDQ5RmotbTlDV0VJNWx6TnhCMF9FdDdzeHFBZGt0WTY2NWhncGRSZUo?oc=5) |
 | Brutal 100-degree temperatures will hit cities from Boston to Washington - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPN3VlOXpCaGd2OHl2VDFCNXZvQm5fQV9EelhHOVFrc2g5eFhlVk9JZjBnNnFSMzMyZ2c2MGlQTm9uemlNREJwZzViS3RxTWY2bHN6aHMwdjdIWVZfelNlTThxMFFxZjRnREN1WEFOR0kzWkwyb1NZdV9QVE13YkpxQmFtTS1WV3hNZDdtQXdTVnZ2Ums?oc=5) |
 | Post-Dobbs abortions continue to increase: Report - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1vbzBrOWhzREtUek9TUEhtQnpLWTRzeUNMYzkwemRQUFNTRHJDaERUbGlfYVdjeE9OeU9GTXFyeklDV195VmFRSG5haFBmLTBTUHF2bl9rbkNvWnFkWXRMZ1RfUy10cjdQTTlaZUhFOHUyV1E2bHFWbkkxOGRWTUk?oc=5) |
 | Texas governor vetoes hemp ban bill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPdjg3Q2ZjeE55ejRZY3luSDh5SnV4VUhPQzlvNVBlWmp4YjZ6RUJzU1FFbkdtbjEzb05QRV9seVVZMTNnUU5IM2gtdlRSSkNLeE1rdVg2dS1pemEzd3h5bldoMHhRYTlGalRLZFIwUXVpM3RqNWJ3UU5WSG5NR3VmTzYtSzFaRm9HaTZnLVRn?oc=5) |
