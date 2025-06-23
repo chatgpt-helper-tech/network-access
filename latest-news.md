@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月23日 20:43:07（北京时间）**
+🕒 更新时间：**2025年06月23日 21:01:51（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | FBI, DHS host call with governors over US threat environment after Iran strikes - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPbkFDN3NfSHF2SGV1OFNQSkl6Tk9zMWtEYXB3TXFGRHBfYmFmRjBiOUpMU3RETEtfRnRja3BDY2c0R0pnOWJON1Z4bnV0VV9JLVZOWnplNlloQ1l0eW1mSkhTaWpVektYcjJnWEZyTzIzMzRndVVYUnlpbUpjcnFzVUVReEs2LVo1VEIzYzhmMVFYeEhjVDFKV21XU3o3YXhVMmfSAacBQVVfeXFMTjlneTZBM1NGYTRYbnVOSWZieFJTVndCYmFHTFczSjlXeUdCcVpsMlotUmxNQmdCLV9fMjUzMEwxUWNoLUU2UGlmNFR3NDg4YkdWSVEtcFZ3VDBmaDB1QllJVTIydTBpRS1lQlctZUFZVFZZMHhrOUdPTktUQ2hwYzZVN2xKb3VLQ21Ya3hTNEFYUko2ZEtkQXNlT2JwcGJrbU1Oc0RfY3M?oc=5) |
 | Trump’s bombings present major constitutional and legal questions. But it’s up to Congress to force the issue - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQclBhQTd2bm4tNjV5OFdyWUFLMmVxRDV1aFltekVGMFJiZXRmR2ZTTUE4a3hHeEJSUlVGZ2h6S0xhTHBSeGVLbkpQUDBYNlJ0cW5XZ0dfLTFYTXJoYUxVNVVUMzJNNXBkbURMOU9iZy1RUkdmLWplWHg2WTNIQWlmbFdkUThTaTY0RzZ2UGZsMUtfSEpTUVHSAZsBQVVfeXFMTVM4elozV2FRYkVGQjk0dGJPOVV6REotSWtlcVlPNUFkdnN6aWxpYk5CUHVycjY3Z0dSblBFVE5ZenZ6eDZULUJGaTBuYlFrWEF5QWpBQ0RyQW5jN1kzbFBsUEZncnpXTEhyZGVzdlhkX1hpOUpaRy1QRUIxZUdIclF0MmdpZlZWYmNkSFpmU3ItcGNHSG5vTUdKTmc?oc=5) |
 | Judge says government ‘failed’ to prove wrongly deported man poses a danger - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQUnRNa3dvN0JISzlWeFd2UkR6dHJOalJLb1ZJd0VFWjZ5QVdFZHlxSmhSUmhCZnBqMmlZTm1PaHpmS0pyUmRCWTViQkpTdWRYNGYteGVqbVBqbDhKLWNYLUxDOHFHVmxDQXdpRzlBRkhFaW5RenRESVdDNC0tcEU2aXpPSnVJaFhGLVpWRjBNVkRyYVdqaF9fVGJIbw?oc=5) |
+| Trump decision for US to strike Iran splits Maga supporters – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOc0FGdmVGNGtGUS1BVmFLekEzTjQ0Wm5sZ1ZXeGpZSklQbURkX1RBVUVfTzJtN2g4ZWRoakNxN0oyT3RDckx5YzFoUEVUekZoNm5GeEdJVzdJOS1IeUFhVF82M1JQQ1JlUFBDbl9TeVVkdUNheHUxNUxZQ1JQc0k3MXVmREs5eEoxZ0JJLUdiZzdka1lEeW40TlFnaEkzN04zVVhmTVlaRHRha2o2Tmp5Zg?oc=5) |
 | The number of abortions kept rising in 2024 because of telehealth prescriptions, report finds - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNakhhS1VYdE9lbnFZOG1xQm1hWGVENVJIZmxSejZkcXl6OTNQSnBWRmxEdlNvT0JGRGlLb3JCcDJva2Jlb3RYNVlxTS1vU0NIMFNBMEFwdXlPbjVoWFJORHBMNC1kd2o0WEVwaWQ5MTFVU1luZXlwRTU2dW9uX3dfNlUwZjEyZUhkVDFRbElaMEJCS2FwM0FsZEFSaHM4dlJVNkgwWTVDYkVJZmo0NG93?oc=5) |
-| Gov. Greg Abbott vetoes THC ban, calls for regulation instead - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNMmxkckl3ZE9YekxLZTdrNzRqNU1UellLWlBBb200aDRxMUY5a2lnaUxpV1BwLXdnV2ZvMEhvZnhOZ0M5NVZJaWxETFB0c1J4SHZIWnlVYkJoMmxUV3hKRDZTTVROWFN2Q1QxVDUyRGpESE1qM0tsOVMxLXBtS3pKQ2pPZjA2aFlCeXQ2N2NieWxYdl9G?oc=5) |
-| Trump’s military attack on Iran reveals split among Maga diehards - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPcUV2Zm8ySUxVWVFSUm5lTXB0ZTlKcmhOQ29Uc21rbXRhMENWMTVCQ2xPb0xYWVRkazFoaTBSQW93Q2F1U3FPYXlfb3hDeFgwYlB2eDBtQmF6NUthd3Z6X3E4MXNkWFhZU3lvWWZTLWY5YkNyc085RnQ2VlhLTTUzVkY5a0xYdw?oc=5) |
+| ‘It Felt Like Kidnapping,’ Khalil Says in First Interview Since Release - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQXzF2LUFJTFhkdmVERm1MYW5Dc3J0enR3UlpIS3E5TTN3STB1ekk0NGlsWmhYWmoyMjFSbU95d1A0QlpsWDVWVVlXYUF2VVg1UUdLdEtaUEk1ZkZRUGxNWkxGYXcyMDdidS1ManlLSTI4Wm9uY04yUkNrOWZmcGZ2a1JvVTlxUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
