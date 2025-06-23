@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月24日 00:22:05（北京时间）**
+🕒 更新时间：**2025年06月24日 00:42:26（北京时间）**
 
 ---
 
@@ -8,10 +8,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| RAF flight evacuates British nationals from Israel | [阅读全文](https://www.bbc.com/news/articles/cy5wkld3r0xo) |
+| Talk of regime change resonates with Iranians fleeing across border | [阅读全文](https://www.bbc.com/news/articles/cy9xl4nrq8wo) |
+| Israel says it struck Tehran's Evin prison and Fordo access routes | [阅读全文](https://www.bbc.com/news/articles/cp8621gnknjo) |
 | What is the Strait of Hormuz and why does it matter? | [阅读全文](https://www.bbc.com/news/articles/c78n6p09pzno) |
-| What we know about US strikes on three Iranian nuclear sites | [阅读全文](https://www.bbc.com/news/articles/cvg9r4q99g4o) |
-| Watch: How successful have the US strikes on Iran been? | [阅读全文](https://www.bbc.com/news/videos/cq53l9dvggjo) |
+| RAF flight evacuates British nationals from Israel | [阅读全文](https://www.bbc.com/news/articles/cy5wkld3r0xo) |
 | Palestine Action to be banned under anti-terror law, home secretary confirms | [阅读全文](https://www.bbc.com/news/articles/c4g83l33wdeo) |
 | National inquiry announced after NHS maternity failings | [阅读全文](https://www.bbc.com/news/articles/c994x95yygyo) |
 | 'Our sister died of cancer because of our mum's conspiracy theories' | [阅读全文](https://www.bbc.com/news/articles/crenzwyvpn1o) |
@@ -24,14 +24,14 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What satellite images reveal about damage to Iran’s nuclear sites - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPcDRqVE5iWFc4REVKenVqSG1aa0NyZm1PTDhYQ2tRLWl2a3lGRzFCdDJ1Yk1lZnlON1duNkw5aHBKNm9RTnFIU0I4Q1V6VmVQc09vN3lJTm1Sd2RhbTByTnJoNXNWOE1SMjBRN1I5UWpnNFFISWR3RnpaU1Vhd3U2ejBJY2FsVXdQcjdXRHZJYmhDczVVWEpQWUpLNlBfVkE?oc=5) |
-| Can Iran really shut down the Strait of Hormuz? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNVmlyVmt4ZGlTN1o1NHk0RVJIVWQ4SkhnMkFwWFR1ckRpN2paQ3B5cmd0cGg3TDh4cU9zT045YlZXbkptNFZlSkFmUnBHM21aaUdFaExHMFJMTDA5MlBpX0lFdlVKTjVlV2xYR1ZzZW92U2psSFRKeFJkOEN2RUhUamVWS2wycnhrUExueF9fc07SAZYBQVVfeXFMTjNpR2xaVmNZblJJUEtPbnE3dGRVRTg1ZWZHLXFKN01BcC0xeDlLUTAzelozcUUwYWFfMzdncTNZYjJpYVF6QXB1RWpzSDgyRlRlRHNJS1h1a1FDQkxNU2hlU21sMlV2OE1GNGh1T2FMcFdDZ0lFTVdiVGZkVV95VjNNenM2bmJBNVZTV2V5d0RkbWo2QWx3?oc=5) |
-| Putin says US strikes on Iran are pushing world to 'very dangerous line' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOa1R4ZlJkQk0zejc5ekFmdHJBM1c3VnhMT2o0X3hBLTRJdTRhdEthNEZYN2x4N09FMXdDQWZmS2I4UlpfX3AtYVFvOVdIRzdSSFJPS20yZmZPRkk1cnczdEdIQTVBSFFVNFhNZmVWNEJuQU01YWJyYmpMRHJZZld5d1BWcTlSQ0xVYUdNV096UWtBSDBjbUpGWDNQOXRJejdReHNIZHZIYw?oc=5) |
+| US asks China to stop Iran from closing Strait of Hormuz - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5ib0xUaDJFNi1NUElqUm0zX255ajB0MjYtVW9nM2U5Um1FWUpGbmVJZ0xoWFdlQjNtQ2Z3b0d2LVEyLXhVQ01aM2d3RVVIZ3pGd25qNm5wVndVQdIBX0FVX3lxTE1KQVg0T1ZPS1RqbXA5X1g1b3NLajVtNWM3ZGtsVmFaWGcyYUdZZEV6elBWRjNPeFFfYlgzYUhOZDVEV3VicEpUY25PaEVmMUZwMzNzU2FNcEFOWFhMNnVj?oc=5) |
+| Israel strikes Tehran and Fordo site, as Russia backs Iran in deepening conflict - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE4yZG1RTWJRZEVQWjF5MnhrcmR2eS1sYnJXYzEzbWtIRUdjcHVUcVVLVGdKT01KcEk0QkhfbzRlLV85RV9xbEt6OE9YOE1hRnpWeG9KSWlYSVRrMGVVYmc1N3YwWFNLSlRpUDRaUXNBS3BWOFhvNlhBYWMybUE?oc=5) |
+| U.S. braces for heightened threats in wake of Iran strikes - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBES2RreWtON200V3dyck9sYnJTLXlsVFlyRks4ZDhLQnBmU2EwVmJtZGJsNUNYTTV5UFh6MDY1SGpuSW50bGJFUWJQX25fbUNWdU5zeDQxZ3U2bWtLOUZ4WmxlUVZTLWpFbnluSWM4djNsSjZJaHc?oc=5) |
+| Qatar shuts down airspace temporarily amid regional crisis - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOdkZudVpyVnZFN25GSlp5c1FjNTRJYUFqdXNVSm5JQ3ZuYm5yX0hkUVZockpOQV9CYUdqMWttZjU2LTBmN2ZNZmJfUkpIZm1mTjY1R0hTX3R6SDBCTlE2eF9ZVW1KVEZUVUFCd1c1ajN4NG5KNjgzaVdDREpZNjhSVkZLbkNlalk0T1ZtcTFxWFZQX0JVMDVBaVJfSFp6eExHXzVjWGx5UkNxQjhQcWZhQmhjdWxiS2RzSTJoUldn?oc=5) |
 | Ariana Grande Calls for Trump’s Impeachment Over Iran Bombing - Consequence of Sound | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPTHhKOE9SYmhJVi10Z3ZhWEV5U0ZudXNjSnVtRjhLUmMtNWhWdUpDOURIUWRkMzJla000Rmk4ODV6TnFTRGxrcUh0X0ZIU2ZSUkJWWXNGS09TZGJ0em0wN2lqYnJvdTdYMUNFd1ZvVkxTdm1FZTFxcFVBUnE0WEtmaFFOc3Z4anV3Rm1NUkFiRUlxenRPSWJEUw?oc=5) |
-| US Heat Wave: Latest Forecast for the East Coast - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5SM29hdzJVaWtTY1RHS19YbnZBOXd3RUQzNnJyTV8wRnpwTEFULXdWZG9GdXl4V1RxLUxmVm9UT2JkOWZUOHItYllXeFBPbWFYMlRMcldxUHZreWdxcXBUVWZldkVtejlzcElaTFFTMkhOR3pJcm4yd1Z3?oc=5) |
-| US and UK tell citizens in Qatar to shelter in place - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5OQVU2Z0pSSTJaVC1rUDBPcDJUWk9FMWhxejdaa1dlTGJHXy13eWk5ZTVPVFF4ZTZRZ3hyMXFpdHVOLXNGYVBlNEhGX2ZnNldDQWFLdG9jS19Yd9IBX0FVX3lxTE9SODRaWnplcnZSN1JRRWo1blBsSHAtNFFmNWxGU3VTOUllV0hYWGdJRkJGNklreVhFLW5EbFZaMHpUWEdXM1BxcmhxSExYWVlFb3ZRdmF1WWdoU0pNNGQw?oc=5) |
-| Capitol agenda: How Johnson may block an Iran rebuke - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNclFPcXhRUEk2SlE3OVl1UmV6ZmM5LXBxY0N5cEphd3AxZFlRelVwNEZCMmpYTGFueTFObzg0bF9uUmduMmttQmhHSG1NZDNEQ2hDYW1mZXAxZUNxWC0wUDlQdWZSZHBSS3JXSnpaRUt2X2Jqa3FqbWFuZVJCMkg3bTFPM1IzTEZSa0UyRXpTVU1HOVpjcjNXWnk2YWdSY2duSTdicXh1SnlNa0pQOUhuZkl1UC1GQjRiNkl0ZTZKWnJ5RFpQ?oc=5) |
-| Gov. Greg Abbott vetoes bill to ban all THC products, calls special session - WFAA | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxQYV9SYlAzOEZXOG1ON3JOb0FKMXV6MEQwWlFIdERES2JEeTVWeG9CaDc5TDlmRmVwUFUwRXhweG5aYkFoXzdCX1ZadXEtaDRCM0g0X3FjQzFBSmhrWlhDTk5BbUtrMy02NXhrZElCejVMVlNWSDNFLU9ZajJ2UkVxaFQwVkJSb2c2bzJGNGlvNDB4OWozWjZTdUhLcUVtQ3k1WmJtYWNtSnJaV2lTc3U1d1ZzdWdhdjMzWWFKMzZaVHdMYW5ucUtZWVNGNDd5d01jNlNSVnZ3?oc=5) |
+| A potent heat dome is building over the US, sending temperatures into the triple digits - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPeWVpUHhhd3A5bEtnTjhJWk56eEt3VW5iTjhNeFV6dU1xQjFtUGNrMUdQN0lXdnlxSno0YWl1TUlDVFJOYWFrdW1DQ1hqRzV0Z19kV0ZwSXpQNTVwSkx4N0VHdXh3YldvMTMwNEVHTjgzaFYtQU9rZnI0VTN3ZzJyStIBhgFBVV95cUxOakZNMV81NExDc0VXdUZoSHpmOFZMSFVNeHZNM005UE1Kd0lRVVhWTUllRFJ4d214Z1RLMk41V2Q0eVhIRnhzV1VENk0tbkZoSzVSLWs2Tl9vTDdackcwUmtHTTMtcHpGV3FTbHdLQTA2Vjk2UTdsTnpWUjNqLU15ejNwN1BRQQ?oc=5) |
 | The number of abortions kept rising in 2024 because of telehealth prescriptions, report finds - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNakhhS1VYdE9lbnFZOG1xQm1hWGVENVJIZmxSejZkcXl6OTNQSnBWRmxEdlNvT0JGRGlLb3JCcDJva2Jlb3RYNVlxTS1vU0NIMFNBMEFwdXlPbjVoWFJORHBMNC1kd2o0WEVwaWQ5MTFVU1luZXlwRTU2dW9uX3dfNlUwZjEyZUhkVDFRbElaMEJCS2FwM0FsZEFSaHM4dlJVNkgwWTVDYkVJZmo0NG93?oc=5) |
+| Capitol agenda: How Johnson may block an Iran rebuke - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNclFPcXhRUEk2SlE3OVl1UmV6ZmM5LXBxY0N5cEphd3AxZFlRelVwNEZCMmpYTGFueTFObzg0bF9uUmduMmttQmhHSG1NZDNEQ2hDYW1mZXAxZUNxWC0wUDlQdWZSZHBSS3JXSnpaRUt2X2Jqa3FqbWFuZVJCMkg3bTFPM1IzTEZSa0UyRXpTVU1HOVpjcjNXWnk2YWdSY2duSTdicXh1SnlNa0pQOUhuZkl1UC1GQjRiNkl0ZTZKWnJ5RFpQ?oc=5) |
 | Supreme Court takes up religious claim by Rastafarian whose dreadlocks were cut by prison officials - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNRm4wMDYxX1hnOXZhRTlpRnItU0I2TUdIODl3aF9YQ2ZjelI2MjR1NlFuS01DQUVGWGZ5eTdWNGNnbVRBcDIzaExBNUlMS1pyM29PMmd4aEpRdzJkMTRJSzg4dFNSdGNib1Mza3FsN3dnZ0NZWURFOGxIZVZsQnRvekRiVVNnMzFMVGdRcFB2TEE3US1qNjMzSmpGdXh0MlBKVS1xZE5EVDVlRWtIdHNOZFFENGMycC1RTVVnWEFMTDVIS0RZakxV0gFWQVVfeXFMUGZmVndIWXJfQmFFbGxOQVVLT1B4ZW53UXFVcFI5WmZSbllKTVNPbjJobXlMQ2pnbmZ1bHhlNmRqdHVwc09qb2VheU82Y1gzQjI3ZWVyQ1E?oc=5) |
 
 ---
