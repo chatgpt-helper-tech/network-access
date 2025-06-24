@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月25日 02:43:16（北京时间）**
+🕒 更新时间：**2025年06月25日 03:02:18（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| How a volatile 24 hours edged the Middle East to a ceasefire | [阅读全文](https://www.bbc.com/news/articles/c3vdpeq606do) |
+| How a volatile 24 hours edged Iran and Israel to a ceasefire | [阅读全文](https://www.bbc.com/news/articles/c3vdpeq606do) |
 | Keir Starmer vows to press on with welfare cuts as rebellion grows | [阅读全文](https://www.bbc.com/news/articles/c04dn3v616yo) |
 | Russian naval ship 'disguised' itself while passing through English Channel | [阅读全文](https://www.bbc.com/news/articles/c62gq6y62d1o) |
 | 'A slap in the face' - Asos bans shoppers for making too many returns | [阅读全文](https://www.bbc.com/news/articles/cnvmj4e81nzo) |
