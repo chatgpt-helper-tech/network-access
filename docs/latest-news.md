@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月26日 07:21:38（北京时间）**
+🕒 更新时间：**2025年06月26日 07:42:06（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | CIA says intelligence indicates Iran nuclear programme 'severely damaged' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE85UkhMb2ZYUlhqZkoxRGlCcVBNaU5VbmxuLXZ4Slk0RGpGSUZzOHRGcjlza05fVUwyYW9EdFIxME5LbHNhYUFpUEp5a2RaeHZxOFh6Rw?oc=5) |
 | Trump says Iran won't be building bombs 'for a very long time' - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBralFUWFFqWEhoS3BuSHNOc09EVEtnRG03bXNPd1ZTSHpPZERPZ1A3SUdHYVdFVXVPa3JFU2J2QjhreGItRnRFSTBVZVdVcHNiTjJOMXdrUzY2bFBmMXAxdngzSHNkVVZyeXFMekpGYmVOcEJ2SnfSAXtBVV95cUxQcDNWeWhwMjFZQnp4cDFwNW5SZXVBVUQydTZlWG5HNVpxUV9OSVM2X0FObUZoZGJsY0c0Q2hNY3RFWVRfTHk3V1lvaDRJOWtGXzBzelZYUHl1ZDRXNjBrX2FDdURWa0dtY29Lb3dLUktqTnJ2MEctOUk0NVk?oc=5) |
 | Trump changes tune on Zelenskyy and Putin - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFB6X3hGbktTWDFwSEFRQXBSMlc1WTJaU2hReEw3UDNpR01IVTh4R1NTT2RNcExUMUIzSXFORlhOemU1cDBPbVBjQ0tMODFNcW5nT0hHdmVEMWVyRm9aWFNTTmdTd2JIQ1Fmdl9oRTFUSDk?oc=5) |
-| RFK Jr.’s vaccine panel to review childhood immunization schedule - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQcUNSczRQbTZWNzVsazVURDg1aU96TVFGTWZ2NFZRLUhVYTZsYTNHMnFwVm9rUU9KWlpIUTNvMjdvSTBwLWhyTUoxVzI1WFRXeElBVURYeGdXWWpXNHRINGNzOGFoMlU3d1dtVWxfLW1fSjRDaThzeWxyTWc4b1FKenh6UUtXY3Z5bnlN?oc=5) |
-| What this Trump nominee says about his potential SCOTUS picks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQQnZ1NERyMlhoQUJvR2MtdzR0S2RfX0U4cklSTFJBcnhaRDc2Y253Z2xhc2tqUUVvSUpUOTNUQWNKSlJ2RHRBeHNnbGlWc2dvUGkwTG9HU2ZyaWNtM2dZSnZTZ3dYQ3YyV0t1RWJkZW9fY2VyYUZvTjlJeFdMRGh2S0JkRnZqQQ?oc=5) |
-| Thune faces brewing megabill mutiny - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQbmNDOVZkQTBhWjZDb29ONGM1bUZST3VOdDh0bnBXUldqR0IwYzJYOTVBdzhPY0pnZ2hyRDNSamRURzc1c3FVNHpORkIxeVpVMkJreEFvVnozc1hhc3VWYjZRTXROQWVnaS01b2s4Zy1mREhBRUEzVFNKVjB2ZWF6N1B1SWhNcjFrbi1CUHlickdaeXc?oc=5) |
 | Judge sees no reason to keep holding Abrego Garcia pending criminal trial - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxObnRNM2RzWllNTjFaWFVXOW1vdU85M1lwS240cGl3VWFIM1pyX0tnaWRRNlo2anJuQ1pJangxQW5saFR3dkJJUi1NeHJnUV9ReXc3MUhuSEk1cFJPUFZGc1hMbDRqMzZxZHh1eDVCeXJkR2VGeG1TZ2JnTWhUdWRwU3AyRQ?oc=5) |
+| What this Trump nominee says about his potential SCOTUS picks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQQnZ1NERyMlhoQUJvR2MtdzR0S2RfX0U4cklSTFJBcnhaRDc2Y253Z2xhc2tqUUVvSUpUOTNUQWNKSlJ2RHRBeHNnbGlWc2dvUGkwTG9HU2ZyaWNtM2dZSnZTZ3dYQ3YyV0t1RWJkZW9fY2VyYUZvTjlJeFdMRGh2S0JkRnZqQQ?oc=5) |
+| The devastating impact of Trump’s big beautiful bill, in one chart - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPdFo1c1dQUzZuRWhJWWxFUG1aSUFUUEI0WE1UYUhja2J0TDhGYlFKOHc2U3llQWRyQ0VNSHBTSy1aMFUzVXVfOHBNNXRZcEZJTGFFZDJraTJtNFNDdE13OXRYVjhkdFVHTlFiTElNOVMzNXhrejFORTVReXl3WmhrR1RlRGRMOFhCdjJESw?oc=5) |
 | When will the brutal heat wave end? Here’s what to know about the forecast. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYWIwSVRYSmFSWFJvZWUwN0NLaGQ4R0NhOGVDVURFQ3pXYWczV2JRb2hIcHJTd2M2U1BQZGp2aDZoNENTRlJNbTYtaFlzVWttQi1sb1lBZHBHOHhiZFJ0c0JqY3VzblRZelhaVlBhSERQUE9ndU5jZTl2Ny1HXzU3SjRvZG9EUC1vRmRj?oc=5) |
+| Trump Administration Says California’s Trans Sports Policies Discriminate Against Girls - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBsOEJYWUxFZUw1YXU1Mmk5SmtzelRub2JVY2dEVlBpQ01VSnc4MENqQ3Y3TFNwTjZJSUNDcS1FTWYxRkRSSTZ4b3BDQXNnLTdDeTgzbFZGWnN6XzVFRFVWMzY3R1pldE9VMnNLODF5QzgtbFNObWZUTGYyWjNmNzg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
