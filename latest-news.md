@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月26日 03:44:02（北京时间）**
+🕒 更新时间：**2025年06月26日 04:00:53（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump changes tune on Zelenskyy and Putin - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFB6X3hGbktTWDFwSEFRQXBSMlc1WTJaU2hReEw3UDNpR01IVTh4R1NTT2RNcExUMUIzSXFORlhOemU1cDBPbVBjQ0tMODFNcW5nT0hHdmVEMWVyRm9aWFNTTmdTd2JIQ1Fmdl9oRTFUSDk?oc=5) |
 | When will the brutal heat wave end? Here’s what to know about the forecast. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYWIwSVRYSmFSWFJvZWUwN0NLaGQ4R0NhOGVDVURFQ3pXYWczV2JRb2hIcHJTd2M2U1BQZGp2aDZoNENTRlJNbTYtaFlzVWttQi1sb1lBZHBHOHhiZFJ0c0JqY3VzblRZelhaVlBhSERQUE9ndU5jZTl2Ny1HXzU3SjRvZG9EUC1vRmRj?oc=5) |
 | DoorDash executive, his parents, among 8 dead when sudden storm capsized Tahoe boat - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNc1lkTENIeXJqTUFDVld5ZXBTbVdWRW91ei0xVWVZektzMDU0U2o2Um5PbDlBME41bGctdzg3Zllnd1lwaWdIamg5MnNsZGd4Um1GSGI1SDhiYW1jTk1lS1ZMODEwOXpDMGRsSmx0cWUwZFJGYkh5dFQ3N0R2WmVRR18xNDNveWlCazEyRlBWUlV6SzND?oc=5) |
-| Voice of America aired Trump’s message to Iranian people during US bombings - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOV3poem1RZFVoTC1waHV1SDNac3liNVpVZ3B4VWhydHhUNkFtdU55cXpRcS11QTFpaVhaOERwdm1nM01fQXRNOHplRzVuZXFET29kMzFWTzJ0S3FsQXg1WnZRclktZVhEZFdLbmF5bWw1bS1reVhLM2hmemxrVE0yeWFScTR6bGpBdHZjdDln?oc=5) |
-| Wisconsin Supreme Court sides with Republican Legislature in fight with governor - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNZzVobnZzSEJsVTQ5ekdnUXZWMVY3WTBhWkdVNXdiQVVXQkx5TzkwcVIzY3dnM1c1WmY1aVFEdTRicG9DOGluRGFPSV9UdTljRnpMUU1zejlVYVZ6dUlPVllNRW5IcnpIejF1ZmRyODVBWjY0eFJYYndzM1BybUxuZGFIOXM2OVB4OHFhR1NJU2VjSDQ?oc=5) |
+| Kilmar Abrego Garcia is expected to be released from jail only to be taken into immigration custody - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPNHBZd1YzZWNWWHpjbXgyREhjR3RzOVplaDRlT3dCRnpFSGZrZ0pZUDAtZ3pIQWQ3c0pPc0lVUFVUNlQtb0tUUk5iZndNRnJva3ZwVUtFZmY2cmlWSGhFMW1SQ1cwWUQ2bVhPcjVHV1FrWG14OFBsN25uLUFRcmRGZEhnalU4djU1U1N6WXZBOWFHd2R1U24wRmJYNmR6eG9vZlF4bw?oc=5) |
+| 75 years after the then-worst crash in US history, search ends for a plane in Lake Michigan - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNMUw1SERZNkNaWVZlWElqeEk0MUxiSVYwSnM0QUJWdmN6enk3elE2ejNXMml5OEREd2RNOEJJR0FleGpNajlmSTFqSzJjdzJIY3BCbi1HZ2xwNlpQVDhBb1hESEVsMFpoejFSQmxObmpfMWszX1B6cGhSdXdiN0NIbllxcFEtVWs3UUNUelRZVlNHbERM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
