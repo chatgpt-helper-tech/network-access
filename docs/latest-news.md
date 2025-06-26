@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月26日 10:01:38（北京时间）**
+🕒 更新时间：**2025年06月26日 10:21:42（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump's appeals judge nominee says he's no one's 'henchman' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE4xbmNYOVRRVEl3R0p1YjN1MkNmLTFjYVJUd0c5T04wNkZBSWRIcjZtWUd3OC1iT2tjcEZVc0tBejI1VWc4RE9wd1ZvWnA2VEc1amxBUmZZaVgtQ1QzZktCMFYxVVR5cTFTNWJyTGU3X09OcXFXNy10ODBOdUJlVDQ?oc=5) |
 | Kilmar Abrego Garcia to remain in jail while attorneys spar whether he’ll be swiftly deported - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPVGs4ZEp0YnZQNFZ3alNQczk3eXFjc3pzbDVUX09lWjNTZVhqR29xZzBham00dVR6aHM1ekh0ME9neXQyemQxb0s3THQ5YTUtcFZqYnA5bzZmRDZXOTlDenE3U01XZ1VWdkYwa2ZBZUE0LXItSm5KUGl2YVdISHVqbHlKemFMVVozdTljQTR1UWxSWGVpeXZpbWNn?oc=5) |
 | When will the brutal heat wave end? Here’s what to know about the forecast. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYWIwSVRYSmFSWFJvZWUwN0NLaGQ4R0NhOGVDVURFQ3pXYWczV2JRb2hIcHJTd2M2U1BQZGp2aDZoNENTRlJNbTYtaFlzVWttQi1sb1lBZHBHOHhiZFJ0c0JqY3VzblRZelhaVlBhSERQUE9ndU5jZTl2Ny1HXzU3SjRvZG9EUC1vRmRj?oc=5) |
-| Mississippi executes the longest-serving man on the state’s death row for 1976 killing - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNSzVybEUyQUU3NWNUaFhEZk53M01jT0lnQzFrbDE0TWNqM0RjM3RiWTNOU1NxMHZYbXBwTV84cG93NjZTbnZsemdGd29uWF9ZMlA3SWZ2cmlRbnhoTWdHS2tLZU1tM0R5RVdpdVVaQkg0VjY0RURmbEx5UGxvQjVvUG1Ka9IBiAFBVV95cUxOY3pmOHo3ZWxoLUd0aXlqWVFCbXVUR3R3SUowbkhZMU50X25oSUVXdXVBQ2JLTU56Mm5VdVNwTkdNakx1S2hNRkFJNGl1azgyNjVDNWhiMzlRZkFXc2l6UHV4Y1JOT0kyV2U0Y3hMRXQ0Y3NkTExXa0ZzbHZzVmFJNVFZeXdjZ19L?oc=5) |
-| The Slow, Painful Death of the American Political Dynasty - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE84NVVYTXc2el9QRU9xZWdHdm5UTzhLTzFrenNCME9LYjdrcFFjTC16cVVaUXN2MVEzQjJSS2VSano1d0NzUTBKZHNLMVg3UVFsZ2ZzSHNzZzVhTW5rZ2c2OGlvRW5MRXdiTURMSm5PQjZrc0pQZDBacmVnUFY?oc=5) |
+| Mississippi executes the longest-serving man on the state’s death row for 1976 killing - AP News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOUnlmWEtiWklWb1YtMUh5S2tWRFMzVmp0anlQU2J6ZU1lcXUyVGtRT2dQaWRWSWdIWGstclBHYmRKTnc0T0xxSU1DejNtdXdJbHZLMW5HSmFMQlJBLTE4cGtZRXJWNzBLRk16RFRZNTlwRGI2UFFMbUxiYUF6NE4ycGZHZ2N6SURKN1Vsb2ltdGNKSHdoWThvS2JGQTQwTHp2QndLUTFsU3RlSjFrdHRiSjViMzhSQ0I5cmVqX0EwNWtxUmRYSGhn?oc=5) |
+| RFK Jr.’s Handpicked Vaccine Advisers Are Set to Meet for the First Time - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE82YW5mRGpQMTlkbkx1MUo2SjR4ZmtXdXdQVENIMk1sdnBaT0JHSWRURmFnSnNMdGtHenRJRHM3SExleXM0ZVkyS0o2cFN2WTNmQ1VaY1hvOXJyYU03ZVV3VkZXSnBhMlJLaUloX3lKUWIxbUJlald5SGYyVTI?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
