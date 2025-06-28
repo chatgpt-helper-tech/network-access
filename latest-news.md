@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月28日 16:43:52（北京时间）**
+🕒 更新时间：**2025年06月28日 17:00:21（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | Schumer defends Zohran Mamdani from "disgusting" GOP attacks - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNcTdXLUZzSjlYNXV4QUxYZzU3N19UVTNIZ2FSY0ZrWm1abjY5R244eE5NMjZVWmkxZktXeTRTeVgyNm1lb0E5bk1YV2FIdDVRNHRQWm9HOENkMmt6ejRNUXhBSTNXLUNobUItdDVzUTluQVVXM0VMcmpwTmZLWktUM05VTl91Zmc?oc=5) |
 | US Senate votes down resolution to restrict Trump from escalating Iran war - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQWVZhdG5RSmcxRkRvLUhYRzYxUmRFWERSU3FLbzNQTF9QdTA2M1BRTndOQUlldTBIRFlVN0p2cjBzc0l2eDdiemxnRkZwZFh1UUpNM2ZiTndvdEdYY0F4ZTlHbzhkRXhqZTd4ZGVlTnNVZ25idVdMaU5FSG9hRXdoR194ZG53UQ?oc=5) |
 | The Supreme Court Just Handed RFK Jr. New and Extraordinarily Frightening Power - Slate Magazine | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMExYWm9MTEhjVnNFZ1pBMlR6S3EwSUFwVFcxd0ZNVm55czRFQzNYcHFQdXY2ZVg4UmdFS3UtZ0ctemgtV1dEZWhtSjZWVFJvd0xPOG9RRm1iYm13Ti0waEt3LU13OGZLXzdLMjkzNmlNajlTa0pCR0pFNk5waVNIX041TTJBa0U?oc=5) |
-| University of Virginia president resigns under US government pressure - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNSWtxZnpTVnJhN2dYNVFtcUxTcTFzZzVOS3hrcDNUR0EzYmZ3bThKbnRvbGlwdThQeC1wY1B2N1dXb2FEV2JaWV9fcmJDN1pUN0J1REpRaFJxX1RZWFhRWDlYakVYMlpzSW9OcnowcFZXZTVxZ1MyZnZnR3FUZDFSd2s0eFJkTHNaUTNGcWhtZTNzck1RbllXeWtJR3F6SnE5TFFkZ2ZGbV93TUM1QU1j0gG0AUFVX3lxTE1SUk04YlhFOVRTeUpnbnNtamtEeTNyVkpJUGdNa2c1UFlYU1ozWE5oM2pHVHlDc0F5cnJFWFVnRWJ2ZnNlaEE5UDVlZVdXbjFweC1NVm15U3JCeVVCVGNnUEtUX0hYM3ZiTThoVmlmTDRSZG9teHZoNjFBc3hiYjBSTC1ZcXRCVXk0VnZQdmtRQ2ZPNnpxTTl6TEdfS3A3OVpxNkYwUnE5eXJiQnF0cGs1RDcxTQ?oc=5) |
+| University of Virginia President Resigns Under Pressure From Trump Administration - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQX2VQNS15R1RRZ0RtQy1FTzRyRjZsVXFLS0NTeTROWnNsOHJ3S1loS2ZFWXgxX0lLem1LOU9ydGdOUGRjT3dUbTQtN0pjQUJnRExITmZTUW84NWt6aThuWWdEd0JJYzFycTBvVDNzc1E4aGFQelNXVXBYYzJpU1ZmcXp4b1Nlc0tsMUJnbXJOX1VVZw?oc=5) |
 | Governor Newsom signs balanced state budget that cuts taxes for vets, fully funds free school meals, builds more housing, & creates jobs - Governor of California (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiU0FVX3lxTFBJZmV4bzNwOWdBMjhZcEhkTS1VVHZiTERQOVRvdE5RaWJOemxSYXhLbXJ5dkYzcUd4dk5JM3lISGFJOThhVjhwakFBWFpiaVZFbk9J?oc=5) |
 | Joe Biden visits Minnesota Capitol to honor Melissa and Mark Hortman - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPUnNSamhaelJQSHkya2Q3aVhTVnpRWDlmQWUwNVBNcy1NVEtsVUJLZlpzaFFtcWxLUl9aY2ZXWmY2X001UV96WTBpN3lmMG15QVRZNllIaHNhb19tQlJsVDFkWndqbllYUkJyS0szWnlZZ3g4VVE3dVV4UXBKZVFubWxDd2ItU3duMWNQV0p5OS1yeC1IWHU3ekdLdjZ1UHpoZy1wWl9ScG9qQQ?oc=5) |
 | Hegseth announces new name of US navy ship that honored gay rights icon Harvey Milk - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNN2N5aFFSQThyOHBTWWh6V2RFVDllUXZkQzhYcTB1d09KVjJZbEFXNmxoc3FVazYwV3h0dTBlUXBITnZ0RWpzNzZJQVF2cG5GNWIyMU53YUFTSjdxWUl4RGdmTnpPVjBKWElkbHVjMGRBbEFWMjFvT0pyNUNGQVBSZVlyY1pUbEpGS3NtZEtXOTdVcXNfU3RN?oc=5) |
