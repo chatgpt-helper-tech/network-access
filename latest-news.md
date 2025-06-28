@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月28日 11:00:43（北京时间）**
+🕒 更新时间：**2025年06月28日 11:21:59（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | A fourth judge has blocked a Trump executive order targeting elite law firms - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPNkZDNlpBSHRmZFUtdVA4SkJmLWJGY2xEbHpuTDhPTjlDUlhUVzcwUU5sRkx2NjBSNjQwVzJuMFMxY3owaUJJWlh4WENoVU1FaHJYamhVdWdvZVZjdDhmWi02Y0hOandldTRXdDlRU3pmakVjeENRRDNUNkZwWU82OHRBZng?oc=5) |
 | Obamacare decision makes way for debate on what’s preventive - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgJBVV95cUxNT3hnUzJXMmhnVlIybUhZblJST3R1ZzNzbGlPNGFuaUhMQ0NNZ1hRbVdEWjgxVE1XOXV5SnFMRzZFN2dNZXZENkthWEFMQS13OHNTYzJyVnBDY3ZDejdSc3o2NUstSDEyQTVMcjVIbWVYWDQ0QzZnRmNGSzdKeFVXcjFFMVFENF84U2g3UGJPdUpNNnFURXVKbUIxNXpLR2dqdUdudWFsQmNFZzg3b1QwVEtDUkR5c0xQbWJMdmFRc19rMEZlR2NST1RhLWN3RC16ZllNTkphVW1sNXJnektVamNtcWlyYVA3WWhuUW91OXBBbEJZdXc0b3J2MHpLT3k4dno5UjJR?oc=5) |
 | University of Virginia President Resigns Under Pressure From Trump Administration - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQX2VQNS15R1RRZ0RtQy1FTzRyRjZsVXFLS0NTeTROWnNsOHJ3S1loS2ZFWXgxX0lLem1LOU9ydGdOUGRjT3dUbTQtN0pjQUJnRExITmZTUW84NWt6aThuWWdEd0JJYzFycTBvVDNzc1E4aGFQelNXVXBYYzJpU1ZmcXp4b1Nlc0tsMUJnbXJOX1VVZw?oc=5) |
-| Biden pays respects as former Minnesota House Speaker Hortman, killed in shooting, lies in state - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQSnFLWFVKZVdUNlhIdlJDbEU4SEV3S0xHVUk0Zk1mX1ZRQVdma3JzVkFSTDFic1l5bXhkUnRLeEhGTDB2a0JtYjM4ZWc1X01EeHVpOXFlRU5IOHp3c084b19ON1ZfZHlpMWxfSDM3NHFlSWZpaG1yeVdnRUJuUzlKV0dSZkNHM0U5TkhwWktXTkQ?oc=5) |
-| Trump calls New York Democratic mayoral candidate Zohran Mamdani 'a communist' - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQaU5oS1hEM3dwakVnSzdCQ0xUcTRUX28tWTQ0LUk2VURKeE9GSk92cXN5Z092QmVodkVmdWlfUHRsTW1EdlpaSnJQTWpfQlRJc09VRVVUbFIyUWhxaUc5Nmt5Si1sMUJ1Ql9MR3JFVF9NLWJCRFJqQnYyTmVYWlhFT2x30gGHAUFVX3lxTFBxTVVibUp1b0g5dXBYZVBWdnRsSkNXSmtnRms0WGltV2ZvN0ZaOC1Dd3lTazJoVURZRFdMQzNDTDZBSV9VbmxGakpUYXFaaWZIdndNdEszZkplbmhpc3hmTGpmd2VJTmQzOVFsUjVfVUE0SE9XOFFza1ItNFlBand1ajdxRWNnTQ?oc=5) |
+| A slain Minnesota lawmaker's beloved dog, Gilbert, stays with her as she and her spouse lie in state - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQU3JlZXZCRmhpOF8zdjgxNXpqMW1sQzNENUFndEJuY250RUViRDdkS2tRMVlXOXZuOGNFdjFJUkxrRGpURWdlazZIWmNCMm9KSmVjSXZreU00R3ZXNndRWWhQTWxvLTV6bDJISkVjV0NieUdJR2VaTUJaNXRkcThTVi1Uc2wxTGRCMnB2MkJsQ3pvcDVzWDVldWZ3bzM?oc=5) |
+| Two major NYC unions back Mamdani’s general election bid for mayor - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQRFRwbWpLUWNRRDV0eXRhTTAyOXk0dFF5LVRfTWhxSHhJbFJJVExGQjM0TExCTkl6V3FNTTIyUFZhUk9RSWJSX2VhRC1UQk9vTHRqUmVtV2hDelFnS0ZfMGwtVHlvUDN3VXFKUHRER25oRUdGZDZlOHVYWVppUy1OVko1NGs2b2pnVVRDcEUwRHRueFg3d1J3VkhaQk05TDBLMmZWOHc4TXVILW1LYUFycTFzcTZUZw?oc=5) |
 | University of Toronto agrees to host Harvard students facing Trump visa restrictions - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPTjJOUUpoWlJNRlF0bmhyNmd6V1ZSYWJqSnhOcFhuNzh2NnVkNi1vX3Q0N2RPaWg5Y2U3TTdNbVlZZFp5WnA1a3U1djAzb3RncXN0ckwteWhqX0hyMnhiRE1PanI0VGtGTmIzM1lnNUpDdE9LcDN2TUx3ZjV2dmpDOXAtek9KeF9wa1dmSXkwdlg?oc=5) |
 
 ---
