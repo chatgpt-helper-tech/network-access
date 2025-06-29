@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月29日 21:21:02（北京时间）**
+🕒 更新时间：**2025年06月29日 21:43:21（北京时间）**
 
 ---
 
@@ -17,14 +17,14 @@
 | The mystery of the paedophile who hired out Disneyland | [阅读全文](https://www.bbc.com/news/articles/c93kg14zn3zo) |
 | Thousands defy Hungary PM's Budapest Pride ban to march anyway | [阅读全文](https://www.bbc.com/news/articles/clylnev5y36o) |
 | I feel like I've been gaslit - like the life I had before the war was made up | [阅读全文](https://www.bbc.com/news/articles/cn81rdvdm9jo) |
-| 'The Leadmill is ingrained in the lives of our generation' | [阅读全文](https://www.bbc.com/news/articles/c14enm80nv1o) |
+| 'Proud to be gay': K-pop star on coming out to the world | [阅读全文](https://www.bbc.com/news/articles/cn5kx7wn1nzo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What’s in Trump and Senate Republicans’ tax and immigration bill? - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQNl9PYVd0V2pnNElrS3VjNGxVUDFNMmJjSmFZbF9BSmplN1VObTRHMU0zSkxaZDRwczJoYnJjaWk1QnJ0UDktYlptWkdIa0Y5NnA2cHh2OVY4MEE4ZlhDdkhTckhUcUZhR2VJWTBVbmlESHZDWnY0U0RmbHB6cXhpUjkxT0xBZWx6My1NNEp0ckptYTlreGFONnZkMzQ?oc=5) |
-| Russia hits Ukraine with biggest attack of the war; F-16 pilot is killed - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNRGF1aDdxNkxJU0VQc1RrSlBIbmtELUd4SmM0VDZ4RFR4WmpLRDVWWGw1Q2FPQzg5ZnY1YnBfNHBUam02TlBua0laZ3ppekhMM0cwXzkxRnhFUmh5X0cxZ3Z1TnpYQk5RWHBXb2xpQS1mXzR6dUNscmlkSjVyMXR3LVRDVnoycTRE?oc=5) |
+| Ukraine F-16 pilot killed in large-scale Russian attack, Zelenskiy calls for US help - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxQcHM4d2g3dXdyTjc0Q3FEWHphMTBvR25kX0RJS2NXWjhzWE54bHlLTDBkejlvZjdWb2l6ZzhHQUZrbHVzaUFhVVduZ2xjS25XNWhmOWJsak80ZFU0QzNndlRmc3BhYTdXUHEtcGVucUx6SlhiQ1ZwOFRmY2R5UklOUEIyR2Uxd1Fjc3Z4clF0X3hVb0pjTlFBdU5TcXJDWnpyYzcwNjRWclZhd2hFZ05iYlFEYmlRQWplYlBVWmhLVVE1NkVCZmxQTnRXTmg5bGhhS3hrSkpKdHY?oc=5) |
 | Elon Musk Rages as Trump Tax Bill Slashes Electric Vehicle Credits - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOb3FUeS1hR1hONHBCLVZUUVFxQU5vWFVmRWotTk5LS3lBeF9GZ3FFa3p2MVo2blJuQm82Ym1Iel96TjdGRzI0bU9FVmFtX2QxX1g3OGhubF9rb2UtYzNldnRDZXZDbkNGZGFUX0llVW03MTNTRmhBcUJuN011WGd5VVBIR1FON3ZsdXZlNWlhVEI4VU9ERmtGT1Y3RVBEcjhZUkFqbUROZGhkTzl1UUtSX3pR?oc=5) |
 | UN nuclear watchdog chief says Iran could again begin enriching uranium in ‘matter of months’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE11aU9HZnNkeXFXX0Yyczc3MUpPeF93aUwwNElrblN3dm5zV2dlVXhxV2ZrNlBpSmZ5Nm5nalRVTUxNNDFjQWN5SDc1WjZlV0xJTmpTcWY2Ukx5VndIcWpoVFBKYTA5VXNUR1F2YXlLdFBVRXk1ZEZ30gF8QVVfeXFMUGp6T3RLLVo2XzB1VEVDYVh5WUFuNTdBOHRBbUFuTTFfWlRWWEJaRGdlMm1XNzNxT1dISnl2anZiVUEtU1hBdVU3MkNqemRLT21YSXZacEdjREJCTjExa2FpbDk0eWxXdGhrZXNvbTJ0d3gtcDJHSzJZTWU4Zg?oc=5) |
 | Big Trump wins, boomerang appeals define Supreme Court term - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBQNkQ4cHQzNk1VaGJWZWFVNVpMaExuN0FoLVhDT2twYklRb29UcjRFb1hVUm9TZU9aa2JZWmNpZTJfQU9RWExPczYwZFM3NkZqc3hyM1FDeXNlSXU0bUdVWTQyMDAyMS1lUEQ1TVVkSlAtby1sMlZpbdIBfkFVX3lxTE1nbmtnUm5uZnNxOENEWDdaeVVVU080eFB0T3FqTnZ3MDQ4YUd5OGtHMVFhOFl0aTNDdndqeVE3R2FMQ2xDYkRHQzNVR0pDUkRNYmpnNEdtRHNOOVJBX05VckJ0LWozQ0Jia1hqTkRsaFJybmxkZnRXbWV3eHEtQQ?oc=5) |
