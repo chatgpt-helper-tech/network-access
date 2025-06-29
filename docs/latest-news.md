@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月29日 16:43:42（北京时间）**
+🕒 更新时间：**2025年06月29日 17:00:08（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Senate Republicans vote to take up Trump’s tax bill, overcoming resistance in their ranks - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFB6WGUzNm1hMXI4U1pfVVo2WDdvV1NRNm5FMW00OWVhWEdjSmZBbFhUWGtTYk1pbEtrRUNqYjZiNEJqcExvbXpUcDNNaHVQMUhsOGFuZXhLLTQtdnRhZ1daaktCY1lUU2d6bWJqRTZkUklFTG5OczBYZ3FBSDIwUQ?oc=5) |
-| Trump wins as Supreme Court curbs judges, but may yet lose on birthright citizenship - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPenAwVlFWY0FMbVZzeU9zMlZOaFlrbTljOTh2aE9QQThBUHQzMjZUa3RjbTd2NUVlV2FFbWVlSkJVemt6ZjJMSUJLQVpLeW1DRVNDSEtnUHdSNVNWRFM0R2wxY29SNXppb0JtelV4ZUJfUG5CTUFWOHNzVmtnNEpMMC1ocUp0WG43MzVMRHgteDZzR3pfZTgtNHpSNFIxNDM3emxxd3M3cF9XTjZENnVTVW1VVFMxSVFpX3c?oc=5) |
 | Joe Biden, Kamala Harris among attendees as slain Minnesota House Speaker Melissa Hortman laid to rest - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNbEtIOUZDYm1nRGNBVldaOTBlckFtVlVpQkJfMzJoOEtzb09PWHZSVjRQbXl3ZUlsOHItd1pVTTQ2cjVwTW93SEUwcy1UME1WZXZGOXkwTkdUMmhoc1gxemFab0hSMVl4aWRMbEhNN2xUWFZqdTNFZy05SUJfWkNrcUdhQk9YR0dqR3RrWm1lcjVFMVlHbXduWDNmUFU3UdIBVkFVX3lxTE0yQVB6Ml83a0paa2Fzajdza1dTZXVVeXhNbUlUc1hQUUQ3cFkyRExkTnF6QXdoTnRkY0tBUnNvYmpKMG80Y19fUFcxbXBxb2tpU0hVTHBn?oc=5) |
+| Trump victorious again as US Supreme Court wraps up its term - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPWURPeWN0YXYxXzBibm90X21ULThiSlVjazV4VDhfQmRMYTM4UXNVNEtha0hFRGloXzFyVVYzTjJ6ZXcwd2lTa3M2bHFSMU1zSlpTVVBFVkVMVWhFblpfbGpGcThNenZYdVNMU3ZGQmtwdFl3QVRGdnNnaW41QTlxVUdVT2FHczZXTWNwZlB4bzFVQ3Y4NDFPRHpDQU1yQXVaeTlLRw?oc=5) |
 | Thousands party at Budapest Pride in clear message to Orban - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9ieHh2ZDFGZ0ZuTXBKSzBaQlVSbVVUQVIwN3QweGFiZFg2ZmMyOHNOZ2htZ3V5djFWSEhjcEQ1c016STN0YXRxUlhMZkhsdnRLanBSNVNyV0o4d9IBX0FVX3lxTFB4LUx0OGM0djdocUFHWWRjRWM3bTQ3VVVfbzdQVWhNZFBkMEY2UTBBN2VoVW04VTBHMXNEOHQ1eFhaSmRkR2lhZ0dMTmVzMVhrTHMwYkFzRHlURm1aQk04?oc=5) |
 | At least 81 people killed in Israeli strikes in Gaza, Hamas-run health ministry says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFB3RmhVV05hQ2lvbF85R01RanM3d0NpM09tZ2JCTV9PY0ExUUJwQVVIeHRiQXM2WlFla0tOajdpUENhTEEtSEd0UXAtTXNpNlVXWGJVVTFCWXZYZ9IBX0FVX3lxTE9NREExRWthV0pnMHFuQ0Q1Ni13R0k1V3lFZEZaVzhrWXQ1S2pTd3pHWXNfYkJQSlVuVERXMWFFb3F6ekppcVlsZ2Z5OTNWWU5saWMwa0IwS05mMmQ1Y25Z?oc=5) |
 | Iran will likely be able to produce enriched uranium ‘in a matter of months’, IAEA chief says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQcVcwWFMteEJqZXFBc3hEVkJBR0VqX3UzN1lwSFVYU3RVQlFVT2NUOFNoU1FpTjBNak5qa2F0Zm00RWpvNzVjcC01TG1IbTBqTGtlcTZsS0lXVUJkbVJkM1Ria244WWlfa2dTZHFUbTg5b09jLThHUk9UQzNCbVdFUkRRZGFqaXFjT05uTXV6RUVLUWlNN29LUVozeE1lU1I0NzNQOWlSVUd0RUxTTi1YWURWaE85VEVfQVBUY1JfMXc5TFZsRGZ5dDNHaWhuemVJYlE?oc=5) |
