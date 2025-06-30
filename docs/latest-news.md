@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月30日 07:42:43（北京时间）**
+🕒 更新时间：**2025年06月30日 08:00:46（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Firefighters ambushed by gunman while responding to brush fire in Idaho: Sheriff - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOMmxNaEU4Y01WMC1VR3dzVDlaVmdJQy1TUTFJM2FzeVlZbjdIQXN4U0tZYUxhTGJzdXJDXzNVSWlyT193SkRCeVJSVlpVV2lhQTlobEF3encxenlzOFFJblZSc1RRaGlNSmYwX0g2SjVPUkRiTEhLMVNnc1haWXRBMXNkeExsM2RIVXlMNXdLQzBLRWNoSGZGdnhvNnZrRndwZ01JeDdFdjllX2oy0gGyAUFVX3lxTE5iYVBQOFRRaGh1Ynd0UDNteF8tYzZ0bHB5Y213RFhNLVlFeUNVb05PVFRiazNyY3ppV2hzSl9iYnBXRjdRX2FQVmN0RVZfdEVVWWV5UV9EOEVQLXFYVTdRb1h3ZW5NWG1nRURsWlVIQzhLb0ZuSzFCQThaNFIyMFgwTzZKeERkcjVPa296bzVoQzQ3cExMWVdha25rMzc3VzFGMXU4LVRwZlR5ZmlKNWd5T2c?oc=5) |
 | Republicans struggle to pass Trump’s ‘big, beautiful bill’ as debate drags on - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1oRjhOZVE4alNHbU1XYnY5VVhZc3lFdmlZRWZralVmMDJSMVdlaGZsLTVQSzB2bi1GYVBKLWc1blI5ZGhiSmV5T2pLMXBDWjYya1VGeXFTTVB3U2tPblB2RXJRQm5kaEEwRTRZWlhTWWs?oc=5) |
-| Sen. Thom Tillis won't run for reelection in 2026 - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5CVGMwWVF2U2dpeVRMSjJYc0V4a1hmd0hxZnBJWVVRU0hpYUFPZ3VJSVliSjNEc2g3eDFGTXlwcTRjcDhWbmkxWTY3Z25tM0h5ZHdVblc3T2VOVjI3XzRYV2hHQlBKeWtHaS1HVDFLbE10LVdaZ2VJN3pzSnFtUQ?oc=5) |
+| Sen. Thom Tillis announces he’s not seeking reelection, a day after voting against Trump’s agenda bill - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1hdHpzZ1NRblE0cmNLVTlWdEdoQ1pFNF9LMGdQSFF5RndFZV84Z1dhUFYtWDJCVGhJNjNDM0cyYnhUXzJSWWUxUDV4eHB3WTVWdE84Q3VfSi1hbzVGODVuUVp2MTRZMWhUclduczBZUjI0SzRHWVdWeTZrOXN6YTjSAYQBQVVfeXFMTUQzck5LRFpveUNkdXNvMjRnWUxXckRSbHBsWGJqVno3RnNJZE1FN3ZZalBmREd2YVh5NWRrVkFDN01XUFUzckUyNGtQOWtSSVRtclpYekJ2NnZqeGNneWJEWXZZRnE1dWJBZ1ZCV2JTUVF5clNHTXBoekkyQWdxbGJQZlJZ?oc=5) |
 | Elon Musk Rages as Trump Tax Bill Slashes Electric Vehicle Credits - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOb3FUeS1hR1hONHBCLVZUUVFxQU5vWFVmRWotTk5LS3lBeF9GZ3FFa3p2MVo2blJuQm82Ym1Iel96TjdGRzI0bU9FVmFtX2QxX1g3OGhubF9rb2UtYzNldnRDZXZDbkNGZGFUX0llVW03MTNTRmhBcUJuN011WGd5VVBIR1FON3ZsdXZlNWlhVEI4VU9ERmtGT1Y3RVBEcjhZUkFqbUROZGhkTzl1UUtSX3pR?oc=5) |
 | Tropical Depression 2 strengthens into Tropical Storm Barry in southern Gulf - KHOU | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQU0Noa1Q1UE9oQ21XRzdsSFItLWFfMnEyZUVSenJrR0FRb2wxdW4xYWw3QXJwbHE1V1ozOXJOaWUzWVRFWHZWT0dCV1NjVUotUDZ0eXoxTVVKMXFFd0lNZnQ4anhHT1h4MlFvVHk4Wm5sZ1dhUU1wUjN6S0gwMXFJYmpFM25qc25vOEF2T3R6WVRBMFZFZXpFaFBhSy1vaWRaTUlRQ2w4ejJVc2Q4MXVDYUF0QQ?oc=5) |
 | Trump considers forcing journalists to reveal sources who leaked Iran report - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOeUdKazgxMVZjRXFlSERHTzVNdGtwU2ZoaEd1WGJCNFlMZWZxdUFJR1E3RG1URFlZYXdCOTB4cTZad3hVbEVtTFdWQnE2SzM3cUdnVlU1UEdEOVlaSDZOYVVaYV9jNGUzUXNFdUY0eXVMOWhGMEthZjNnYnlsM0txZTlfWHI1bFZv?oc=5) |
