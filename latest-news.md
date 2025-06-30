@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 05:42:32（北京时间）**
+🕒 更新时间：**2025年07月01日 06:01:37（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Emma Raducanu beats British teenager Mimi Xu on first day of Wimbledon | [阅读全文](https://www.bbc.com/sport/tennis/articles/cq8zzyw99jdo) |
 | 92-year-old man found guilty of 1967 rape and murder | [阅读全文](https://www.bbc.com/news/articles/cgk3jyl5prvo) |
 | 'We're not safe here anymore' - Syria's Christians fear for future after devastating church attack | [阅读全文](https://www.bbc.com/news/articles/c79q8p8qx1do) |
-| The Vivienne died two days before body found, inquest hears | [阅读全文](https://www.bbc.com/news/articles/c628699znyno) |
+| Royal train to be cut in Palace cost-saving measure | [阅读全文](https://www.bbc.com/news/articles/ce377nr5r43o) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Israeli strike on Gaza seafront cafe kills at least 20 Palestinians, witnesses and rescuers say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA3bHFrYXpycXF5Y0MyUGZOWDlNa1k5eHl5cDEydW9KN0dZZ1dkYktSVHFWTjZLdTBnMTVaclZ4c3ZQVnNnTkMwRDZZOXBDRjMtdEEtaTlhdjl4UdIBX0FVX3lxTE1UT01nZWtkSXBOd3Nia0RqMTZVb05EUWZjWTBjWHZpaWd6bktueWk3ZkZwS1BlUGJaM09HU2lCRG1YWnBxYXVUbm5jUWVwNHFUZFFKRzAyYjM4dHNQYkhj?oc=5) |
 | An 82-year-old woman who was injured in a firebomb attack in Boulder, Colorado, has died - AP News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSVkxdkw5Q1RfSnZ6a1ZLcUtrSnRWbnlsUkhwQ1VnOGlidC03MURuc0U3M3BzUUM2QUh1Q0E5LVJYQUxMUkxjc1lXUzRyVDJhQllkaEhFcC11VmR6TnNLUDg1NFhuMGFhNGFvTS10Rko4RWE4enpqYzNOaFY2d28zNEJUekdROGM?oc=5) |
 | GOP fight over clean energy threatens to derail megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPX2hYS0NGVW1PZFF2dkRPNGtQMXJxYWR0T3JUaURhR1luNS1XYTUtNERYNFBvOHpjMklHaHpTUVE4QTlQTnBMZ3MzRjcxanY1WFpaeDBTUnVMNTlyOFA3V2M1MkpBQzFFRTZIQXZMaElCeXBRcmwzQkl1NjhHU3dFTkIzYnFYV3RMRHc3ZmVIVW16ZGluTWgxaEFxRWZyaDZXczVQczFYUFdzN3lr?oc=5) |
-| Anxious House Republicans scramble to forestall Senate’s Medicaid cuts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPVGR1ckpGME9STFU3M0M5Q1A0OUllQXlpNU43a1lBdS1iQTZhOUV6d18tS2xJdlUyQWZ0QkMzZFljT2dmUlpSeDZtSHhVd1JPT0Z0a1lDUGdfUm5FbHRSMmtLai14dE91ZWlQVm5LTHo3MFZfUG9TUEhLZ1U4WDRRWE5iQUhXZmstWEMweVNRS1Z2eHVhT2tKRGJldw?oc=5) |
-| In stunning reversal, tough-talking Canadians caves to Trump - NJ.com | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQX2xLa2g2ZDFCYlpNRDM2b21HYlNnN3lDMy1HeGF6WW9SZkhZR0xnbDlmdXVSOEI4MHRvZldNMEMzLW5NejczbF9IVFFvUkQtbWFSWk9ad3NzX0pjRDBaaDdGdkhZcWtUUzFYbnJhVWcweEhFSzJaU1Y5UUVqYlJJb1psNXRIUmxNaFJ3d0hnY3pGQ3lrN2V2MVNiZ0szdzTSAbMBQVVfeXFMTlJkUm9Qa21kOXo0Vm5kZk91dTdkdFB2YUZLQ1ZWb1F4UnZqdTM0N01OaVN4RENLcjRBd09Pd0lhQWd4VkNhcFA0Q212LXV4Rms3QU1HaTl5cWlmYXhHbUt5cTlWc1BqczFPU1dDMXVlYTZoZzhTX08wVjQxdW1aR2NFRGN6YW40cGdMMUNzU3UyZUxEM3BQeERsQWRlMjN4cENXY1luU0xNSk10V3ZyQmdNWG8?oc=5) |
+| Boozman rushes to block Grassley’s farm aid amendment - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOTV9CZ2ZVc0xld3pDWlhuRXpOT1V5STZFaFVja0NJXzY2UW9TOVl3WDRsWHcyS3pmbDFpM3kzMTV2dTA5dXpFeHNWdk04WHp4RDlSWHBIX05yZlJVLWpJaS1WYV9GZnJXNVhmQVlYc3o0SVZta0E0V0RtcU5BV1loQk9mbjQxSDVGd1ZNQ3ZQTGo1WW9RdG5sUXd3VUQzLVVqdk1KQ0JPREgtVkNYQjZsMjVxZTB0U0RxMnhn?oc=5) |
+| After Glastonbury, Bob Vylan faces U.K. criminal investigation and U.S. visa revocation - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPRHpUX2V2czc1SW1NTGVDemF5dGE3Yk5VSHQxaGdmU2Nud05HVzM4NVVlQ3N1MHhFdGxHLVFPblpfTUZ3Zy1rbE9QLXptS2lRZmtoei1QdnRRVGFYNFU1dWRvSF9sZnUxRkREdFBxU2tJMDVTN0V3X1ZPSWhjUERMOVBfQjA1ZmMtNnBrY3Zn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
