@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 20:42:16（北京时间）**
+🕒 更新时间：**2025年07月01日 21:01:22（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Three former bosses of Lucy Letby arrested on suspicion of gross negligence manslaughter | [阅读全文](https://www.bbc.com/news/articles/c62ddkde7y5o) |
 | Chief rabbi attacks BBC for airing 'vile Jew hate' at Glastonbury | [阅读全文](https://www.bbc.com/news/articles/c70rrld1nlpo) |
 | Is RFK Jr's divisive plan to Make America Healthy Again fearmongering - or revolutionary? | [阅读全文](https://www.bbc.com/news/articles/ceq7jx3dlj9o) |
-| US-Israeli backed Gaza aid group must be shut down, say 130 charities | [阅读全文](https://www.bbc.com/news/articles/cn5kk1w00xyo) |
+| British teenager accused of drug trafficking tells court she was tortured | [阅读全文](https://www.bbc.com/news/articles/c3ennx3q9qqo) |
 | House prices see biggest monthly fall for over two years | [阅读全文](https://www.bbc.com/news/articles/c9dggnl4391o) |
 | 92-year-old man sentenced to life in prison for 1967 murder and rape | [阅读全文](https://www.bbc.com/news/articles/c24vvdp371jo) |
+| US-Israeli backed Gaza aid group must be shut down, say 130 charities | [阅读全文](https://www.bbc.com/news/articles/cn5kk1w00xyo) |
 | Father jumps off Disney cruise ship to save daughter who fell overboard | [阅读全文](https://www.bbc.com/news/articles/c6288v6j4y0o) |
-| British teenager accused of drug trafficking tells court she was tortured | [阅读全文](https://www.bbc.com/news/articles/c3ennx3q9qqo) |
 | Meet the only English manager at the Euros | [阅读全文](https://www.bbc.com/sport/football/articles/cn0zwrzyzn0o) |
-| Chris Mason: Labour still has a big persuasion job ahead on welfare cuts | [阅读全文](https://www.bbc.com/news/articles/czjkkmdv33mo) |
+| 'I can't hear it' - Wimbledon's first day of electronic calling | [阅读全文](https://www.bbc.com/sport/tennis/articles/c4geedn44x1o) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Poll: Most feel democracy is threatened and political violence is a major problem - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZHFYSVBERG5ZV01uN1lSeVhlZGJKdW5HVFZZRjZ3Y0hBbGk4aGtQTk1hbVMzUk9Yb1dRb3k1WmNVXy1aSmVfZTZFS0lzYTcyS3NNaldTZEtVZnlwZGNLUWNueGpteV81ZDJTU00wd3FVcWVDTGNWUnBOY1hGSnFfWVMtZw?oc=5) |
 | Capitol agenda: Lisa Murkowski slams the brakes on the GOP megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNSXFhcWtQNXVoSnNxcVUxSl9VTFAtMEVkQVNGakpqYl9BdHU3SVVETnJTRHVuVTFyVXE3cERsaGFWSUlJTk9oWXRTLTkxbXZGQ2ZsSUR0QXM4S1paMkdVWDNGZjFyYmJNUllkMGZfRTF1QlVWUTJGMkJPZ2VSYWJ4Mmx3WFVmX0pRcWdJNktnS2RkMW5vb3A1UzJoa0FpUzRtVENXckdqcw?oc=5) |
 | Bush, Obama — and singer Bono — fault Trump’s gutting of USAID on agency’s last day - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPOExpZW5Zel9SckhmTGVLZkV0VGVxdktSX2JjeVc0N0tYcUhfVy1QNDRNRWlkcmNEb3FTdmVQUjBwVlExQWlhOUVsbnVYN2xPM1VQVE5KR01mR0UtTUoyTy1JcjFmM0gtWlNSNnl2Q1JVZENQdHVvZHJRN0xva3JrM3g2ek5qSUhXcXVaNnFJaW8?oc=5) |
-| Amendment targeting Medicaid expansion won’t get a Senate vote - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQb2RtX3d3d2w3Ym1RUnplWmJ5T1EtdHpBVm9zck1YellvN0Z0cGdSNV93OGk3RXIyMlFRTERFTDE1T3oxYV9jSU55NDFpZnZEOTd1OS1aZFF3OFhocUlDQzlVYktCRktxcE5FNFFKMzlDRk1KNDViUFBPYTdORFlZTW5IMjVBNUNaMUNxbUxfUkRoTnpTUzVaR0RsSWs2OWRuMDdmczBn?oc=5) |
-| Federal judge again delays Abrego Garcia’s release from Tennessee jail over deportation concerns - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOWk51ZVlXVG9Gd2xNU0I2X1JrRGQyMXdPUDNnTkpQU015VTF3d0hGODJYYnVtNEI5UjBDSGpLQzVBbE5NRXMxb0IxaXhPMV9fWmZJMFhfSVA3TlZYOGl2N0hxM0FkTkdJQ000U3FTRlNndHg3eTN6SE5VQi1pWUZWcUluNnI0V0RPUjhkVW5UTjBBcmhkY1k2MXpmOHRVR0RtdVhtcG1QX2x5VlBjck1zalZHbzNTZGNsVXFmMVlvUWppcVQ3?oc=5) |
+| Why a GOP senator says the budget bill breaks Trump's promise - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPZm5xUG9uRVVSZXFTZWhJcGpDQnFvR2dCVjVUMkI2UnVFakFmRExwWXl0YzdHcDVfWVI4b3R6ZjhSYTIxOGRSOHlaaVBsclpRSDRGM0lJdERnWjFIdThpMWlsSlQ5OXQ1M1pJcEV0UE1lSmlKdGJ4MllmNThFSFJ4RzRCbEY1ZTFQMldGMEN4bVg3Q3pyajV2Zg?oc=5) |
+| Trump to visit new 'Alligator Alcatraz' migrant detention center in the Everglades - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPS3BzbjA1cWx3VEFUUm43MlFkdG1aak1oRHRVdjVTOWxvOHdUR2xsbGxremdYWGZad3RyTnZ0SVNNeTJmQXpicjc3aVFaaURZLWdBZjhranp3b0t2VlN4STZLb0VMRzUyOXB6MXF0dWMxNk9jYXc0cDRPQS1zTndFWjNzRkpYUkF6azV6UzRSMC1WaEV1YmxBb0xyTkpSRzhCd1l1dF95cXFxZUthSVVZ0gG0AUFVX3lxTFBsSGRqeEo5Nkl6TmY4NzZqMmc1M3BhV2VXa21remU2N09BYWZRd3pQZDBoazgzanF5Q3dTNTNVMWswUnFwT3hjTmlCNEVydlo1SXlSY1lOdUpoUzlvUnJ1bmdGZzZxOUZ5Q093RlBjbUowa0lra1dhNElDenJudUdjMlhHbDAtUXZfMjJJU0NHRHpkTWNLT0ZkaU1EalZmNzE3NHdmSl8tdXpKSlo2dDFpbHJLMg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
