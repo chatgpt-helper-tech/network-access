@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月02日 11:43:40（北京时间）**
+🕒 更新时间：**2025年07月02日 12:01:12（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Labour rebellion clouds welfare bill win despite concessions | [阅读全文](https://www.bbc.com/news/articles/cly8877x3z2o) |
 | Slow-motion humiliation for Starmer as he loses control of Commons | [阅读全文](https://www.bbc.com/news/articles/czry6gv80mjo) |
-| Israel has agreed to conditions for 60-day Gaza ceasefire, Trump says | [阅读全文](https://www.bbc.com/news/articles/cgkg4m0133po) |
+| Trump says Israel has agreed to conditions for 60-day Gaza ceasefire | [阅读全文](https://www.bbc.com/news/articles/cgkg4m0133po) |
 | 'They took shrapnel from my heart' – the magnets saving lives in Ukraine | [阅读全文](https://www.bbc.com/news/articles/c1mgdendnv7o) |
 | Diddy jury to keep deliberating after deadlocking on most serious charge | [阅读全文](https://www.bbc.com/news/articles/c20nn0p9xg2o) |
 | Will there be a drought where I live? | [阅读全文](https://www.bbc.com/news/articles/crk661074ejo) |
