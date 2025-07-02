@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月02日 12:43:01（北京时间）**
+🕒 更新时间：**2025年07月02日 13:02:00（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | What to know about the Bryan Kohberger case as a plea deal emerges over Idaho murders - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQYkdnMldTY0RKZUgxV2t1RDBUQmZiVHRNZUdzTUF6QWZUNnkyeXNSV0lKOFlRWmtZMnhLNmJ2QUUxSWFudjFvV1JzYjF6Z1RSRHlhSGpHLWNNaHRWZEJ3b0FqYjJjMm1DZU1iYTR1X05oTENxTzYzdzhRXy1qRXJhNmlFWUpJOFFyLXF1SU8ySHFyVHhZbEdGVDNDdEF6ZmNkS2c?oc=5) |
 | Gov. Newsom signs housing bill overhauling California's landmark environmental law - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNbWkyYVY1Z2V6Zmg5RGV3ZUo4cDFnWm1kUEF6NGFJOEtEQ3dMOG9LMDZDUUMzdEZxVjVVbkMxTmxNaTdkZ1h3MWZlM1g3SmlPaFhuX2JFYTRaUFAtZHFpQndqNU5PNk5UYnBFWnNaeGNlS3lJRUIxRTNMSWQ3VjZIWHE3TmQ4QVhDUmtjanc5R2JNTjV2U3VkX2VUbmh0TE80R0tJUTZKSE0zV3RUMzZuWWhaemzSAVZBVV95cUxOUGg1REVuRHR6UWRJcnU0WUZZdVpTNTJrVjlyVDJWdjJGdXhrVDE1RjVmc2xLTjVORW93eHRCcVVIUFVWLXFIaE9ENTF3Qzh6OS1kR1dBdw?oc=5) |
 | ‘Agonizing': How Alaska’s pivotal Republican senator decided to vote for Donald Trump’s bill - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPVGxtZ05hRlp2aE9BTjJ4YllWOVFiUDk0OW16cnRBa0V5UjVQR2ZfRnN0dTdmZGNtSlhoRDhISTVuVGRkRG5OMVFZNTZVbWFZOURXaWtkdll4eU4xeDlkT1JNMGw3QVJHOTRaNGJJZDhGQnljMnRJZDFRSHhPUl9ZZXdLb214b3RnLTVUMzVMZ2Z5VFVKTFVkTy11V1RKS0E?oc=5) |
-| Vance’s potential 2028 Democratic rivals want him to be the face of the megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPNTNMYk9vMDl1emlHdndmaTJOWTh3em9Xc2lGcEgxVUR1SWJfZVQzYzh0aVdvZ1hkQXpqS0xDSFp6TV9JbWMwMXpRVXpWUExCUUhoRU55Tld2RFZNakR4bXh1WUZ2WFY0a1E0bnVvSE84NzdyczFXQWNyd0prZWxqNzJmTHR2MWRfd3Nr?oc=5) |
+| Trump OKs using National Guard as immigration judges at Florida detention center - Tampa Bay Times | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOTnMxMExOaGRPaG9fZFB4OTd0R25CbThsR0ltblpXdFNFcml5c3FNbW11SkJUclBURzRXZUlmVHEtVTNwbUJpWjFucE43OHBGYjFPcUpmNE5JX2tvV192M0dpUUZvNWw0aXdyVG01RUVyTzIzdW5HSlNLY0hvZ0xrMDZJdXJreVVOWm1WWnJvVjRxLWQwTHFfVU1jTkZiQUtNVXNwTExmQWpzSVczR18wM3hyREtIWHNGY0dLR09tajg2b1U?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
