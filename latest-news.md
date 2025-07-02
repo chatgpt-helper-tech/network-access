@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月02日 22:22:25（北京时间）**
+🕒 更新时间：**2025年07月02日 22:42:47（北京时间）**
 
 ---
 
@@ -14,25 +14,25 @@
 | Scorching European heatwave turns deadly in Spain and France | [阅读全文](https://www.bbc.com/news/articles/cwyg5pq584eo) |
 | Bob Vylan dropped from music festivals after Glastonbury controversy | [阅读全文](https://www.bbc.com/news/articles/cz09y1r1y1ro) |
 | Ukraine warns halt of US weapons shipments will 'encourage Russia' | [阅读全文](https://www.bbc.com/news/articles/cgk33k204ddo) |
-| Diddy jury are deadlocked on racketeering charge - but what is it? | [阅读全文](https://www.bbc.com/news/articles/c0qz32wzeego) |
+| Why Raducanu needs to take risk against former Wimbledon champion | [阅读全文](https://www.bbc.com/sport/tennis/articles/cvg44y8q7q2o) |
+| After one of the driest springs on record, will there be a drought where you live? | [阅读全文](https://www.bbc.com/news/articles/crk661074ejo) |
 | Who is the Dalai Lama and why does he live in exile? | [阅读全文](https://www.bbc.com/news/articles/c78nzwd10d4o) |
-| There is space for every woman in football, say Wales' first Muslim female referees | [阅读全文](https://www.bbc.com/news/articles/cly8dpqzz2no) |
-| Don't call him Oliver - the British qualifier aiming to stun Alcaraz | [阅读全文](https://www.bbc.com/sport/tennis/articles/cq533p4x7l2o) |
+| 'They took shrapnel from my heart' – the magnets saving lives in Ukraine | [阅读全文](https://www.bbc.com/news/articles/c1mgdendnv7o) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump tax-cut plan returns to US House, Republicans divided on bill - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNd0JpMGt6OWVmVF9pY0ZSYXlDSy04UG5TNlZXX0ZBZ2s5akRiU0o0c1QwMnJ6cFVzTDVaQ1gwRmFXb1dfS0FEdVhuLU1oRjBGM1VkbFhxbzYtRC14TG91OW9TRWtQN29qVXg0VGNKWnVvNVF2Ym9vT1RvSGZ3MmZURWpMRFkxaXRnUV9ITUQ2YkJFOVl3U1dZTTUwekR2Z1JYN1ZSUHQ1ODFZS0hZSnBWeGxiMA?oc=5) |
+| Sean 'Diddy' Combs arrives in court as jury to resume deliberations - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNMmtTTERTckNSZU5lT2NrZEJ4WWFBN1RoRk5oMUZ2TVlUN2dZZTExQUc1Ul9BWlhPazlzcnpLV0ZFbEtXcDRvTHZHc1BlcFJEUWh1Rk43M2M2Uk9ubDQ0M1dwRG03bWtfQ2lqb2JxY3BVNGxjQmZfLThZMk11T0VYcVlSQVR4NWdNUU9JZnE3b1BsRDBKcUJYa1Y1OXBDaTR5UEIzdGJqSlBwTElBUzJObzMwOUxCQ3l0?oc=5) |
+| The Republicans’ $3 Trillion Vanishing Act - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPX0U0OEUySHFoQ3BPMWF6VHcxWkNoUi12dkZTSVBaaHoyNDlGUkRlbkduWV9ueWI5YlNmR1pnYVl3YmZFSnh4cFNpdkcwRFlMV2pqT2tIYjVpbjFYQnVfaEpadHZvU2hlMFJfN2RHNWRoNF9DNEwwX3BCTGtvQWpCSXYyZ3NMRllRTG5oTlF1S3lxZlB1ZkQ4aVVCSE1pQldJ?oc=5) |
+| Musk vows to start a third party. Funding’s no issue, but there are others. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOTHUzUm02UHBfZEI0dE5hXzZTMHdRZ1hHc0dFYVJRRU93cy1BajM5a0xUUEpZeDE3c3VmUTJyRTQ5R0IxWC1YbmRuT3h1NVJ2VFlGZ0g4OXpHRDNUNFFQbkRfa0p4dnMyWXFtYjB2Y3JKNnpYcFpnOUtYNWl2TTE1VDJWYnB3akZn?oc=5) |
 | Trump says Israel has agreed to conditions for 60-day Gaza ceasefire - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE12b01YMjhMTXA3ZjgxcTIxVi1USkZOR2hBbnBQdlhmN1lKTEZ0eW5iVWxtQWdUYVlJR3owSGVxa0lyREJfZEh6TlhPU2tWRkJpR19YOWQwc243d9IBX0FVX3lxTE44Qlh0UGlza0g5aV9EekVBRS0wSnBvTEtQUEM4UlJoRjBqNkR2TnN2RzlWSC03czJVYzliSzhFSEVaVlRCZGxkdTRmUWFuMlNVd3J2RUxwSHpmVW5vM1BJ?oc=5) |
-| Judge blocks Trump from ending temporary protected status for Haitians - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPVTMxcC1aWFdteXJIQVpOUC1Ob3Jvdzk5T1VobnJjWTNrM1dqN1VkQlNEQkk3NUxSMksxT3l1cXJiWDc2c3NOcjNrdHJLbklFN3RCMXZWT21IVnVjdWxkRFBUQkJnbUtCeHpFYWdiVEJMenBfc1Z2MjZsRjRWcFl1MTRjcGVMbmFTdnNSVzFQQ20zeU4xOUZGMlprUQ?oc=5) |
-| Trump's big day: A feud, a Senate win and "Alligator Alcatraz" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQYzl6LXU2MjFBQnVaOUVlLUZZS2pqQVJjVFUzakItVDYyd2JSOXJSLVByQk5NRWpQZWZNM2RFR0ZsQ2RTb1NaMjVvMlphdDFKV1NWZnNsUjl4MlU5MkpZT2p3TzVHcWFxSi1DNlVDakd3ZTVjR2djUDI4UnpxbnNDNw?oc=5) |
-| Paramount will pay $16 million in settlement with Trump over ’60 Minutes’ interview - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOTHBveGRxcXhqYm5OZXp0SFlSOU4xZ3BNVDdVSUFpQjNmc1FaOVAtVTZEbldHWTBRbnlpUmRuTUVKWV9tMUFVbDJpNlZlcDFsUWNUSldCX2NrRFE4Vjd2aERyZXpZSnNMVFhHeVlDc2xvSkxGV2dvTlVZc0NBRk94NTRKS1ZFZlpHMFZKeHVJaHpWZFN5VVFJTjNmSHU?oc=5) |
-| Trump’s Finances Were Shaky. Then He Began to Capitalize on His Comeback. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBDMGhnTDAxTG9VdU8tcldNQy1mQWxIeVNnTWtNMFBEdkM1VHNSMEhrekE4c2cwYTdzdmp5UHl4b0VGZG9yOGJUSDRWSk5RZzJMWkRIZU12cnhia21xN0NCWURFWjVVZG9QVGZGc3NxV0I2Zw?oc=5) |
+| Federal judge blocks Trump administration from ending temporary legal status for many Haitians - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOemljVnNfLTJ2UEFZS09ua29RWEFrTE5ydDFQblNJdjh5bklkTE1fc1luYXJ6VjlDcWtocjJsbEZNOUhoSzJzN3U1aDBQdXFJWEcyMDViakVyUDhELXlhZ09kZ0xVdy0wcFBzUFI0NXVsZzd6TUp4a01CY3FiWjVNMURYTHdZVlBYTC1ZNGF6c9IBVkFVX3lxTE5mTGRlQnBtZ0ZXQ2NST25ac0FxT3F5RXl1dzR1RmloaHYwWW4yNHN2aVY5M3Iyd01NOFNnaktKd3I2anZxd2xkYmRDbl85cWtLdWRSeG9B?oc=5) |
+| 5 ways Trump's tax bill will limit health care access - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPT2J3RWtJeVF1eUM2RzdyYmxxNzQ4TzdZUTNHYzFZeEh3VmRHeXlKUzRDeFZhMW9aWFAtblVkOVhfRF9jNXE5aUFHN0YzdHlpX01yeEdTTnJEQWVkQlR6YWtuOWdaUFpKSklqMHdjYnNCanF4QXRzcmppYW52NUFOWnpJOG5tMGJQa1Q5X1dNYXgzMnNzc3pIQTRmNkpvS19vNnFBdEJKWjEzZkRjOWQzV3JZWjQwOGE4aFhTQw?oc=5) |
 | Bryan Kohberger due in court today to plead guilty in Idaho college killings, sparing him death penalty - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNSGJMeDNjbzZhTGEwYWpTb01lbVQxX2hkb1lKVVNGaUxnMjVIdklDbjZ3SzZSaHJoS3RMWVJ3a1hudFFYWjgwRUlkZmhkRERqdVp4NDNBb08xYklwa3ktRmp6YWhFbzIzWDNXQ3RFcEFfX0ZvNzRUUm9OTzByam93Vk56X2QzbU5rYzdEaXA0aXNPWWxEbXlYRkRSMA?oc=5) |
-| Elon Musk wants to create a new political party. Building rockets may be easier - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5oUkpXZWxzanp5Z09vcDVmRml4ckJYSnBlQnVJQ2dvMEpiWTdXSjZoNm9teXdMMHU2amdpUUlnUVF5Z2Z5RDRvRWdoWkhjT2ppZ2dmdEJSX3JDY2tmcWFZcHdOXzFGRUltelJ2ekpaVkw2VElSLVZyWdIBfkFVX3lxTE5qZEV4YllpcENoQW1aMXVLbXU4VFV0OWx2R1VqM1ZHOHJuMmNnZnZpOFF4cHpnc01QR3JWdVNHN3UxNVlWdlpleXFRVXV5V3F6TS1UeUo2RU5VQVpaSXdxWWdpdHVLM0FWVVZjd1hhcllyR3lvZUZGNGdTUkx0dw?oc=5) |
+| Trump administration withholds over $6 billion for after-school, summer programs and more - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxORmpmNExsTHRDckZZQzlCaUZCaDZiX2JxX0NQU3BlYXFfV1lzTUhuWllHV0lXSmhpMVBsN2lTSmxyMUZNRHBnTFZuYU1VWFJpc2IwSzlhS1VXVndMOGNSdTJESUtnc3NULWlYX0J2bHdGRUdkR0hhMlVvVFdzQ2U4ZGtuY3dWMWczVDdqc21jUU85T0pOM0tZWktvTzFIeC1HSGhNS0NOZVdobjV3aDZjNEZzSQ?oc=5) |
 | Gov. Gavin Newsom signs housing bill overhauling California's landmark environmental law - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNbWkyYVY1Z2V6Zmg5RGV3ZUo4cDFnWm1kUEF6NGFJOEtEQ3dMOG9LMDZDUUMzdEZxVjVVbkMxTmxNaTdkZ1h3MWZlM1g3SmlPaFhuX2JFYTRaUFAtZHFpQndqNU5PNk5UYnBFWnNaeGNlS3lJRUIxRTNMSWQ3VjZIWHE3TmQ4QVhDUmtjanc5R2JNTjV2U3VkX2VUbmh0TE80R0tJUTZKSE0zV3RUMzZuWWhaemzSAVZBVV95cUxOUGg1REVuRHR6UWRJcnU0WUZZdVpTNTJrVjlyVDJWdjJGdXhrVDE1RjVmc2xLTjVORW93eHRCcVVIUFVWLXFIaE9ENTF3Qzh6OS1kR1dBdw?oc=5) |
-| How Mamdani connects climate policy to his affordability agenda as he runs for New York mayor - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQbUYtdUptV1NJVms2Z2F1TS1BajFCamFZOE9kYmhKRjRSaFRIQkpCQ0lMSmF3djVWS3NBc3luRjdBOG5iTFZucG84NXIyUGltQW9ITEpFcmx5QU5sSDViYTBOZmFfQkJOQnN6a3pIVVJZOU0tLU5lVkstQV9hY0lVTmg0RQ?oc=5) |
+| Wisconsin's 1849 law is not an abortion ban, the state Supreme Court rules - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPT2cyWUVmUmNTTWw1ODBwaXZRNTlVcElwRUJ3OHhWRWVMckkxcHVEUk9PRHJmQng3eHRWdnFhdHlfZkJDLUdhN0d2cXlTamFDUmJ6dW9xZnB5eXVyV0lGOVJ0ZjM5ekYxODQ4RzkzcXhzWnN1QkZ2TmhsUS11MWJ3WkltNTR3ZGxn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
