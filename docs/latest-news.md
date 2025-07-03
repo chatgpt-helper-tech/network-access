@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月03日 11:01:23（北京时间）**
+🕒 更新时间：**2025年07月03日 11:21:21（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | 'Diddy' denied bail after being cleared of most serious charges | [阅读全文](https://www.bbc.com/news/articles/cjd2e310k25o) |
 | Four dead, dozens missing after ferry sinks off Bali | [阅读全文](https://www.bbc.com/news/articles/cew0yz5xw1no) |
 | New plan will fundamentally rewire NHS, says PM | [阅读全文](https://www.bbc.com/news/articles/cy5wpe9r1d6o) |
-| Raducanu beats 2023 champion Vondrousova to set up Sabalenka tie | [阅读全文](https://www.bbc.com/sport/tennis/articles/cj4ewwzln7vo) |
+| Raducanu ready for Sabalenka after 'statement' win | [阅读全文](https://www.bbc.com/sport/tennis/articles/c86g079z8l9o) |
 | Citroen owners left stranded over airbag safety risk | [阅读全文](https://www.bbc.com/news/articles/c0m8872n9gxo) |
 | Redacted evidence 'delayed police grooming cases' | [阅读全文](https://www.bbc.com/news/articles/cgq7n3lyyjqo) |
 
@@ -23,15 +23,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Republican voters on Trump’s sweeping tax-and-spend legislation: ‘This bill is a no-brainer!’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNWUJIVTNoN0t1cVFxSDlmaFhlVnhyNmFHRWdidHI3YjJWQnZVWEFKZFdHZHg5RUpMREFWMURVa2dEZlRpdldyRVdsb0l5ZUNndVRUUGZLaXg3VWJyTGIybjFtMThrNzd5OGJNQVBzajhhSVJTaUgxOTFNWU9FY0Y3dUt1R1BHb08zZXFRaE9YQQ?oc=5) |
+| Trump, Johnson rush to get House GOP holdouts to back tax bill - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNTzhfT2o0Y3FOTEVtU1UzdU5sbXBnSl9kZ3lVR2txWFFNR2Q5TGU2RWdfOUxsRERxLWF6Q3pWRGhENmY2TzQwQWtvdVFJaFdWYVprZmZmTnJQVF8xN1NTbTFOSzUxVmZQQXo2bWRwQmd5MmRJZWpjb0h0ZFFCLUh3aW9hYy1feDk1bkd3anVqcjQ?oc=5) |
 | Bryan Kohberger Pleads Guilty to Killing 4 Idaho Students - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5iQ09zblBBcndWa0Nqb1BHaEdYWGczd0xFTGxmRVRvYmVUTlpqOUxsRHN5OFlEaWlaMzhUSTRtcmRTNUZEZ3dZcEpRcVVWd3NUdUxjeEVMNW9IUHRCMzB0QUNWVjRsdXZUM1ZXeWowYlN2b3F0UUNVZ0M3UQ?oc=5) |
 | Federal judge strikes down Trump's order suspending asylum access at the southern border - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOS0NMS1VxQnBYbHNTRHRUN0sxQXNYMUxNRjFKeV94M0RkbXdsTnFtZTgtM21wcDRuMmN5NkxCcV9rUTVUdHlTbGxDU0FmR01paUR5X0JMRGNCYnBPSm5EYkJqVFl3TC1feWRxT19WaEMweC05QVVzMzJlVWdsQXJtLWZuM3dobHBE?oc=5) |
 | House members brave weather, medical hurdles to vote on Trump's "big, beautiful bill" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOMjVTZWtQRlRvVkxwZ1dhYU54WmQ5RXZPYTBEVlhxaTljV1l0SlItQ1RkNm1RZTFvSnpyOWUtcWpveGpnNmR6cWVQZ2o3M1N4cTVrV1JBMDlHM1VnRFVtYldjaXRMM2dPOVQ2dmtkd1BOVlFfc01qUWFPSm9VZ2F4cFVTdkc?oc=5) |
 | Tibet is silent as Dalai Lama turns 90, BBC finds - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5hZ2xJXzFVYWtzRDcyb3BZSTd2U0VGWVZTaDRBN1lJYlV0S2Z6V3VEaVAySWZZaTZRdkFiWXhGdC00bVJCZmFUWUJjdG9iU0lYUUJ2Z3I0NGlIUdIBX0FVX3lxTFBlSlFKNDV4YWJ5Y0lhRDFJZ1ZmVjJkZ082NDlWRGZJT2hpYXFGZzh0MDZxRWE0MEdkQkxmSTdiNDd6d3pncjhSS0pnaVppc3JIX1FqczhHcVdnazY5aXRR?oc=5) |
-| Trump’s plan to replace clean energy with fossil fuels has some major problems - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOTXV1c01OeXlob3l6bkMyeG92eXZfd0ZEdTRrTjJMbFNoZkh6YncwSWZYNk5XOFphWjVvOHZTTXA3N0NkNXpXMHRpam1UNHZBVHdjeURyRVkzT1NUdUtOUURlc0Rya1A2Wml3QTdNZ1pYREpkTGpQYWFmZ0hqMVVMNHhYU0VaSjRCUm9fWS1rMU8?oc=5) |
-| Ukraine fears increased Russian aggression after US halt of weapons supply - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9RTXNpRDBEY2hoWVhOMzR5WHE3NkRkRWlQZjNIOGhfOXZua2sydGdGZlJfTFZOdndEUjRUQzlfYVVyQkkwVHlqbk5RVllmLUNoQS0zUV85MEVQQdIBX0FVX3lxTFBTcUFxNUpyeC1qQ3VhLThEX19zX0Ria1pFdHBRYnBDMWVEOF9pR2dVV1RSa2VtQ2wtcWNNVkhPcFc4QUZuWE9OY2pIUDQ5bldxN3BzSzl1MUxtS0tPRjN3?oc=5) |
-| Wisconsin’s 176-year-old abortion ban struck down by state Supreme Court - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQWjA2RVdwR09kclA5NmRlalNFUkpEUFF1MVZZRl82aS15ZU9ISFhka2NOcjNNdWZFSk5wZGdaMzI5dE9hekpYZm5RVmlrcFJLWXV3c2hybXA5bkE2OFNUXy04NUl2bFdVdW0tTzhBcWV0cVZtQm1IT054LXhqV3lSQVlnbHlTY2ExYjdVbWZLU0czN0lUTzhZWlU1MS1iWHhmaVlqcHlsQ3Fra2PSAbABQVVfeXFMUFNWVHppcmpwaWV0NkdRUHdDRlJRZTVlaFpoMkc1RlpoOGFwMUNSbkJmOGx2SEtMdWtWQ2d2YmNibGowYU1iZm5GVkxrNFI2YWZWZzhaOWp6X2czT184Z2JTOUlTV0xHM0JnVGJLaEFjNTBqT08xcFpBSXVlUUR1TkMza2ZwYmdqbXpuYkoyaEdjVVk5cThBTVNLanpnMlN5OXRtaW9pSGFlMUhPdy1jS0I?oc=5) |
+| Air defense missiles among weaponry US is withholding from Ukraine, AP sources say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNb2IwVDVIVXVUbEYzcGdKRzVFYWFlVGFhVjZVTkQ0UkFueXpvLXgyTjA4azE4dXltNFhlWk5lcW5MVm1Cd180c053a0ZMYnpMQXNxcko1V0NQYlowUkdWZ21haWx5T3NHNko3encwdksyaHhydTBWU0pPNFF4Q1RCZk9vSTVpbHMzWWZWNkJmenlKSjFVMVFmRTRWckxfaG1WMW9mOGtCVHRFbWdacGc?oc=5) |
+| Summer and after-school programs at risk under Trump's K-12 funding hold - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPdklPR1RCZUt6UnBOSkpVaDEybUY3MEpUS045ZkhGM2dER3NXYjRpLWFNc3c1VUhtWjdNNjcwWWJEYmc2WWxfRkpkd2JESTNRX1U4ZTVZWWxUUGxsNm92WkRxeXRYRGpIWGl4SHgwU1hTbVB2d19UYUFHd1FEZVNqLXM3VU0?oc=5) |
 | A Dedicated FEMA Fund Will Pay for ‘Alligator Alcatraz’ - FactCheck.org | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPbVE0YlNYSk90eGdZWEp2UDdlMjdMWkI1dFV2eTRLcXdMd0lkWHJtRDdleC1DQ0ZjbWRtYVU5Y2llWUozcEQxOFF6V2xSaHJzSDlBb0NqTGcyV3l2eGFUOFRyTGtuVHZ0TjIzUndNRDdKbGk1NW5JdG81TVZKcVVueEVJaXdiUVBIejZtWWFjUmcxdw?oc=5) |
+| Wisconsin’s 176-year-old abortion ban struck down by state Supreme Court - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQWjA2RVdwR09kclA5NmRlalNFUkpEUFF1MVZZRl82aS15ZU9ISFhka2NOcjNNdWZFSk5wZGdaMzI5dE9hekpYZm5RVmlrcFJLWXV3c2hybXA5bkE2OFNUXy04NUl2bFdVdW0tTzhBcWV0cVZtQm1IT054LXhqV3lSQVlnbHlTY2ExYjdVbWZLU0czN0lUTzhZWlU1MS1iWHhmaVlqcHlsQ3Fra2PSAbABQVVfeXFMUFNWVHppcmpwaWV0NkdRUHdDRlJRZTVlaFpoMkc1RlpoOGFwMUNSbkJmOGx2SEtMdWtWQ2d2YmNibGowYU1iZm5GVkxrNFI2YWZWZzhaOWp6X2czT184Z2JTOUlTV0xHM0JnVGJLaEFjNTBqT08xcFpBSXVlUUR1TkMza2ZwYmdqbXpuYkoyaEdjVVk5cThBTVNLanpnMlN5OXRtaW9pSGFlMUhPdy1jS0I?oc=5) |
 | ‘Spineless capitulation.’ Paramount faces backlash over its $16-million Trump settlement - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxPZkM1eFZLSnU4UmlIX0NiS014X3JOUGlWY0FadTdJdlZvbTZUVEpzQXc2RGt5VjRldnA2Vy00R25XV0tyTVh4cUQ5aVlJWFROS3dQRDdsdS1VblVWZ0JUcml3UjM1Y1JrbEJkblBRTldwa0taMVdVYlFzMkhRZ0d0d18tLTVva2p0OTY3b1c4T1JMb2VVRmRtWktKaFNjMlhZVEZuRGdlbDc4V0d1UHMxRl9xbzAxZzlLMk1nRGUyRDZUV2RfanFZdjBQdWpudnFr?oc=5) |
 
 ---
