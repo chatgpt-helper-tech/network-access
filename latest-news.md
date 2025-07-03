@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月03日 16:42:20（北京时间）**
+🕒 更新时间：**2025年07月03日 17:00:55（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Some education grants in limbo were used for ‘leftwing agenda,’ Trump administration says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOVnRacGUxRUZxWlRjVnBwdDBuNkJzNFZiVlROS20wbE55WThTY0RaX2x5dHE3V1l6NWdRYTVrUkJqSGRSYmpyWEhJcGRKN2VxZm9EYzJvQkNKMDFSRkg0WlBaUHQ0OEpwT0NobmhscGVUODNnMThydjliREZtTmVkM3ZYSlpGOGU5dG5vT1RBaDhnN1NtSmJfRFVBTGQxYnRxc2pV?oc=5) |
 | A Dedicated FEMA Fund Will Pay for ‘Alligator Alcatraz’ - FactCheck.org | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPbVE0YlNYSk90eGdZWEp2UDdlMjdMWkI1dFV2eTRLcXdMd0lkWHJtRDdleC1DQ0ZjbWRtYVU5Y2llWUozcEQxOFF6V2xSaHJzSDlBb0NqTGcyV3l2eGFUOFRyTGtuVHZ0TjIzUndNRDdKbGk1NW5JdG81TVZKcVVueEVJaXdiUVBIejZtWWFjUmcxdw?oc=5) |
 | Trump announces US-Vietnam trade deal - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFB1LTBDVUdFcHZVTTMxVmYxWm84RGMzeDZpRV8xZTNGRFZXSGlDYkp5dWRCaFJKdkhsNFV3NmJSRk9wU1BpcnVDb0tKdzJEWmZLZ0dFekRqUm8yUdIBX0FVX3lxTE5YNndNc1g2blJqaEJreFV2ZzhPVkFnY3NvRkE4VjBWLTdzM3FlUV9PSFNyOUllR01JNDZ1dVpCdTNSc0hTS3M4ZkU3cEJ4SnVwNlpQdldvWmpNRVNkWHdJ?oc=5) |
-| US Contractors Say Their Colleagues Are Firing Live Ammo as Palestinians Seek Food in Gaza - Military.com | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPMlM1WkdNSG9lZEJBeHlzVjF4Y01wS05WV20tWlZQUGdiM3FIa1VVaGp3bkdsbW5lcjNkYVhCaGJRRTJobHVYejV6UlFSRjFRWkt6aUlRSjZQZjZhTmVLUm9UVlVaTEJEZ1d2RXQwcEpWcHA3Zks1bnpVZDI1MkZXU3ZPaTh3WEJEdFo0d0hld2lxNXBPY0JJdUl5Qm8xNlk0RlBHY1oxbVpyMnRTbm1kM2kzR3F0b05NYVY4ZmdqbUVZcGV1MFotblo5ZlVfVjFYemfSAdcBQVVfeXFMTkNIbGViVThVXzBqcDAxS2pfQ2JTR0RIb3hSTGxIc25CaS1aM0N0M0lfbGhWU01wRGNwY3BXQkdLOVpIdlBEZXNPQWVETHdfM1c3bHVfRFh6U2dqTVhySlZkYWQ2dUtOZUlKcUgxU21EMkNrU3lhU3RiTXJ2NFN2cllQYVN4cVo1OU1LaXN6SXF4NC1QYWFkRlY2ZlhBaENQMFBfNnlFa1NDc3pSRlJ2TmJhVGpTXzRKUU5aSXdvODk4dVRTNVV5WTRROHhxbFY3Sk50QmlRVjg?oc=5) |
+| Judge blocks Trump's asylum ban at southern border - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQaEN5bzZTT0taSmpkSDMwTjEtcFlEaTlZb19Ja1BNYmFEVXpQQnVOWjZwUEwteEEybVBibjN4WEctaWJTX3ZZY2o0TFd3ejYxbUlMM1RjVDlRMEwtSzd0Wm54R2J0R0c0NzRBVmUxRTYtajh3eG5XbURSMm90Wld5RTVFc0JuUUROcENjQmRJM2Y4V3JUNGfSAZsBQVVfeXFMUC1lLXJxWjV6SXVIQU5uSEFaMUx6Nmh6eGxXVjV2VFlEeUlpLWItZ1ZYNnJRdnFRb2JFOWp3bEFBOHVRWWxGRng5TUVzUlFjdGo1NlF4c3cwdXYtQVdmRnBoYzRqSzExbmJkYnpIclhCVlRmSzI2YURFR29fM0pfX3F3Rm1OaGNPUjJWZVg5cWpKaTIteVVEX2hsVUE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
