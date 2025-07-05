@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月05日 22:00:15（北京时间）**
+🕒 更新时间：**2025年07月05日 22:21:24（北京时间）**
 
 ---
 
@@ -8,22 +8,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Family and Liverpool players gather for funeral of Diogo Jota and André Silva | [阅读全文](https://www.bbc.com/news/articles/c98jdq57dedo) |
-| Reform MP loses whip over business allegations, party says | [阅读全文](https://www.bbc.com/news/articles/c78n1dxl8wwo) |
-| Hamas says it delivered 'positive response' on US Gaza ceasefire plan | [阅读全文](https://www.bbc.com/news/articles/cnvmrmvp98go) |
-| 'Too many shots in dog collars': Booze culture at crisis-hit cathedral revealed | [阅读全文](https://www.bbc.com/news/articles/ckg34410dx7o) |
-| Oasis kick off their comeback: The best they've been since the 90s | [阅读全文](https://www.bbc.com/news/articles/cn9y5z5nqe1o) |
-| Sydney Jo's viral TikTok group chat drama, and Superman hits cinemas: What's coming up this week | [阅读全文](https://www.bbc.com/news/articles/cdjx2k1e0ydo) |
-| Why did our aunt leave everything to a complete stranger? | [阅读全文](https://www.bbc.com/news/articles/cx2390x51zqo) |
-| Ketamine helped me escape my negative thoughts - then it nearly killed me | [阅读全文](https://www.bbc.com/news/articles/c70r1xdyy59o) |
-| Tiny creatures gorge, get fat, and help fight global warming | [阅读全文](https://www.bbc.com/news/articles/c628nnz3rp9o) |
-| Why Indian artisans are up in arms over Prada's sandals | [阅读全文](https://www.bbc.com/news/articles/cly801q2pw7o) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Camp Mystic, a century-old girls Christian summer camp deluged by Texas flood - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNV3ZqRDkwbXNYN04zN2tRcmE3QXNxb1hYRjhxOHdCd3o4a0ZTT19iNUJJSmVYdzltNGVGXzV6THgxdzJvNmhYRWtlZFVMOHJyak1PNU9mdDR4VXVwczN2R2VCd0p2TUNsZTgzNTVLNnlGTkpXQ2RERzkxWTNkMHU3Tm5FTHU4VGRDcDZZOTVraVdpbWRGaHFVcmxEQ1RRTzk4NUVSN240Y21aQlU?oc=5) |
+| Camp Mystic, a century-old girls Christian summer camp deluged by Texas flood - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNV3ZqRDkwbXNYN04zN2tRcmE3QXNxb1hYRjhxOHdCd3o4a0ZTT19iNUJJSmVYdzltNGVGXzV6THgxdzJvNmhYRWtlZFVMOHJyak1PNU9mdDR4VXVwczN2R2VCd0p2TUNsZTgzNTVLNnlGTkpXQ2RERzkxWTNkMHU3Tm5FTHU4VGRDcDZZOTVraVdpbWRGaHFVcmxEQ1RRTzk4NUVSN240Y21aQlXSAVZBVV95cUxNa3JHM1BLbTlsRGNQeVhmWm15X2QwQXlPcm9hbmxvVVBXbVhHbnNueW81WGlmNXVFYS1Kc3hPeGExbXV0QWpCLVZDb3ZibjhCV0NOTGFEdw?oc=5) |
 | Hamas Accepts Gaza Cease-Fire Proposal With American Assurances Over Talks to End War - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQaDg3bWxNMElQQTdDQkJZTm14dnhjbVhFNzZhOFpCN1gxTVZfdk52bHhWNnNkWFRseHhSVk8zeWRVQWxQZXdLSkpIdldyM1c3dTBQNXdZcE9McjZ0aENsSUEzV29IZlFxd0FwcWQxMGVLb2tKb250TXNCM1ZyaHFSTEEzUzAwaEM3OGxpR2JORG9hUkFHS0IzY1JQdTBBX1oyTWJZYXFGQzJSaEozVmNyN204cGYtZTltQXlCVWZBVQ?oc=5) |
 | Will Trump's megabill help Democrats win the House? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNX1dHNUtXWmVTdEhfcWhaVVhxUTFrbWdQbmVqd3pqemlwRzZpMmN4VEtvZ202bWlGRXNvYkN5Z2lsSlVmSnVwb3lLVzY3a2RpRU56dlJQS04xNU55MDV4R2NWVW1uODlHQ19RZnROLUlBdVZvaW1rMWFaWDR2VWVrRlV1bnI1Z1VCVlFrZ2RuMF80Zw?oc=5) |
 | Flooded Areas of Texas Could Get Several More Inches of Rain - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE10dDZZSjlwZEYyN2tMV1hITkpydEdfUlVfbUdGS0NUWGRhdFY5SnlQNWhPZlFiWlRpdmp3dnhIUU5xSThTYlBvSXJBNVRXeUNqaDFnbnMwQlIxeDdSRU9ScXJFa2VTVnBVZHJmS0Fudw?oc=5) |
