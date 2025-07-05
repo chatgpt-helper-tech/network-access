@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月06日 03:01:07（北京时间）**
+🕒 更新时间：**2025年07月06日 03:21:37（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Live updates: Rescuers search for more than two dozen missing campers after Texas floods killed at least 27 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNcHdyZ2QzbWhvSlRLV1lyM3hXQm1ldGFJRG5lWmw0dFFid3ZJdFQ2UXZmbkdRYlhQOU1UdmZjOUp4RndlUUlaa1MxelBpTm00TEZuSTAwNU5WdjFEWDlGRXFtUmNrNGIyMFcxXzQ5MGRYelo5SzVDRzBTMDNjMEc3Qm9LOWhUQjhNUWpiNy1LT2RYT1lxaFE?oc=5) |
-| Tropical Storm Chantal Forms Off the Coast of South Carolina - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPclEzdkU5bUpFMTRKOG1zc0s3Vm8yQ2pfZ2FDUWNfanVpS0M4NC1wT2t2VTVFQlhrZ3FWMVJyWDhSLXRZaXFlbk1aYTlXVG5xc2hIZHJTWWJ5NHpvNjdqc3ZIbHU1TUk0YjJMUHVqX1JHeXRoX3VDLVhTTkJZdUFGNUlJQTlyUXdINEhCdEJn?oc=5) |
-| Will Trump's megabill help Democrats win the House? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNX1dHNUtXWmVTdEhfcWhaVVhxUTFrbWdQbmVqd3pqemlwRzZpMmN4VEtvZ202bWlGRXNvYkN5Z2lsSlVmSnVwb3lLVzY3a2RpRU56dlJQS04xNU55MDV4R2NWVW1uODlHQ19RZnROLUlBdVZvaW1rMWFaWDR2VWVrRlV1bnI1Z1VCVlFrZ2RuMF80Zw?oc=5) |
+| States Brace for Added Burdens of Trump’s Tax and Spending Law - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5EUHFpMEZuSkFHckEtVlNfTjdOd191Sm9neG5GZTB4S1UxREZPMnBfVEJud3hsejdlQjc5Y2c3T2FTdEpvcUJxeUVqNF8tLVVDS094MG96VTV4clFrSXd0RlMweHpxeTlzVE45WmMwYjZUbm43eUNUeA?oc=5) |
+| Tropical Storm Warnings Issued in the Carolinas Ahead of Chantal - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPclEzdkU5bUpFMTRKOG1zc0s3Vm8yQ2pfZ2FDUWNfanVpS0M4NC1wT2t2VTVFQlhrZ3FWMVJyWDhSLXRZaXFlbk1aYTlXVG5xc2hIZHJTWWJ5NHpvNjdqc3ZIbHU1TUk0YjJMUHVqX1JHeXRoX3VDLVhTTkJZdUFGNUlJQTlyUXdINEhCdEJn?oc=5) |
 | These 26 Rich Private Colleges Just Got A Tax Cut From Republicans - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQQThhZV91NDZJVEo4cElQYXRNQlM1bjhsSDlrd2FZSnA0UmU1MUozMHNEOTBDbTFMNk9paHJrTVZkN3d0VmJ4MXUteUlKZXlSZkw1bE1uMGNZekliYVNOMl9Wb0dNai1UX0JFbnRDX1RIbFdiWmtPVXM4SWExcFEzMGtsYnBpUUFnbFhvSGFfNWhYRGdZRERSWHBoTTRYaldPNVBqQjZYQ0tnN1hJdU8tY2s4RVFwQ1JodUQtZQ?oc=5) |
 | Trump warns a dozen countries will get tariff letters Monday - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiZEFVX3lxTE5VTmNhRDVlMkJsaWZ0aW1YVzhQbmdIWWNTVGwxUC0tX05ZMUZhZ3dtRUlqcU5HZ3kzcVU0S2FwZ0NyUDVGZGpHRmdNNEE1SkcyenVmSWpsVmZ3SlUtc0Y0Z1EzdFU?oc=5) |
 | Joyful Parisians take a historic plunge into the Seine after 100 years - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNUXVWOEVzUGNIOE1iRktOQWczZ2VlSTJZQjNyRVpsRG1paWNaMUhsbkYtYnlWVnlna1RDeXdCb1hsMDJBYUxPSjNxdDFncUptVVJFdUNYWVp2ZE5GZXZnZnJpS3AwNTB0R1EwOXlhakoxYTdKQS1tbjdBai1yalA5Q0pwYVjSAVZBVV95cUxNNXNrZWR4cFNLY1A0UGZfSGg3OS1Ic3Qyb0pXbVJuY2FfNVNnemZxZ1lqMWliSXdCal9lcmw5QjJJdThxa2hNRUZqUUdzMml3N0JwNFZTUQ?oc=5) |
