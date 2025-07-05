@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月05日 12:42:11（北京时间）**
+🕒 更新时间：**2025年07月05日 13:01:49（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | At least 24 dead and up to 25 children missing in 'terrible' Texas floods | [阅读全文](https://www.bbc.com/news/articles/cwyelx3x5k0o) |
-| Hamas says it delivered 'positive response' on Gaza ceasefire plan | [阅读全文](https://www.bbc.com/news/articles/cnvmrmvp98go) |
+| Hamas says it delivered 'positive response' on US' Gaza ceasefire plan | [阅读全文](https://www.bbc.com/news/articles/cnvmrmvp98go) |
 | Oasis kick off their comeback: The best they've been since the 90s | [阅读全文](https://www.bbc.com/news/articles/cn9y5z5nqe1o) |
 | Trump signs sweeping tax and spending bill into law | [阅读全文](https://www.bbc.com/news/articles/cpvjlj3n1vmo) |
 | Raducanu out of Wimbledon after falling agonisingly short against top seed Sabalenka | [阅读全文](https://www.bbc.com/sport/tennis/articles/cj3ry7v6gmlo) |
 | Palestine Action banned after judge denies temporary block | [阅读全文](https://www.bbc.com/news/articles/c93901n9z0qo) |
+| Pride in London returns as events struggle with falling funds | [阅读全文](https://www.bbc.com/news/articles/c0q877y7g9eo) |
 | BBC on French beach as police slash migrant 'taxi-boat' heading to UK | [阅读全文](https://www.bbc.com/news/articles/c5ygjjxjlplo) |
 | Crowds mourn Liverpool star Jota in his Portuguese hometown | [阅读全文](https://www.bbc.com/news/articles/c8xvr9v1exlo) |
 | Former Arsenal footballer Thomas Partey charged with rape | [阅读全文](https://www.bbc.com/news/articles/c39zr7y9ep3o) |
-| 'It's Groundhog Day': Ukraine's sky defenders stuck in relentless battle | [阅读全文](https://www.bbc.com/news/articles/c4gkzgqe30yo) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Court Rejects Effort to Keep Migrants From Being Sent to South Sudan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQa2xsX3BLLVFSLWdkMWpmTjlWSlM1TGVlMGdjX3FTSjJBdWVrUDV3UTBxTURoQUcyd1dqUGJjbnNrVm1WYkZuNGlXUTVVMmtvZ3BuQkx1ZXA3UE1hdjl4a3VQWDRGcDRYaGUycWI1am13bUZvdmRZMEZGY3hadElHSGo5bmNoQWs?oc=5) |
 | Trump’s $7 Billion Education Funding Freeze Blindsides Schools - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNM0VseC0zY3RrcTAwYWFCSUNTbVBqc0Y5RHEtdzViREYzVzFKUjBITTBPU05XY2t3cWJGUUJCRWYwQVZ4d21yWFgxTW85MV8wczNTcUFteTJtM1lZOVZDWTFMa29fMW9yT0RWbGZzSnVnMGxycnMtUTdSRE5jVGpRVklXUUo?oc=5) |
 | New aerial photos of 'Alligator Alcatraz' immigration detention center show detainees - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNd05ZRm1DT0RhUkN0cEVrRFdWWmtvVUV0MGduSTdDQmtZOTZqc1JmOFNDRWNHOUgydUZnRm1KWU9QTU5VM3FyLXVNOUxrYjFMNE1RbUhYMW4tb1VkYkoxVGhhTDExUmRZaEdWcXZDUmlqbEQtSWZTdFB5eVIxRVBWSUF4Zjl0M3o5aEZIQ2k3X0IyUHF2X3k3SDN2OTN2R05DU0pfVUUxZFh4QQ?oc=5) |
-| Julian McMahon, Fantastic Four, Nip/Tuck and Charmed actor, dies aged 56 - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQMUN4akNPbHFIWDdMR0tmQnczS21OTTVIU3JRNXdURlhvWWpjRENHbXk5OVRxd0Z3bWVCV2d2aG03TW5wYk5yRXQ2c3lGX3plU1BaR0VrVGtwZC1OdzFXVzlIWW9rR2pocDRFU1lyaGZBVGp5eUFkTHBhbGVNRUV1SWZlWEtUTDFVMmRQb2ZiUG1feDJVZTB1ZFhpbzJEYllwQm9wXzJCZXByWTc4d0hvb1J4cVZFdl9FTlE?oc=5) |
+| Some Americans Are Protesting the Trump Administration on July 4 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPN09HTnU0SlhrM1pTcGlMQmZIMDhZQXBXNmRSSWVXZV8wYWNMOUVCby0xT0REVnVtMUFJZHRXLXZqMzJsSjZqaTJtTkNzdXIxQklYNUh6V3dtamxTV2tfZHNoTXlUUk8tMGNqQ0FJS01XVlcwUkx3dTRzZnlZVllDdQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
