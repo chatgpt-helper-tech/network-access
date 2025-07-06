@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月06日 08:00:53（北京时间）**
+🕒 更新时间：**2025年07月06日 08:21:20（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Texas flooding updates: Abbott says 850 rescued as 27 still missing - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQNkxoYXM4YlRvV3BOLWRXZjVjT2U2YzQ4dF9NRTVtT1hQMkVMVnY1THpSTjBSdEtvZDRxZEZHVzQ3YzdsdXd6SDNCTmo1cWlDTEZFN1JWLVlNUnBZYlFqMG9RcS02THFTdTVEdWFMUEdnUzA1LWdIOElkc3F5ZVR2bDlfT1hfdllYaDB0WW5td3A5MFJQMFBmX01tQjRZTHhnYkRGaC1yUFhYZw?oc=5) |
-| Elon Musk says he is launching new political party - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBHa0toaExoWXpFZmE2UG5EWVFRaEJTdmhtSlV0S1pzSnhld0k4bloxdnVYZ2lDSWdyWjRQNHNaOTFpUUY5eXZfNVVMQXBMODZPQUVwenBWUHRvZ9IBX0FVX3lxTFBfVGlLY3g4SF9MaHhwcHpvOGwzNm1RLXd5ZnpNS2liaDNtWUJ5QTlTRzdfVlBydTR2ZUg4b0tha2R4WWhMRV9pdmVRdFlmQS00VFBpTlYweVpDSWxLdS1Z?oc=5) |
+| Elon Musk’s ‘America’ party could focus on a few pivotal congressional seats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQWEFhdFlPUk4wSW8zdDdJRlhveWx6aHdXTElzWEVETU1kbTZSQ2tHM0dJbTRHeUl4R0hoYUxmTy1qMEhMSEllenZyd0U1YTFoTGo0M0tqNllObHJrWjFoOXN0QU1lQ3U4OW1fZnFGNEJuVllFSmFNRlV5enBQbHRTcVR5WGZsRmNhUWVv?oc=5) |
 | Madre fire in rural San Luis Obispo County grows to nearly 80,000 acres - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOVnR2SVRSN2cxOHJQa05Gc2xyUE1BVWhTWWNDUFdRbjhTcmF3eVlQWWNEUEpOTk43d0NXTVRweHdrS1o1TWhCNm5JbmVoT1NNM1JZckJhTlNhRlRMQ2tubTBRUUdfM1ZGNXpYcFpfZk01VjNmLXlBQzZjU3E1U2VfTjNkUmVlRTVKNFlRRFk5WDVnYk5xU0poVDRnak1iUV9iVkFQbExMaGdkbmtUdlROUjJEdzBnMkJUd0JBd0t6THY?oc=5) |
 | Israel to send team to Gaza talks despite Hamas demands, PM says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5mTE5WTFJxcXcwWWFCUUt3U25Jc1pOY3l2cFhoN2t1UjQwYUltWHhERFJPcElwYnQtbEgyU0Nid1FsTWdaVFl5QmVUWWQtZzVSVW5KNzctT1Y5QdIBX0FVX3lxTE9mdXpsZFlsbUZHSmlOSExaOU1yY3JVY19Id2hqOGpXdnZEcDFzajN2STBmVG5qY0JSdEZjZUhCSnc0Z0FLZ0Y0YnRFWkNTaThBZ19lTjB1aDVGM0RqSUdR?oc=5) |
 | No holiday for ICE, as immigration raids continued on July 4 - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOS1JyQkxqUUF5Rlh6X0M0SHNaVHI4a3lqNjFNS0xiM3BXWGNyaS1ZaEhDX0tfX0s0SUtEOEMzWC1NNkplOGdJTndRU1dFTWdRZWFVbnNiNDRXLWRDSTYxa3NMWmNYRGNwUXM4MENNam45TGF1RXNWbnptSm1CTmlNMHVybU41bmdDM2I5aXhLV2NXOWE3WGs2ZmZRUjBjaWxfcF8zcTNldERieEtx?oc=5) |
