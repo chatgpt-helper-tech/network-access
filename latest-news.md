@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月06日 09:01:11（北京时间）**
+🕒 更新时间：**2025年07月06日 09:22:44（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Frantic search for survivors of Texas floods that killed 43, including 15 children | [阅读全文](https://www.bbc.com/news/articles/cr4w36lnvgyo) |
+| Search for survivors as Texas floods kill 43, including 15 children | [阅读全文](https://www.bbc.com/news/articles/cr4w36lnvgyo) |
 | Israel to send negotiators to Gaza talks despite 'unacceptable' Hamas demands, Netanyahu says | [阅读全文](https://www.bbc.com/news/articles/c4g8p24zm3vo) |
 | Elon Musk says he is launching new political party | [阅读全文](https://www.bbc.com/news/articles/c1dn04lvgpdo) |
 | Labour might be down, but it's not necessarily out - voters reflect on a year in power | [阅读全文](https://www.bbc.com/news/articles/cvg8vjm4ee1o) |
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Texas flooding updates: Abbott says 850 rescued as 27 still missing - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQNkxoYXM4YlRvV3BOLWRXZjVjT2U2YzQ4dF9NRTVtT1hQMkVMVnY1THpSTjBSdEtvZDRxZEZHVzQ3YzdsdXd6SDNCTmo1cWlDTEZFN1JWLVlNUnBZYlFqMG9RcS02THFTdTVEdWFMUEdnUzA1LWdIOElkc3F5ZVR2bDlfT1hfdllYaDB0WW5td3A5MFJQMFBmX01tQjRZTHhnYkRGaC1yUFhYZw?oc=5) |
-| Elon Musk’s ‘America’ party could focus on a few pivotal congressional seats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQWEFhdFlPUk4wSW8zdDdJRlhveWx6aHdXTElzWEVETU1kbTZSQ2tHM0dJbTRHeUl4R0hoYUxmTy1qMEhMSEllenZyd0U1YTFoTGo0M0tqNllObHJrWjFoOXN0QU1lQ3U4OW1fZnFGNEJuVllFSmFNRlV5enBQbHRTcVR5WGZsRmNhUWVv?oc=5) |
+| Elon Musk says he has formed a new U.S. political party, the 'America Party' - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPZFQzd1NhZVc0VFo0dGdsaEZMNjcxZ3lOWWwza2V5ajhGaUFyY2tLYzNVNW0wc2JrUlJrQ25VS19FSjJpbmZsLU9LOVdKMTFmVHpxb3VlX1RNWkJZd3E1MlM3bGdyRGtjQXlqa3ZDbWpDMmh2djlycFpHaFQ2OG1RanZ3?oc=5) |
 | Israel to send team to Gaza talks despite Hamas demands, PM says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5mTE5WTFJxcXcwWWFCUUt3U25Jc1pOY3l2cFhoN2t1UjQwYUltWHhERFJPcElwYnQtbEgyU0Nid1FsTWdaVFl5QmVUWWQtZzVSVW5KNzctT1Y5QdIBX0FVX3lxTE9mdXpsZFlsbUZHSmlOSExaOU1yY3JVY19Id2hqOGpXdnZEcDFzajN2STBmVG5qY0JSdEZjZUhCSnc0Z0FLZ0Y0YnRFWkNTaThBZ19lTjB1aDVGM0RqSUdR?oc=5) |
 | No holiday for ICE, as immigration raids continued on July 4 - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOS1JyQkxqUUF5Rlh6X0M0SHNaVHI4a3lqNjFNS0xiM3BXWGNyaS1ZaEhDX0tfX0s0SUtEOEMzWC1NNkplOGdJTndRU1dFTWdRZWFVbnNiNDRXLWRDSTYxa3NMWmNYRGNwUXM4MENNam45TGF1RXNWbnptSm1CTmlNMHVybU41bmdDM2I5aXhLV2NXOWE3WGs2ZmZRUjBjaWxfcF8zcTNldERieEtx?oc=5) |
 | Tropical Storm Chantal forms off coast of the Carolinas, expected to strengthen before landfall - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxNZEtzYVJIQVRISDE3TnY0LW5oUHU3M3NMQVdJd0hQRnF5MEVzUWxGUWZwOHJVQ2NsaVh5ZkE4cE1YOHBSa3h3VERVb29HWlRrSnpBcDFObjR2ZFdzX2Fjb1ZnMzVQS01JT1pHQllfSXdQZWxUU0RwMHlHZkNEaXlvSFhsc2Fjd2p2NGV0bU9JQUNJMmtJVDRINU9aV1ZsZEZkSkgzUjRkUkNkR01sSVJxVWdyOU1TbVQza2c5TlR1N3pnX3dSRGN1alF30gHPAUFVX3lxTE0ycVktdThwWEZnd2RnRjQ1SEtkNUx4V2RDeWR4M2o2RlVkaGR5d2tMczJleHRMUTBPX3hwaUZPQ1BCYzc5aHJsYmwtb081RXUySzFkTGp4RnN2RnpJTzlqV09Zc3Q4UDBWZUVxcHZYa2loeWxGdXNqTnItclBhZGZCa2JPcm5fOEFmRWZBZ2JuMTc2allaaVRqVmI4dlROUmJfNjY4WDluMkFYS2owYTdkR3RWV0VtTUFPaE05ZHNHNWhPMEQwcjUtUmlvNW5Mcw?oc=5) |
