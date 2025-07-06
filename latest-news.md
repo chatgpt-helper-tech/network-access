@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月06日 08:43:54（北京时间）**
+🕒 更新时间：**2025年07月06日 09:01:11（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | US completes deportation of 8 men to South Sudan after weeks of legal wrangling - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNRWdxeDZHRVpDYldlWUdaSHB3V29jZ3JfUUF3RjFWX1E3MUdWSDBkdExZdnZQZS1xdDJBUnUwUmxIc0hJeWw0bGZvdjA5QjF0YW5uLWFKWlVuNnJxX1k1elpvenBwa0RQYXR0Rm1zanpORDdDNkxUUzBYN0Njc3lXLS1yalFNa2JZWG1xM1pIQnNrRDZ0NkZUNGI1WWZQRVN1bjNPVGUzRVNVTkE?oc=5) |
 | Trump got $170 billion for immigration. Now he has to enact it. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPTjM1Zk0zSG9uWC1PWDRSM1NjSWs2YXhSaWVtekJCTW12cUxoVWducHNpSmpEQ2JrNUc1a2tDSk14cXZ2RUlCZGhZZk1EMU5PNDA2ZjMyUmJ6WGo0TXVvcHVBREZEemNwTS1icm5nZWRFekdlQ3g1bmpPZkI0S2kzbms3M3RucVlwWmNEdjVkSldwcEZKejdWdEppSHhzRWRISE1EQW1wMmMtUkI5eEQw?oc=5) |
 | Will Trump's megabill help Democrats win the House? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNX1dHNUtXWmVTdEhfcWhaVVhxUTFrbWdQbmVqd3pqemlwRzZpMmN4VEtvZ202bWlGRXNvYkN5Z2lsSlVmSnVwb3lLVzY3a2RpRU56dlJQS04xNU55MDV4R2NWVW1uODlHQ19RZnROLUlBdVZvaW1rMWFaWDR2VWVrRlV1bnI1Z1VCVlFrZ2RuMF80Zw?oc=5) |
-| Heat, storms, mosquitos the big threats at Alligator Alcatraz, experts say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOb3p3Z2hMa2Ytd1U4czNMNEJrQ1Roa0gxbjhpZERpeEdhbmItT2lRQzZxdDljdlpNcHB4WWYtd0NHb3dvb0NGR2d5dmk3LThGOTNPdENibWIyVEVodE5CUGFRSTMtVlpSTTMwQTJBU0Y2OXBlc1dSYTRDWlNwdjBTYS11WVRuMFNaZVotSkw0eVc2WDZFSHhDTnl6SGVBZw?oc=5) |
 | Trump warns a dozen countries will get tariff letters Monday - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiZEFVX3lxTE5VTmNhRDVlMkJsaWZ0aW1YVzhQbmdIWWNTVGwxUC0tX05ZMUZhZ3dtRUlqcU5HZ3kzcVU0S2FwZ0NyUDVGZGpHRmdNNEE1SkcyenVmSWpsVmZ3SlUtc0Y0Z1EzdFU?oc=5) |
+| Turkey detains mayors of opposition-run Antalya, Adana, Adıyaman - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxORmI5Szl4a3JicG0xZHd2OTFnWG4zaHJZVE5rTlhPMzVGTlZ2QzdOZzBoc3FsMnJOUmJWN19kMWxFb0JndHJMMWJTTUFOMnpnWjFaTlo0UFlyeWFfRXpBSWhHbTlwSWRSaVBZMUJud3pZdG5FRHFick8tQzdrbnJSOHdHVVcxa1B5RUdYUG11ZXZVNkhOZ0lJNHh6VWd6MGxOWnlLM0NTanNMZUFRbEJHVHlFM2t3WDUtdWNmS3ZkWUNxdXc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
