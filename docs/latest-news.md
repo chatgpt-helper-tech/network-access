@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月06日 20:00:30（北京时间）**
+🕒 更新时间：**2025年07月06日 20:22:27（北京时间）**
 
 ---
 
@@ -9,7 +9,6 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Welfare U-turn makes spending decisions harder, minister tells BBC | [阅读全文](https://www.bbc.com/news/articles/cq8z34x914jo) |
-| Search for missing continues as Texas floods kill 51, including 15 children | [阅读全文](https://www.bbc.com/news/articles/cr4w36lnvgyo) |
 | Israel to send negotiators to Gaza talks despite 'unacceptable' Hamas demands, Netanyahu says | [阅读全文](https://www.bbc.com/news/articles/c4g8p24zm3vo) |
 | Trump is using the 'Madman Theory' to try to change the world (and it's working) | [阅读全文](https://www.bbc.com/news/articles/czxww2kez0go) |
 | Ozzy Osbourne goes out on a high at farewell gig as rock gods join line-up | [阅读全文](https://www.bbc.com/news/articles/ckg565mk8jxo) |
@@ -18,6 +17,7 @@
 | How MI5 piled falsehood on falsehood in the case of neo-Nazi spy who abused women | [阅读全文](https://www.bbc.com/news/articles/c3w4nwdwywno) |
 | Sabrina Carpenter tones down headline show - but she's still at her best | [阅读全文](https://www.bbc.com/news/articles/cwyqr1q8ypno) |
 | Not getting a summer job? Here are eight ways to change that | [阅读全文](https://www.bbc.com/news/articles/crl0j9jkez1o) |
+| Why I kick down Peak District stone stacks | [阅读全文](https://www.bbc.com/news/articles/cd6g55w5l5zo) |
 
 ## 📰 Google News
 
