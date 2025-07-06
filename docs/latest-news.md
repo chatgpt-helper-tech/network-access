@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月07日 06:01:58（北京时间）**
+🕒 更新时间：**2025年07月07日 06:21:36（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Tropical Storm Chantal brings heavy rains into northeastern South Carolina - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOSkxFWjlCVHVvTGVvc3c5MXZMZGN4Nno0UExLbUFZemVrTmE4OTVQNV9qN0J1aUplRHRwZWpPaWltRy1zeUE0cHFna2ZZTmRiazUxT2U4aGltQ0tvczBoUm5zdlkwcDNGdi1IZzJSbHJDSUd1cFE3WG9fNjU1M0xYM3NlWXZGaExIRzRtcW8weUh4OGx5M2g3b041dmtLWVktdVp4V0RB?oc=5) |
 | Trump’s ‘Big Beautiful Bill’ has been signed into law. What does that mean? - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNSXhFVFRmUDNHU0F3UWpjOEFnUG16c0VyT2M0dk5Ua3oyQkUweTRuQUV4c3JROVcxX3pIM1J5MTdpQ1dtY083YUxVS1BVYUswRjZoQjFMZW16U0xmUzRmaEI3TS15WUZOQkFhSGNDb1E4LTRzTUVIZWpsOG5hN29zX3NLVFU3LUx0Z0RyaVVLNTNaZnE2N2pMSVE3R296aEVOTU5Vdmc4ZG50UUFfWklRSk5rVFN2aVl3TDIzLUg3aEN4WFM2VE5rUzhWSTJYZ0E3djZ0amxPS2l5WWtwdmgw?oc=5) |
 | Trump’s Big Bill Will Make Americans Uninsured Again - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPMkZxVlo4akJjUEQwc2NWX28tWGVWbTdtTmZ3X191OUdYY2NTOTREZEFvZXZTeGJvZGlyTjBuYjE0YnplMlZvUEZWMUJ4RmxsTVVRN0J0aFVxRk8tb3R2ZHRYZHRjN2EzUnQ5Wmd3UVRkT1ZEVkxRYjg5UWozU25iZXVyaWJVNjJ0Q3QwSFF2NHNJeG9sOHQ1UXBXV21HWENHdFVWMFdEc1Bxb040VEpsSGF1bGdVY1c3MFBqa3A4MUVSZw?oc=5) |
-| Commentary: Alligator Alcatraz detention center is the making of an environmental crisis - Orlando Sentinel | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxOY1B5V0VLdmpfb1ozYUxQYmVZS0dwN3prR2tnT2RfejJ0bkZZQTBKUElTTXpYakp2cXBJLU5RbUFOMEhxazR3MHc4eTZwYmJ5ZlVYbWxsQ0tsYXZUY0d5akZFZVlNWW1kYzMzWU1tUURRYlBqWkVNcWtaU1c2VF9jbmpZR0xkY2hyMk5URDQ5WllOSm9teVpKU3A4bFdjOFRxOWpCNlhJdXpLQjRGeUhTRFdxUjItZjZEUElBN0kzWkdZODY2RXFabkJ0SQ?oc=5) |
+| Alligator Alcatraz: American history from the dark side - Salon.com | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQVDR6aHNrbDVGTmlxcGhCUUIyTFdnZlNyTWp6QVNOZXpBcTVGUjVyTk1EMUNzWWZmZUdnWTVxeFJqeHZRQVc0eWdaV29SOWVPQzFHX2JfRVNJdmF5TndwRTdiSENrenZEXzhNdnJRT0ZfbWozZ2M5dC1ySXgyZVI2bzNveVQ0U0wyUU10RjN4b0NIdw?oc=5) |
 | ‘Tears My Heart to Pieces’: North Carolina Braces for Medicaid Cuts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFB1Mks3QTREd2lKbTNySlRfOGp4cmR5amphMlhVTm5pSVF4a2VoN0t5UDh1b3MzMUJYb3V6c0duNEFRUEc1c1NneDlGZUE3RDkwYzA3RzhaTzhzNmNYak1rVXlIenlCYkNvTlY3eUYtb2R6VWJPNVFXLVBNNA?oc=5) |
 | How Trump's megabill could slam the job market - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOTG9WUmwxSVpaUDdsMlZaNWtnY1BxMXRYd1ZDSlhWTFRGRURhc0ZXZ1hzaEhUSXVsb3pIbTEtcEkyc0w5R05adTdULVVPNlVNZHItU00xblk5NTJRTE1LMld2bmNzcGk4dHlwSVdhRm5FNzJuOW9DUW45b2RzWUVydndZeUVNcHRvbExqQnpRSnk?oc=5) |
 
