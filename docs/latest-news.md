@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月07日 08:43:50（北京时间）**
+🕒 更新时间：**2025年07月07日 09:02:01（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Tropical Storm Chantal brings heavy rains into northeastern South Carolina - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOSkxFWjlCVHVvTGVvc3c5MXZMZGN4Nno0UExLbUFZemVrTmE4OTVQNV9qN0J1aUplRHRwZWpPaWltRy1zeUE0cHFna2ZZTmRiazUxT2U4aGltQ0tvczBoUm5zdlkwcDNGdi1IZzJSbHJDSUd1cFE3WG9fNjU1M0xYM3NlWXZGaExIRzRtcW8weUh4OGx5M2g3b041dmtLWVktdVp4V0RB?oc=5) |
 | BRICS group condemns increase of tariffs in summit overshadowed by Middle East tensions - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBGbUtfbDh6UUVGSGVITXBjLUp0c2hUYm1qRktQTVdVcXcwUGo3R3JhYV9qdEhVNDhQUjY2Um9rdzZIUS1JR1lrZVdsYUhOZl9PMjBUS0JxV3JQaGlaNnVkN3lxeVR0ZENfUUc5NWZn0gFzQVVfeXFMT290allYSnhUbDU3cHktdHJUdUFpRnRXOGRncWZvT2NsamN3T0dsWXBzSzRMWnBOa3JySFBlOVk3VWJSTDhRNWhKRGUxWjNuSzUtaTZ3LS1iQlBISFZaUlFlNWtTdG95cWpKOFlmRGlzMjFHOA?oc=5) |
 | Trump’s ‘Big Beautiful Bill’ has been signed into law. What does that mean? - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNSXhFVFRmUDNHU0F3UWpjOEFnUG16c0VyT2M0dk5Ua3oyQkUweTRuQUV4c3JROVcxX3pIM1J5MTdpQ1dtY083YUxVS1BVYUswRjZoQjFMZW16U0xmUzRmaEI3TS15WUZOQkFhSGNDb1E4LTRzTUVIZWpsOG5hN29zX3NLVFU3LUx0Z0RyaVVLNTNaZnE2N2pMSVE3R296aEVOTU5Vdmc4ZG50UUFfWklRSk5rVFN2aVl3TDIzLUg3aEN4WFM2VE5rUzhWSTJYZ0E3djZ0amxPS2l5WWtwdmgw?oc=5) |
-| Trump’s Big Bill Will Make Americans Uninsured Again - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPMkZxVlo4akJjUEQwc2NWX28tWGVWbTdtTmZ3X191OUdYY2NTOTREZEFvZXZTeGJvZGlyTjBuYjE0YnplMlZvUEZWMUJ4RmxsTVVRN0J0aFVxRk8tb3R2ZHRYZHRjN2EzUnQ5Wmd3UVRkT1ZEVkxRYjg5UWozU25iZXVyaWJVNjJ0Q3QwSFF2NHNJeG9sOHQ1UXBXV21HWENHdFVWMFdEc1Bxb040VEpsSGF1bGdVY1c3MFBqa3A4MUVSZw?oc=5) |
 | Alligator Alcatraz: American history from the dark side - Salon.com | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQVDR6aHNrbDVGTmlxcGhCUUIyTFdnZlNyTWp6QVNOZXpBcTVGUjVyTk1EMUNzWWZmZUdnWTVxeFJqeHZRQVc0eWdaV29SOWVPQzFHX2JfRVNJdmF5TndwRTdiSENrenZEXzhNdnJRT0ZfbWozZ2M5dC1ySXgyZVI2bzNveVQ0U0wyUU10RjN4b0NIdw?oc=5) |
 | Bodies of all 7 missing people found at a California fireworks warehouse that exploded - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNVTlMenRFVkZkNTFwN1ZiemVRYjRXM3RMSnp5aDJuV2NDMVZ2N2R3cGFDdDAxbjNEMnRkYzNkT2ItLUtQWkpLcF9aWl9ZQXdlOTdxbnlFZ3huX0ptQTh4MGdGVTBCbkltUklVREU1THI3dXNUMU1fLWNYTDlEM01RQnhManZ1b1VYRjZYcG1JQXo0anY0RXNVZk94cnRHT0NxMmpVMTNvUk1sWWV1ZVdKMWZn?oc=5) |
+| Trump’s Big Bill Will Make Americans Uninsured Again - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPMkZxVlo4akJjUEQwc2NWX28tWGVWbTdtTmZ3X191OUdYY2NTOTREZEFvZXZTeGJvZGlyTjBuYjE0YnplMlZvUEZWMUJ4RmxsTVVRN0J0aFVxRk8tb3R2ZHRYZHRjN2EzUnQ5Wmd3UVRkT1ZEVkxRYjg5UWozU25iZXVyaWJVNjJ0Q3QwSFF2NHNJeG9sOHQ1UXBXV21HWENHdFVWMFdEc1Bxb040VEpsSGF1bGdVY1c3MFBqa3A4MUVSZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
