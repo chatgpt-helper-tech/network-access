@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月07日 22:01:28（北京时间）**
+🕒 更新时间：**2025年07月07日 22:21:20（北京时间）**
 
 ---
 
@@ -11,12 +11,12 @@
 | Young campers, teachers and football coach among Texas flood victims | [阅读全文](https://www.bbc.com/news/articles/c5ygl8lpyyqo) |
 | An orange plate and cancer lie: Key evidence that gripped mushroom murder trial | [阅读全文](https://www.bbc.com/news/articles/cdx554n1x0wo) |
 | Watch: The CCTV and audio used to convict Erin Patterson | [阅读全文](https://www.bbc.com/news/videos/c62gd705ly9o) |
-| Singer Jessie J reveals cancer operation success | [阅读全文](https://www.bbc.com/news/articles/c2lev0jrdeeo) |
+| Ex-hostage says Trump can bring home all those still captive in Gaza | [阅读全文](https://www.bbc.com/news/articles/c8xvd4jd0wvo) |
+| The Salt Path author defends herself against claims she misled readers | [阅读全文](https://www.bbc.com/news/articles/cm2z0707mlgo) |
 | British teen jailed in Dubai over sex with girl returns to UK after Eid pardon | [阅读全文](https://www.bbc.com/news/articles/cq8zdvzj5vwo) |
 | Paramedic jailed for secretly giving woman drug to abort their child | [阅读全文](https://www.bbc.com/news/articles/c9qxneddqn2o) |
-| Bereavement leave to be extended to miscarriages before 24 weeks | [阅读全文](https://www.bbc.com/news/articles/cz9k12w5j54o) |
-| Trump threatens extra 10% tariff on nations siding with 'anti-American policies' | [阅读全文](https://www.bbc.com/news/articles/c1dnz7gw92zo) |
-| A girls' summer camp swept away by a 'horrific' deluge | [阅读全文](https://www.bbc.com/news/articles/cg75n3k1k3yo) |
+| Singer Jessie J reveals cancer operation success | [阅读全文](https://www.bbc.com/news/articles/c2lev0jrdeeo) |
+| What early warnings did flood-hit Texas receive? | [阅读全文](https://www.bbc.com/news/articles/c0rvp24wvrqo) |
 | Watch: Timelapse shows how suddenly Texas flood waters rose | [阅读全文](https://www.bbc.com/news/videos/cgq7z93753ko) |
 
 ## 📰 Google News
