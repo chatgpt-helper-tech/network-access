@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月08日 20:43:29（北京时间）**
+🕒 更新时间：**2025年07月08日 21:01:45（北京时间）**
 
 ---
 
@@ -8,8 +8,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Three men guilty of arson attack on London warehouse on behalf of Russian mercenary group | [阅读全文](https://www.bbc.com/news/articles/cx2k37x91vlo) |
 | Pension triple lock to cost three times initial estimate | [阅读全文](https://www.bbc.com/news/articles/cy7nv3pdgr4o) |
-| Three men found guilty of arson attack for Wagner Group | [阅读全文](https://www.bbc.com/news/articles/cx2k37x91vlo) |
 | Resident doctors in England vote for fresh strike action over pay | [阅读全文](https://www.bbc.com/news/articles/cren3l8nj8wo) |
 | Norman Tebbit, key Thatcher ally, dies aged 94 | [阅读全文](https://www.bbc.com/news/articles/c4gk98ng4e8o) |
 | Heat health alerts issued ahead of third UK heatwave | [阅读全文](https://www.bbc.com/weather/articles/cx2jdg56gedo) |
