@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月09日 13:21:55（北京时间）**
+🕒 更新时间：**2025年07月09日 13:42:06（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Moment house is swept away in New Mexico flash flooding | [阅读全文](https://www.bbc.com/news/videos/cren2zq1y3qo) |
 | Post Office scandal had 'disastrous' impact on victims, official inquiry says | [阅读全文](https://www.bbc.com/news/articles/cz9k4lvg77lo) |
 | Why small-time criminals burned a London warehouse for Russia's mercenary group Wagner | [阅读全文](https://www.bbc.com/news/articles/czjkke22gv9o) |
+| Days after Texas floods, at least 161 people are still missing in one county | [阅读全文](https://www.bbc.com/news/articles/cql04vz0q45o) |
 | England and Wales aim to avoid double elimination | [阅读全文](https://www.bbc.com/sport/football/articles/cren3gwzxy2o) |
 | School meal costs mean less meat and smaller portions, caterers say | [阅读全文](https://www.bbc.com/news/articles/c0k7dv1mnpvo) |
-| More than 100 hurt as wildfire rages near Marseille | [阅读全文](https://www.bbc.com/news/articles/cp8mz44j6n6o) |
 
 ## 📰 Google News
 
