@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月09日 10:00:47（北京时间）**
+🕒 更新时间：**2025年07月09日 10:21:05（北京时间）**
 
 ---
 
@@ -14,25 +14,25 @@
 | Post Office scandal had 'disastrous' impact on victims, official inquiry says | [阅读全文](https://www.bbc.com/news/articles/cz9k4lvg77lo) |
 | Why small-time criminals burned a London warehouse for Russia's mercenary group Wagner | [阅读全文](https://www.bbc.com/news/articles/czjkke22gv9o) |
 | Jota's car was probably speeding before fatal crash, Spanish police say | [阅读全文](https://www.bbc.com/news/articles/cn4l1n45l1xo) |
-| Steve Rosenberg: Russian minister's death serves as warning to political elite | [阅读全文](https://www.bbc.com/news/articles/c0l49310z2go) |
 | Jury-free trials recommended to save courts from 'collapse' | [阅读全文](https://www.bbc.com/news/articles/cm2m808kml0o) |
-| Trump and Netanyahu meet for a second time amid Gaza ceasefire talks | [阅读全文](https://www.bbc.com/news/articles/ce3newwl1zeo) |
 | Gemma Collins weight-loss drug advert banned | [阅读全文](https://www.bbc.com/news/articles/cvgnr0xg7rno) |
+| Days after Texas floods, at least 161 people are still missing in one county | [阅读全文](https://www.bbc.com/news/articles/cql04vz0q45o) |
+| Trump and Netanyahu meet for a second time amid Gaza ceasefire talks | [阅读全文](https://www.bbc.com/news/articles/ce3newwl1zeo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Two Found, Two Missing: An Agonizing Search After the Texas Floods - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1vdy1ZVHZDYkxOcWgyQnJLVFJhYmZ6SVN3cW5qWWtfMzVXU1gyYnZudm1lYVgtWHNFbHp6bFpaY0EwWEF1OWtiMW9uN0k5czF2cGVRY3k3dG5fcFdNVzI2SGtZSVdSWlBBNk0xTlNmUFVacTRWS2lIWkpscXBSdE0?oc=5) |
-| Supreme Court clears the way for Trump’s plans to downsize the federal workforce - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNOGhsOTVLNFZaZS1OTW5TRFE0cEpCNlF3cmZmNkpiUk9HdmpiSGVHVTBUemlOX21FSUlXVGhFUzRmVGYtU1NCczVlaGxnR21ZcER4dXVDSU5yWlJNVHF3VFF3Q2hVX2tWM28tT0VWMWNkc0lkMmVqTWNCRFdSZzYyZl9HcEVMS0JZenNyaXdHUENBTlRYcUFF?oc=5) |
-| TSA to end shoes-off policy for airport security screening - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQdVRrRl9kZmlBcXBEVTJfSHBkemdZQm1SNWdMY3V3Z1dtX0lQQmdPNDZ3aEVZT3FlMmN6eERnVlJqa0Rfdk9tWVZMTXAxWmNURW9UdXAyQUVfSkh3Y3EzaGZBSEhibXZ4cHVOelQzVmlFUUdyb1pJem52VkZuUDhEdm1zNzNUdWd4T1VQeVZTTlEwR0JBaU0tMHdSOErSAaIBQVVfeXFMTkNITld2M2RibWpxMDAyLTM5YlVaZTNVdlBwVjFJLVV1Ulp4WnVoTTBCWGR6ejdGdkxXOHdhUTVXd052WU1EZ2gyY3VudlVGM1lIYjF6VklXVHRFcUdXclBGdDZoV055UW5WSGlPdWdJa3U1SjVBYnFoMVBTN2lmUWRSSUtoT1FRcmRQM1FTTFcwM1EwakNHYWlwUjg1Q0NRWE9B?oc=5) |
+| Supreme Court clears way for Trump to pursue mass federal layoffs - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQWnV0SFNRUERZMlBqT1dtb0ltZVdESVM4cUROeUVXSkxJVlhFR1drMEtUX3JFZldIaFpUZW5XVDZRRWNES3Q1VHpUcG90bnZjU2ZnWC1UbjB5ZDJrdWhGdmY3UGlMaVRiazM4SEVSODBLMWpmLW5hbUctU2F4bmxaWmdVcThoMG5FX2MxUURfVU9HSnZRT3pLUmJfWVZ4OFhDSHVnSmQ1SFdvV1VDTlNhRzgtZVVIcHVPX3hQTVo3QQ?oc=5) |
+| Homeland Security ends mandatory shoe removal at airport screening - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPYS1ZQ051cGhscmxsOUNNb2lEVDU4UFRyeEtyejVTMnN4ZFBFbHk3OF9xX19OYWVtU0lROUZoQlJIaERxeWM0enZ2b0w0d082aW5Gel90ZHhWZ0p3em9hZlJRbFhSQmJMejNyaHd1VnF0UDV2enR6dV9vYWRMSUdkNlMyRHRZeWlNalVjUFBkcXRWMTVlSjJUbzhfRTJMZjJmVnBqVFlzeEV5TmVqTTJRUGRWeGfSAboBQVVfeXFMUGRZWVUtNFZoRmNXU2Uwa0NYTmJza1pZWUthOHBCV0hvVU1LX09pS2NROUhOdzY1T3pXTUFNN1FWdGVPYlYzeEFVUkNjMmxvdUZHcEJTTDA1NkZhdEZLSHk5NkFqT0Z4ZTltREtkTEswR3ZFWWRSN0k0UVM2d2Y4blZIUWJiVk4yekV1NGNDX3oxQnpkMGRSTVl3SkZQLS1wdGFqbTRIRi1kNUY3Q1pzTWtTNnJTVUNiOGZR?oc=5) |
+| Trump delays tariffs as the rest of the world plays hardball - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1BVkxEajZqaVFXMEZsMHF3Q2hHQjUyWDE2Q21ibWxBX2pGVWlFRkNNN01TNVlVcUhaQTY3aEoyQ3E0MF93Z1RYdDRQUFdrRnZqRFBKQW5BYjk5Z9IBX0FVX3lxTE5EenJYZHBJemlHYXJfMGRlRkpMR0RHazlzRGVvcjh5TUpiSnNwRDlSRDZZOS1QVTI0Y2xmVlQzZ3loUVRpZDA4VVpSVkV0WFE2NVVoV050X0V2NUFkbnBB?oc=5) |
 | US only has 25% of all Patriot missile interceptors needed for Pentagon’s military plans - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNQkl3OXA1ZHl3T3Q5Y05CbW1CeHdmRTdPdUN2QXpFZVVrR3NRT2RrbU1KcTE1SEVBT1NZNWdDS0J3SjJYbG14MnhFZTVZd19rd1dxeFZqX1JZOEE2N1VvNDNPT3dJYWZncTdTV2FnR1VsSnhQT2pHanl6WkdTVnFwUWdQdVZQU3dJMGJWaEV6Z2dpMGZZODBoNGJCcVluSFE4bXkzcw?oc=5) |
-| No TACO Tuesday: Trump insists Aug. 1 tariff deadline won’t be extended - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNUmFEV09JZERiWndfYjJqLUJMVUhDa3JRMk5XVXBFWElDcVRGeDExT2c1QTFMWUh2a0ZIaHR1aEw2RHB1cmI3WTFMdW0xbU9rR1oyYTVpdEZOLUxUYXVBX3F3MVJTbzE0enZ1bnpLRmRhX2NrX1prdnN2S3JLa3hLdW1JbzAyX2s?oc=5) |
 | Musk, MAGA torch Trump administration over Epstein investigation - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQT2FrcVBWdndhOExiVUplcER6R2l0bFd4UVNQdkZpS2pkQ0FJSkFzTGMtZmIwT1dkWWVaWlMzNkhKeFBYc0F2Qk9tcUFDRlktT0ZzQTFTNnFPZHI1NmxobDZSSzVRaFhPaVdPVlBqYVNCQ1kyTG9ZOWN1QmJGOGYtUC1vS2Izb3dubFZmWDB0bw?oc=5) |
-| Ten Individuals Charged with Attempted Murder of Federal Officers and Firearms Offenses in Alvarado Police Officer Shooting - Department of Justice (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNX1RHVEN0alFhOVQyQjhqTEJDNFcxdDBZSUxlOVNjU3htUDRiLTI3a2g5bW5hM1BZQ0ZMZ1pOeXVyOUxiSkhrbWw4dy1FY0FWbXRuVDgwejczNUdTSFMyTGFFODVxSDJkZXkwcWJzRFVrOEtWa2RxS09CdDRSS1dnV2NLbkVrMTI2azlXUVRfMWhnNWlOZXlQRHNheEIzek95QnJabGhydWo2QTF1WUtwVlgzeDVoSWs?oc=5) |
 | Commentary: In an L.A. park, Trump unleashed his latest show of farce: The Battle of the Photo Op - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNeENiakxDLVNpTmlLRWpCdER6M0djakNudG1VTHZwM1lNSHRPX2o5RkZIR3ZFbjRoX1ZFbXhXajRqUFNSclNJVmtobXByelNLdFBicGVSdTdyUEZzNmN1dGxoMUFTQnA0T3owZU1EUDI1aGt4MnNmRXZKZllzZGgxYW4zT0g2bFBLc2N3WF9OM1ZLRUN3a3R2end3?oc=5) |
-| Trump now backs tough Russia sanctions bill , Graham says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPc25HVnpINnlaVFAxaHRraHhPM3prd0FmTWVaSXZZbGNEejRIWXo0eDFZVk1TOTJTMVE5U0JGVzFYMHpNTXpManhMWWt2SGxhYURtWVNNamdRZkl5ZWhkdDQ0WmpobmNYTFMzN0J5RkVaTkpoa3VjN2dSYUhETmdLYjllUHJQVHZkSmFxeUlHakczMm5JYXhtZklCbHhBUmxqbFNzejlfT0c?oc=5) |
-| Trump says 50% tariff on copper imports is coming and threatens 200% on pharmaceuticals - CNN | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTFAzcG5POHVnU0xxd3pCanRJSTZtS3RrSUo3Tm5peVhBWmVJdGVwLXV0dmQ4eS10WkY5c1hnY1lKcVIxdWRyQWJxZi1aQkpla200UjREMGFBQ2tocTlxTGROYmZQcHdYakxoeWVj0gFwQVVfeXFMT3BPOTBkaGFoRk5jVVdMTzYwemp4UFpFcHBOVkhrMEtSRlFnQlFEc1UxN0p0UFNZNVYxQnFpal9UbENaNkFnZjkxd2RHQ1ZQUXMtSnlUb3RHTE51NGVsZFI5ODYyTHMwZWZvY0lHM3Jieg?oc=5) |
+| Trump, finally fed up with Putin, teases more Russian sanctions 'at my option' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNVFF0MnB3aUZzaHFpOVdxZERnTGNPVGZvbE5jbDlxMktWRGlLVkIwZmloaFVadFFrb2VKYUpOVmQ0dXk5SGlFVmNxYnhKMURyT2hZZ0Q4RjZjUUI3Wk9jb016Q2pIWjJjanhYSnNTdDFpbUxVcUxpc0MyN3RpallzVmY5WmM?oc=5) |
+| Stock Market Today: Dow Slips 100 Points; Trump Unveils 50% Copper Tariff — Live Updates - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNZlluM2txRUY1MnNXUE45Rk9QOWVJcmduaXVmbDVQMWFfMDVuN01GTTc0SXFQZHNsYTJmQXlKZ01CaHotV3FOLUtubWlQYmdsVHFxS3dGMnN1dVJGS2RkNVBFREtIclQ0b0RhUk42bmZKbnlTNFU0Q2R1Q0c1SVJwaFBDYUl1bFU?oc=5) |
+| 10 Charged With Attempted Murder in Officer Shooting at ICE Detention Center - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNdGFSM2pVNk1uTWptX0xXMDNTOHNEcW9wS0pSQVpEdU5Ja1hKYzNkYVFwSnFOeXk3dlR1bkE0WnBsNTNiS3dxcmNaUU5SaTI4MXVLNGcwWVdwQkVUWG5FZ0JVNmFfT2h0c0dLQ0FuRXp3T2xudFVtMGY3VXZDbVdER2gxRUFSQ2M?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
