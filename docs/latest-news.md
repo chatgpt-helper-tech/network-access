@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月10日 10:42:03（北京时间）**
+🕒 更新时间：**2025年07月10日 11:00:13（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump administration targets Comey and Brennan with new investigation - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQcDZtVjVZc0dzWVUyOWhIVzY4a1M3NlBBWEVoalRXZlRtUGt6VzhtcUkzcF9BdGpRckZUd3BxRm1XZlNsdFVhU2wyUThid0FYZmswRHR3bFZGUWFkSkVmZTU2UWdiTkdmSWswM0FPZlI4c0lQY0VPS0hkTHp3ajFjVVpEWk9wdmpTZ3BsaFdXUWF5V0NJZXU2N1ZTYllCZmZxQ204U3NNeE45b3hFQ05UcTV3QlIwXzE3TlZXLW5GdTTSAVZBVV95cUxPSVFfUmdOQkQxaGRJZjk5MmI1TTBvQjl4MDBJTE1VYzRDMzktNGtPVE5NT2xHV2c1YTJrd0tXaUY1YUNJaTBpVFRUVU1VcFBWUDA0ck9UQQ?oc=5) |
 | The Trump administration's shifting explanation of Ukraine weapons pause - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQQk82WVctYzhEQl9XYnpfaWdHYmphbFZsdkZqMGdQZzFONjZhbHpNVXg5U0E0N2N0TWxWNy1ma0RNZmRvcloyRkkzaGZDRGtoTGlZWGk5ZnBIS1hFZU8wSUZxbDYyb0pWWmRFckt6bWhmTWp6elpjZ0ZCVk5VQ3I4akxkc093YU8zQUdIZnYxQjJEWk1XOTFDX01iaG1MQ2l6UzZRa1VhQUR0bVg3b1Z4Z9IBtgFBVV95cUxNczU5MHlpWXZxUU5sOFdmbHFWQzJvUDQ4X0t4dkh3Q1ZfVXRHbkkzRWxSYmZOcjRRWkZnLUJpNm4yanEzdFhtZTAzTlhlNkdkRVhvbXVBdGtRVkFVamFHcHpyajlJMWNBejE2a2Q1RkoydEFmbmYxN0hEZnh0dDdTeWtyLVVzcURET1paTFctamdQSmNNVk1tei0zT29RYm9NUy1XVTdRUmI5RkpLcUp3MWtSTGFsZw?oc=5) |
 | Supreme Court refuses to allow Florida to enforce new immigration law - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPV0NOLV9zMmI5M0pTUFNCSWJyS0ZyaGdVaGl0Y3NiZ19WOGMzNVpvblRJLXMyNTZFRWxMLUdiTjQycTZlRW9helBNQnVpYThqWGVpOVRaZjhEYlMtTGZNanNuUUNhSjh0N2ZiR1hydGtZYTBVTEItZGlQTlplblNJWXljVzlVV0cyaFl0NmthUnpZVEIyWXgyOGdzTmV1MWEtdGh3WHJJeXZSN0MwUkdNaQ?oc=5) |
-| Trump praises English-speaking Liberian president’s English - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1HeG1nVjBPakdVN2xjQTJ4bl8yb0JYd3pUaEJKN0QtZk5RVlBTSGFfaEpiM1Q0eTBzekpkX0k0Ri1LS3kyQWt4dDhaMm5ZZDhrOVdzUVc0MnpBbXdnNlVHazlGNDdfa0dEd2tlSDVoTHNBRHBvbjZXMGdhdl90dw?oc=5) |
-| Trump taps Transportation secretary to serve as interim NASA chief - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNU3A3NDkwOEdrNDhtYkpyakpjUVdwaXYteWNwOTRoQmpkUW51dGYzVldEZEQwbUwzWE5CamgxNXQwa01MSTAyZms5S25UWE1zQUdaQ1JtdVJaczZyb3pHdVZOb0hhOFR6T1BLeFNrVzhWWnV2MTJJSTdMVkpZTWswc1pFOTdQdWY5YjBMQU5Cd256aXdUMWU5azVaZVBzUU5H?oc=5) |
-| New Mexico governor declares emergency over deadly flooding - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNdFJCaDBjamU4VXAxUlE3WXFEeG54b21JeVhjRWYwNWZ2X1IyOGxJZWFxU1dLSE1FU0lfbUJoM2RNZ1FMMnM1Nm1OVUFsRWhxOFRscXdMYm5YajB0U1J3cWk0S0Q3NFkzaXpSODk1ZnRQX210OG5XT2EtR01CaEdxUDVPaw?oc=5) |
+| Clinging to a tree, and praying: how a family survived the Texas flash floods - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxNUnhGWUlfQ0hSVXNjYUkzTHJUejAxN3dkbnVkRVcxX2ctQnBvbXRHYTA0WTB3ZGdYZ0VJOFR0UDl6VlQ0cE1SM3R3WUFhZ2JHeVhvaGt5NlNLQ3lmUl9LY2VRbHppMWc1Z0VRdWNRMktXQzVycGxod05peG1NRFRvSTNGczRCOURIbHQ3bkJ2cTJJdl9LU05ZZllzcWpRandmOUJ0bGVHUlpoMzQyellGZG9rV1BFWGw2c1ZHMw?oc=5) |
+| Trump praises English of the leader of Liberia – where English is the official language - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNVThUem9VMVQ4V0NyeXQ3ZjlHR0JZUHQ5WFJGemVBU01MVi1YVk1XMnlIWE90cmp3TDlXTGNjTXFRTzdxOGJ4eGw5dGRheDlEZDc3TGFxRDVJTE1oWVQ0UnVxR2xSX3kza2ZTVVNvMmp0OS1vLUNzTmlac0VwRGwzUU84QU5GU3M?oc=5) |
 | Federal workers fear Trump will fire them after court ruling: ‘We are toast’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQSmxhU1pLb2dRU3c1bTFVT2czQjBiSXBrUTdpMHd3N0oxVFYwMFkxbmVzd1JKVUdmanpQRHJFYjVXRmRaVnFmOXVObkdWU1BUcUdJTFVzdzQtd2lMcTZvb1ZMVFF6c3ZxQXN2bllybG1LR3NaVnZDdU5sTm9JNExJYks5cVlFM1hQN3hTbE54Wml6RmE0TXYyOEx2bVA5dDV4aFE?oc=5) |
+| Hamas agrees to release 10 hostages as part of Gaza ceasefire talks, says negotiations are tough - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxNOVQ4UnAtcjhCTHItWS1ISml3a1cydFJHLXZmSGViWmExQjJGd0EzbTRfd3FORlI1cTNudXNvVkw5RXp1a0xjUkFCQ0pHUHI5LUY3aUxuVDZ0YnA2Qm12azQycE1rTFJlSjB5MUgyaUNsS1dTY3FNbW5GZVZCZWdSM0VlYnVTRFZsWi0tWTVvMjl5NUxNNllQZld2bU94RGFRVUZNMlAxLUVtOFY2TWRQelJsUXI0TERSZmRGaDNKWkZ3X0NBVFBDN25IU0V4MW8?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
