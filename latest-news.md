@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月11日 02:22:00（北京时间）**
+🕒 更新时间：**2025年07月11日 02:42:49（北京时间）**
 
 ---
 
@@ -9,6 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | UK to return some migrants to France within weeks, Starmer says | [阅读全文](https://www.bbc.com/news/articles/c4g2edx410wo) |
+| 'One in, one out' sounds simple - but the deal could be complicated | [阅读全文](https://www.bbc.com/news/articles/c8d60djgqndo) |
 | Gregg Wallace faces backlash over autism defence for misconduct claims | [阅读全文](https://www.bbc.com/news/articles/cx24lxl85wyo) |
 | Children queuing for supplements killed in Israeli strike in Gaza, hospital says | [阅读全文](https://www.bbc.com/news/articles/c4gd01g1gxro) |
 | Woman and three teens arrested over M&S and Co-op cyber-attacks | [阅读全文](https://www.bbc.com/news/articles/cwykgrv374eo) |
@@ -17,7 +18,6 @@
 | Ukrainian intelligence officer shot dead in Kyiv | [阅读全文](https://www.bbc.com/news/articles/cx2l8kwd13wo) |
 | School suspensions rise to nearly a million in England | [阅读全文](https://www.bbc.com/news/articles/c784ezdmnp4o) |
 | Police officer punched in Manchester Airport brawl was 'absolutely terrified' | [阅读全文](https://www.bbc.com/news/articles/cvgn8dz3l0lo) |
-| It's too easy to claim benefits in UK, Badenoch says | [阅读全文](https://www.bbc.com/news/articles/c80p1gdvyggo) |
 
 ## 📰 Google News
 
@@ -26,12 +26,12 @@
 | Kerr County struggled to fund flood warnings. Under Trump, it's getting even harder - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNOXJIcVNTRkdOWE1mN0hZcklncDU5VTVyZnUweWxha01SWWJ3S3pkQlVjLU1GcE16VE1MZDdhZ0FWQmdDOEtFcHZSanlDZkNrUkQwOFotM2tRX3JiZ0pZY3JEQ0lqSUxOQnFhSXB1MXBqVG1hOWdkSVVsTG5HRno1c2VQcUxOQQ?oc=5) |
 | Judge blocks Trump's birthright citizenship order after Supreme Court ruling - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxNWHVJS1RCTmxfbG1qM3FTR2VCSXJuUmNTYXlHVUhYVjNEbmRyd0tzQUJ3Q29MUzljR1JUTGNfZm1Qa2pXdWVpems1RnBPdkVfV2tvVG5LS3h5VXhWVS1LeVpOd09kclZuRXVKSWZHbm5HOGEwQWVUQnhUb205X0stMldkWjZLRXlsMDc4WTNBdVFlendmQ3lLTTZXY2NGMjY2MGdKQ1hPbldGN0hkbDRCakhUQ2VGSnpxbm9aOXRpemVzQllELWR1aUYyNA?oc=5) |
 | Deadly new Russian drone and missile attack hits Kyiv - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1uUWpYNnZrQWxnS0ZUelVxczBwWHpZbWY1dlFpVkpGSElEZUpXUENwejNEQldpQl9TQndFV3p6Nm83NUFPcDZ5cnROS2FDcWpSWmFlZDRGU1lSd9IBX0FVX3lxTFBOVnluSmhUdjRVVkoxQmxSRG50MEdJcjFHNFp5YURMNGg5bTRkYmZkYlMwNlk3UVUyeEQwMi1JUS1HT3pHTGN4QUNubmg0NjIxUF9WS0JEdXFFLWstR3Jj?oc=5) |
-| Rubio slams Russia over 'lack of progress' toward peace in Ukraine - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPN09weVRTVVBMYXIwSUhFWlFtRlJDQTh2SnJCSHB4c3FnS3VORGw0UnVDU0ZxRDlnYVh1YjFJSDlON1lycTR2NnB0MVB0d3piX2thaG5wMVlNdXZWbE5ka28zZ090S0dlOTYyejdaQmNYMTlTSGF3S1N3c0RxSWo1WnJ4Rnh2UQ?oc=5) |
-| More than 200 migrants picked up in Channel as Starmer and Macron finalise returns plan - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5zTkgycTJlR0NmbHROSVRKOTltMVl5MENyQ3NXVzR4RlliaEpYTHFCTUtxWEpGQ2xWQjlUUW5kRmZRT2IxMjl3aUIzM0FUQnpZdnBfOQ?oc=5) |
 | Children queuing for supplements killed in Israeli strike in Gaza, hospital says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1yZGd0c0FlSmZ1bEdRblZqdmVPMHB3bjhiS1BqelF0Zk05UDMtVko5WDduQUlVUDhFZjRPZ2otbXVuT05OTXVtb3Z3b21UQmdlTjVFdElCM1djd9IBX0FVX3lxTE9GMFQ0VGJqcVVnVDlrUm9tcnk0WlVFZUZwbUNLLWZaUExBWXZHdWdZcG5yYi1HbDJkSkUxTElnd2lfLW90dFlvaEpJWXRnUU1wNGtEZUVLQjFEY05DLVBz?oc=5) |
-| Abbott Asks Lawmakers to Redraw Texas’ Congressional Maps in Special Session - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQRmtZdDdRYmg2WVN1NFpzaXFsWVpWNklVZVlqSlh1T19EcUNraHBDbWNmbmo5X1RyaXFuSE9xM3dCTm4xb19KRlVTa05lSUhvcFU3ZHd1T0Q4cm95UHBScFZLVlhZNDkxRy1vRUZoQmt6akY2VFcwOTg0Q3N1anktSFZXY3Vqc1RzSUE?oc=5) |
-| FEMA Review Council digs into agency functions, responsibilities - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPNzc0T21HMndLU08zemlVUXU2Qmpfc29BMFNXbUhRZkJSQU5oYlR5ckxDcEpMdlRIVjV3SDl0T05MckZ0ME9lLU1EbEJvdTVaeGtpeEFZS2YtV3hvYV9nb2tCMllqdWctMkhRUkZKRkFnczhrTjhTWVlCVzFWYmNrV0dHUXJfYllVNkxYRFctcUpIN292Rkd2dU0ta0x1Zkd5TGJQaF9rV2UtYnNpVmV0Q2JoUGZOVzZnMW04MQ?oc=5) |
-| 27 workers rescued after tunnel collapse in Los Angeles - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPY2pjSUhveDFucFVnQ3VvSWVlVHRCTnpYYUQyZy0tUTFvMzF3NXp2R2dFdGdSbXMzRTVDOEozdU5NZ0ZkS3RXVFZMRzdLcEdieW1kSUl1MjlndzVIbklmSGNvdWNJV09tZ3lFSms0MDB5Tm4tNG1CUFJJQnk0UU0tQlhwNGdqbkFaNjhLSGQ2dEZoQQ?oc=5) |
+| Trump Pledges 50% Tariffs Against Brazil, Citing ‘Witch Hunt’ Against Bolsonaro - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQTm4yX2FTT001MzRNRmdkbDB2blYtc0FrbHhPWkFDeXpXM0hRSlNPZHU4NkhfOWgtQ29nVHo3MlBOakdWbWNCOXlDY1N4ZzJyMjgxT3dKV1B6MnE3NTY5OGtuc2Y2RER3d000a1h4VUxzLW9qRzdGcU5zczNVeWduVXRKd0puWTN2REk1X092bTVPTjZwdDFlMjlR?oc=5) |
+| Verified images show Red Sea ship sinking and aftermath of attack on Kyiv - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1ycC05cmhmTFJKN2RLS1NTdGJWUm5wa1I4SDUtQnE3NFlTMzFxdnZ2MjVoQVJsbXJULThsT2xXUllzYnY5dG9SR01PbmJZaWZyTnRRYQ?oc=5) |
+| Trump Administration Is Forcing Prosecutors to Ignore Law, Whistle-Blower Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNRDRDS3VZZGd6c21Fa3JPNnd4cmJ2SkxWNE9JMzNKZ2EtWlBzZzNkMVVkbHEzcTVmZExtNFY1UzVjNDFjQkdHUHlfTVM4amlEQW51Y0I5WW4zeFVVMnNCdWpWMzFLTGdtX0NORGZod1VjR0xfZEZ3a25YSHBIanptWDJKSEg1aFUxSWx3R3BMX0U3N25lalJldGxsVFFVZEF3LTdz?oc=5) |
+| As Texas Republicans prepare for mid-decade redistricting, cautionary tales loom from the past - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPQTRjM0VhRUl5ZlhHTTVTVnhjd1h1SmVlTlJSbmQ0aldKZVJ2ZmgtX3RZYWdyV2M0NHNfQ1hxY0t5N09uQkRBVWRYcUlpMlhYWTl0MEhtdUxMMjlwaDNtS1VwU0NMaF9ENmdrbGlSWDNvbkdMV2p0YVdWODlveTlmV2NFOTFnZWFaa0NfY2R1dHRacXRvWVQzVzdpZUVUQ3AzR2V3X05CaVhHSy1a?oc=5) |
+| US imposing sanctions on senior UN official focused on Palestinian human rights - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNbjZlVV91YXJKQ1RwNGpPRURHUkVDYVVZbTYySE1qNVo2RG1RTko3TW9zaWVhS3hzY0Zna2VTT2M3U3M5dEtFbTJsbVl2b01oSVRCYTZ3OGxyT2ZseW8zbkNrSTYzZVp4dHhYb3JjYjM2YnFhQ0NURkp4UWN5cHpCSGlsUkRDSGwtLTlpNDVvZDdVYzjSAZgBQVVfeXFMTUViWldhcXV2SV9xbGZXYUdUXzdidVZ4Mk1ZcnBXMi1qZHl5VXZJdU8tOWNnUHJjcGJJcTJoaWVNakNwRnJ4ZGFhYTNjUFJkbFhqWDZnOXljT2czczVfdEtRSy1ZeGJLYnJmenJSZlM5SElmc2pLZ3VxeXJTSmN3T1ZQQ3ExWEdXQ04zV0ZkMmExZ0JIX2dTY3U?oc=5) |
 | America's Top States for Business 2025: The full rankings - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOM2RuSXY3YS1mVEY1akJ5anZnZWdFbDJLLXZmVW9UUF85UlR6N0FQQjhSZERGSGtEa3RCOGdzcFJTczB2VTFlN2N4Szh4Y29MN0xKVzQxUUNXMUw3MmIzMHhqeXNCSS02aTlMSHY3emR3S0dTMEh1RjMyV3E0RC02eHhmeGxQZm9zaENkaURNOHIxaEZyclVZ0gGcAUFVX3lxTE9MNjBDc1FCNmpDT3J4MEF0d0ZPcTFtLWdQaEhXY2U1RVNXdTJVcHJBNndyWWZJVWl5UFFxRlhWdXdRTFQ4emExUHlyRkVEZ1c5M1JmaTFWWlhTbjhRSDBPSk85THNKa3Q0NHN5T0tIU1daZldOSC10WHM4akpBZTRTbXhTRmZzdDByckF2UFVxQXlVZ2t5SEdoTnVXTQ?oc=5) |
 
 ---
