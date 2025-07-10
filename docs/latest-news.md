@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月10日 12:43:12（北京时间）**
+🕒 更新时间：**2025年07月10日 13:00:59（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Deadly new Russian drone attack reported on Kyiv | [阅读全文](https://www.bbc.com/news/articles/cj3rvpe06rxo) |
-| Ex-Tory chairman Jake Berry defects to Reform UK | [阅读全文](https://www.bbc.com/news/articles/cx24lll3n99o) |
+| Chris Mason: Reform's momentum is making the political weather | [阅读全文](https://www.bbc.com/news/articles/c1e0vq4gxeno) |
 | Holidays to Spain, Cyprus and Turkey soar in price | [阅读全文](https://www.bbc.com/news/articles/clyndp097gro) |
 | Trump threatens Brazil with 50% tariff and demands Bolsonaro's trial end | [阅读全文](https://www.bbc.com/news/articles/c784ee81y4zo) |
 | Ban some foreigners from sickness benefits, Tories urge | [阅读全文](https://www.bbc.com/news/articles/c80p1gdvyggo) |
@@ -25,12 +25,12 @@
 |--------|-------------|
 | These are the Houston-area victims who lost their lives in the Hill Country flood - KHOU | [阅读全文](https://news.google.com/rss/articles/CBMi7gFBVV95cUxOdkxtdDdIWWo4SExPa21WVWlRTENfYVNSM3F5cjVfam4ySkEzWmhxcjBGZVlDRklwZ1hkeUwtbGRYdllKS1pXSG5lOHN2a0ZuUjNXZHVIaDIwRlVTVjUxUERkWVhGUmRaOElBUzZEOE1adTBBNS1Oa0tDSHR0Vm1LTXptaUhQVmRSdThHWTB0MlkybnFfSENGSEZxR0hla1lUMTZHNVV5T3l2Nk1wc1c0LUpHQXB6NGhNRkxSRFI2Z2Rta2VBQWYzZ0k1TTJDREdOWlBsY2YzaGVnNklYOE9hRENZN2g2eTAzRklHdDVn?oc=5) |
 | Trump threatens 50% tariffs on Brazil if it doesn’t stop the Bolsonaro ‘witch hunt’ trial - CNN | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTFBnUlFCelRIRWZsTkhYWjVDRmtyaFpmN2FzdXh6amFJbUo1d3dHZkVBQkZpWHBoOGJMYVE3SW5SOVBNcGxXMjFXYnFqUXJHa0pfRmpJN3VoazhjZkxFV0psWDU0RUliVS1NV1Yw0gFwQVVfeXFMT0g5ZW1IZFhTaVBrS0E5b2NIU3pxN3FVbGtzclpnUlhxYVcyelQxY0wtc19UaGNhb2g1WTJPeklMTjg2SDF5V1FDcEl6clVrTkZubXFENjJJVW80MnIyMGNicC0xUzZDdWZUWF9kT0xxMA?oc=5) |
-| US military delivering some weapons to Ukraine after pause - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQblpaeG1kdklwY3lnMzU0NFFNTERtMy04UDE0R2g2VUtCN0V1NzdoVHljc1hFcFhkRkZ1UHMwcmJYRVloQ3Q0QUJ0dXRVMVB2dEJKWWpGY3ZhYTV0OUFoaTd5MmV6NXpiNWVlQ25mUUdmaXdLZEVJTjlwRWhlek5WTi1BVGdHbWI4NFhBTmt2MUlxc0x5VU9HQXBsMmYtMGJ3eWx5UVJNejBrajJWNHVOcjV6ZGtPcm5aaGc?oc=5) |
 | Kyiv hit by new massive Russian drone attack, Ukraine officials say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1uUWpYNnZrQWxnS0ZUelVxczBwWHpZbWY1dlFpVkpGSElEZUpXUENwejNEQldpQl9TQndFV3p6Nm83NUFPcDZ5cnROS2FDcWpSWmFlZDRGU1lSd9IBX0FVX3lxTFBOVnluSmhUdjRVVkoxQmxSRG50MEdJcjFHNFp5YURMNGg5bTRkYmZkYlMwNlk3UVUyeEQwMi1JUS1HT3pHTGN4QUNubmg0NjIxUF9WS0JEdXFFLWstR3Jj?oc=5) |
-| Trump on Brennan, Comey probe reports: "Maybe they have to pay a price" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5GWTYxVGVYWUg5ZmpLTk90Vmh4cTAxY0U4czNuTzFyMUZkalBkS0pGZHRmMk45WVRlQ0VGQUp6bFJrSTJFS1FyR3U1dml2WkRYelUtZkNEdEZQbFdQOFZRa0l2QkMzQ0tyelI5M1hDU3N0MDdnZmQzQjFB?oc=5) |
+| US military delivering some weapons to Ukraine after pause - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQblpaeG1kdklwY3lnMzU0NFFNTERtMy04UDE0R2g2VUtCN0V1NzdoVHljc1hFcFhkRkZ1UHMwcmJYRVloQ3Q0QUJ0dXRVMVB2dEJKWWpGY3ZhYTV0OUFoaTd5MmV6NXpiNWVlQ25mUUdmaXdLZEVJTjlwRWhlek5WTi1BVGdHbWI4NFhBTmt2MUlxc0x5VU9HQXBsMmYtMGJ3eWx5UVJNejBrajJWNHVOcjV6ZGtPcm5aaGc?oc=5) |
 | US issues sanctions against UN investigator probing abuses in Gaza - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOdGlHSlBvVFFQX196bXVsVTVWUzJYSFh2NXRtQXNrbVFubVRZaXFhUElIdk11YnlWUDN3T1VpOUxUVUpkX0RmellTTEtEczZjbVRzTlpqQXJiUXA3NV9mR3ZVYkI0elFlU2o0dXBSd1dVUDdBY0ZQZmFVaXVlZVZZb3gwVEkyM2FXYTJnaFlaTVVHTk5yV2R0by1zUmJvVU1VUVdRS0dDcEw5UVlfN3RJQW5n?oc=5) |
+| Supreme Court blocks contentious Florida immigration law for now - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQQjNpN1NTSjRvY1NzZEpCRTZGMVZTSGo1dnBsWmVfMzZfNGU0dTNKX1hGNjRBQkhyLXYwQ0k4bS1TSFdLU0x1dGVpZUtFTTJSbndNWTdqbnRBTjRVMGdOY1dsdmxRUE1PMGZZNGw5akRHOXhsM21Kb05taHFnVUh1bG90elJfT1pYQVE?oc=5) |
+| As FEMA aids Texas flood victims, Noem urges eliminating US agency 'as it exists today' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPVzBob0dtSXJybzF5S1FmV3c0UzFLbWJaMlNFZXpmcGRKdDBvSi1xeDVTTFNDWjdXeFo2UC1tbkVaSmdlYk4xZkljOGY0U1pfcFQyTWhLR2F3am56ZWtUUFpUcURMNHhuaVRMSkhHVUFrV2taUVY2Uk5RMFBDSlFiM0JtdktfNXRIQ0dYREJNZmVaTk90WEJ4bzhTUnBIbDkyVGYteDRQRlJ4WldwZFBBb0pnNER3cGxRRFUtUjR3c09ScURPZjY4?oc=5) |
 | Trump Asks Liberian President Where He Learned English, the Country’s Official Language - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOU3dJN29nYnE4Um82XzZsU2lyQzZnVmZnZENEc2tVRExtbkFMMXc4ZjN3cjB2ajd0QkNIemNhUnJJeTY2RDZzNkNUdFpwZFduOXRTY2V5bVdyd0kzZ1lhOURqbHQ5YTVQTDBIS3FVLVpxZldDX1ZCdlZ1X2dMQ0hDdUhSOVpaVnc4YzJB?oc=5) |
-| Clinging to a tree, and praying: how a family survived the Texas flash floods - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxNUnhGWUlfQ0hSVXNjYUkzTHJUejAxN3dkbnVkRVcxX2ctQnBvbXRHYTA0WTB3ZGdYZ0VJOFR0UDl6VlQ0cE1SM3R3WUFhZ2JHeVhvaGt5NlNLQ3lmUl9LY2VRbHppMWc1Z0VRdWNRMktXQzVycGxod05peG1NRFRvSTNGczRCOURIbHQ3bkJ2cTJJdl9LU05ZZllzcWpRandmOUJ0bGVHUlpoMzQyellGZG9rV1BFWGw2c1ZHMw?oc=5) |
 | DHS used anonymous pro-Israel site to target activists for deportation, agency says in court - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNS1dTUkVTZXhtNVNxOEwtb0ZoVVJwMU9xV3FmNW82MHZoMVd6bXVkdzFzRkxCWkxRVzFzaW5tLW5yUUYzdkxya2ZiUXJOYW51TDduNGg5TV8xdkFMUzFoTmVCN0hvMERxaWdzOU0zVnk0R2tFSlg2R3pJTXlYbTNkUTZkblp3N2hXbFFaNWlGY3AtaUFoZEI5T0hJXzNLQng2V1RCUHFlaThNa09PLWNaakRDeFV0cERqX1HSAVZBVV95cUxOdmlnQWFRb3o3ZFN6UFlmX0ZiQ0UyZDBNYzN6cVNLZWRZVFVTVVkzSDdEUkRMcmVramxEc1NHUHVTTnRRTFNtank3MjZzTnVMYXFBTXh1UQ?oc=5) |
 | Floods, abortion and THC: Texas Gov. Greg Abbott announces packed special session agenda - KUT | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxORFE3ekdrZDFfZFc2eFRFeUc0ZEk5OG1XaEcwUF9VV21pVTdUb0c4WVV2bUh2MlJXODhZNjVVcjJjeExhcFZTQ3g1YTRhb09GbkhvNmlaWHE0dHhuUFZVVnNicEF5WkwzSHVScmhuOFNrZ3BBZ3Ixc25CSUVZQm5jYjVEM19OS29yc3paZjRFWDRBRnhvcF8yRlBEYXFPY3IyTk5jemwwV3J1MEJvTl9tbVlnUF9fdGd4WWpNT2M1TXB1eVdNN1RoYg?oc=5) |
 
