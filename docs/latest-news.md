@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月11日 19:01:54（北京时间）**
+🕒 更新时间：**2025年07月11日 19:22:38（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Reeves says latest GDP figures 'disappointing' after economy unexpectedly shrinks for second month | [阅读全文](https://www.bbc.com/news/articles/cq6mvem8neno) |
+| Unite union suspends Rayner's membership over Birmingham bin strikes | [阅读全文](https://www.bbc.com/news/articles/cx24de0d9rdo) |
 | Surgeon banned by private practice is working for NHS | [阅读全文](https://www.bbc.com/news/articles/cev0n2r0d2yo) |
-| UK-France migrant deal 'robust' against legal challenges, Cooper says | [阅读全文](https://www.bbc.com/news/articles/cx24d70gw41o) |
 | Mystery interstellar object could be oldest known comet | [阅读全文](https://www.bbc.com/news/articles/cx23g5jpj9go) |
 | Trainspotting author Irvine Welsh says we've become 'dumbed-down machines' | [阅读全文](https://www.bbc.com/news/articles/cgq7vzjwyvxo) |
+| UK-France migrant deal 'robust' against legal challenges, Cooper says | [阅读全文](https://www.bbc.com/news/articles/cx24d70gw41o) |
 | Iran could recover some enriched uranium after US strikes, says Israeli official | [阅读全文](https://www.bbc.com/news/articles/cn0qzxvydz1o) |
 | UK's first hosepipe ban of 2025 'to last until winter' | [阅读全文](https://www.bbc.com/news/articles/cdxlg2w69e0o) |
 | Chris Brown pleads not guilty to more assault charges | [阅读全文](https://www.bbc.com/news/articles/cpwq017l1jno) |
 | Plans for cash Isa changes on hold after backlash | [阅读全文](https://www.bbc.com/news/articles/cqjq9yxkkrvo) |
-| Trump threatens 35% tariffs on Canadian goods | [阅读全文](https://www.bbc.com/news/articles/cvg819n954mo) |
 
 ## 📰 Google News
 
