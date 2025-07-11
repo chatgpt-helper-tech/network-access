@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月11日 13:00:47（北京时间）**
+🕒 更新时间：**2025年07月11日 13:21:05（北京时间）**
 
 ---
 
@@ -9,13 +9,13 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | UK to return some migrants to France within weeks, Starmer says | [阅读全文](https://www.bbc.com/news/articles/c4g2edx410wo) |
-| 'One in, one out' sounds simple - but the deal could be complicated | [阅读全文](https://www.bbc.com/news/articles/c8d60djgqndo) |
+| Starmer and Macron plead for patience in an impatient world | [阅读全文](https://www.bbc.com/news/articles/clynxqdr157o) |
 | Trump threatens 35% tariffs on Canadian goods | [阅读全文](https://www.bbc.com/news/articles/cvg819n954mo) |
 | Surgeon banned by private practice is working for NHS | [阅读全文](https://www.bbc.com/news/articles/cev0n2r0d2yo) |
 | As UK faces third heatwave, is this weather 'just summer'? | [阅读全文](https://www.bbc.com/weather/articles/cwyrw66jkkko) |
-| Children queuing for supplements killed in Israeli strike in Gaza, hospital says | [阅读全文](https://www.bbc.com/news/articles/c4gd01g1gxro) |
 | Delays and shortages in UK's F-35 jet fleet, watchdog says | [阅读全文](https://www.bbc.com/news/articles/cy0wdyxpqvro) |
-| TV doctor and IVF pioneer quits BMA over strikes | [阅读全文](https://www.bbc.com/news/articles/c15wxn851eqo) |
+| TV doctor and IVF pioneer Robert Winston quits BMA over strikes | [阅读全文](https://www.bbc.com/news/articles/c15wxn851eqo) |
+| Children queuing for supplements killed in Israeli strike in Gaza, hospital says | [阅读全文](https://www.bbc.com/news/articles/c4gd01g1gxro) |
 | Gregg Wallace faces backlash over autism defence for misconduct claims | [阅读全文](https://www.bbc.com/news/articles/cx24lxl85wyo) |
 | Rosenberg: Putin determined to press on despite threat of tougher sanctions | [阅读全文](https://www.bbc.com/news/videos/cz9kqe5v379o) |
 
@@ -32,7 +32,7 @@
 | Mahmoud Khalil seeks $20 million from Trump administration over immigration arrest - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOSFpxdXpXc1ptMGFvSlVPdHBqTXQ3MXE5YXU2M2VCTm9MSTEyNk9Na0c0eFBqMnpRT2ttanZiaGljLXpLRkpjRjloOGczbURoZXhrYWhONmFUMEM4OXhxcVk0Q21zdlFQdktiQW1TaEc3RGlvS1VnTDh5MjhBMjdiUVZ4OUQyZUdmOEc4a0k1d3YzOEk5T3BtSXpUZTdnem52LVlqRGpOUEU0S3pBVjBDLTBYR3c0a3FTWXZ5azdSQXdOc2hEWFRGaw?oc=5) |
 | State Department to begin layoffs in effort to downsize government - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNd29fVmFOUnJtdzdZalZhZ3doNkJWaXFHUjBIQzZoREd2TU1fRTlzTEpsTXA2Qm5XRExtdlJpYl9rQk9HakZhN0ZnNUlGQWNWX1ltalFxYmhqTUxWeE52cWt5emtwZ21uSVFPd0pheWVRVXZFQ1lXMWJOVUo5XzJJeVE1aXFwSUFrOXRCQkJMZ1IzNzhGcXlEYjVn?oc=5) |
 | Secret Service suspends 6 agents over handling of Butler shooting - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNaGlPWVAzQUIxcWQ3R2JzQ2phbVpYOUVlb2dMdFhBS3FGNm1ZekpJSFBBVkFySjBiZW1uV2NSeWxPcGVBSHVsdnhEOHdkb2tPOXhiXzNnb21Qb1VZN1pkWGR0MU5xWWJ0TjRXSWh0SHItVUtEd0Nzb0NlazZTdVVMNDViN1NCUGtOVGxZQm9CN25HdS1pdnZHY2ZRaUY?oc=5) |
-| In South Carolina, Newsom Tests the Presidential Waters (Without Saying So) - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNcmxqNWNSdmFVQkRkNFduQmN2NFFSbGstRVJXN0dhbkh4bzU0bnRodUwzeGFCelRxb2RtNUc1Tjh6Vno0MzlzUk5QUGFMMmpoV0RaMFllX1M2MGNvUHEwSksyYUUxNWhDbVViTmJOM05xeTg2UFBidGdRcGFIYXotcUh2Ny00ZzJ6UFBPV2I2WQ?oc=5) |
+| Texts, emails bolster whistleblower account of DOJ defying court order - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPODFtODE5NERCQ1MwM0d2bml2cU82cnNhSkc1TkFlcnBvNlhMNjhGZ1VaNElzMkJaWjJIdWh6NlJhSVMybFF6NTJERnhkcXktelpWNnFtT1lmWVhJQkplZjc3ZGlkMWZIXzMydU1JUUNiX1prTDB5QnppRHpLQURrUlYxUjdHSDNiTTlkV19xVDYxUUhGMGNhaTV5VFY5ZXVQWEp1V3RKaFFKUmpqR2E2U0J3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
