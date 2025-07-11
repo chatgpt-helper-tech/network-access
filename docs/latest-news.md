@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月11日 21:00:23（北京时间）**
+🕒 更新时间：**2025年07月11日 21:21:22（北京时间）**
 
 ---
 
@@ -11,12 +11,12 @@
 | Ukraine to receive US air defence systems, says Trump | [阅读全文](https://www.bbc.com/news/articles/crl04200dp4o) |
 | Two residents die after car crashes into care home following police chase | [阅读全文](https://www.bbc.com/news/articles/c9w1n78qq8lo) |
 | Unite union votes to suspend Rayner's membership over Birmingham bin strikes | [阅读全文](https://www.bbc.com/news/articles/cx24de0d9rdo) |
-| Reeves says latest GDP figures 'disappointing' after economy unexpectedly shrinks for second month | [阅读全文](https://www.bbc.com/news/articles/cq6mvem8neno) |
+| Gaza's largest functioning hospital facing disaster, medics warn, as Israel widens offensive | [阅读全文](https://www.bbc.com/news/articles/cdx5zeywgrgo) |
 | The Salt Path author's next book delayed after 'distress' of newspaper investigation | [阅读全文](https://www.bbc.com/news/articles/c20r4p55vdvo) |
+| Reeves says latest GDP figures 'disappointing' after economy unexpectedly shrinks for second month | [阅读全文](https://www.bbc.com/news/articles/cq6mvem8neno) |
 | Mystery interstellar object could be oldest known comet | [阅读全文](https://www.bbc.com/news/articles/cx23g5jpj9go) |
 | Chancellor shelves planned changes to cash Isas after backlash | [阅读全文](https://www.bbc.com/news/articles/cqjq9yxkkrvo) |
 | MP Rupert Lowe investigated by standards watchdog | [阅读全文](https://www.bbc.com/news/articles/ceq7z421pwzo) |
-| Surgeon banned by private practice is working for NHS | [阅读全文](https://www.bbc.com/news/articles/cev0n2r0d2yo) |
 | Outrage builds over plan to force all Gazans to southern city | [阅读全文](https://www.bbc.com/news/articles/c9dgv7v1d06o) |
 
 ## 📰 Google News
@@ -31,8 +31,8 @@
 | State Department undergoes deep cuts in sweeping reorganization - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNMHduZzB1dlplVTd6Q1VOdzUwa2FydzRyV3NDcVlLckJSLWJWRUl4Mm9nOE5ud0JlOGVsejZWem5rQ0wtNzlxcTNIaHNyOUlZcHBucENtUUIxLVFPOVZkS2o4UWlkcHVORG9BeUxUNkk2ZlZuVzRnUUZBYTUyVWFGbUhqeHF5UlhnSWxGeE9KXzNlZjZ6bVVKRmZYd2dnYl9wTFR2WHNxcGVIQzI4?oc=5) |
 | Secret Service Suspends Six Agents Over Trump Assassination Attempt - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9BN19jSzg4YVlOR0pqNWV3ZHNDZDlKVUFUdFBnZ1U1NVBQSUxPSEhzRjlJQzRndl9PekR1LUNkQS1pYnJyWTE1OEl6Y0xCTk5tY1o5Y3BPandLTFFUZ3VXME5UOE1RbnJQa01aZDhTT05GQ01VRExoNkN0STQ?oc=5) |
 | Missouri Gov. Kehoe signs bill repealing paid sick leave - Missouri Independent | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPZHN0VUo5Y1dVQ2ZVSnd1SEN4MGJyb0s0Q2ZhQi1BWE5oV2VremFIbTFFcFY5TC1KcGZVa0wzejQtV1FyTHUxQzg4ZFNncjNsVklFc0VMa25IUkM4aVoxY3h6U25jbmJEUGcyVmthN2VlREJkc2JNZmhBb3JUVC1oVmVVTUV0cDFELWhDMU0zYWxPTkdQdWhoVGkyZ1U1WEl0?oc=5) |
-| Trump defends global allies against "witch hunts" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQUWxiUDBBVHVFczRzTzJMMUtOMXFEWGZnamJ3bWlScUhpOWxvYTRZTEh6YlZ0RURWNlBRbGZJRnJWTDN3bW5hcEdYOTlvRkE4Q1FfaEhSRXU0VjBCU19YalBSV3RDU2NJb1V0SVEtYnJCbk0wazZMVGp2alJGNlBIN2hn?oc=5) |
 | Mahmoud Khalil seeks $20M from the Trump administration -- or an apology - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOQ3JYSDl6M2RJdXVHRGt6Wlh5VEJHWkxGdExuNUVsdVlLTURLX2hqNjZUdURQSG5mYldYaTBkNk55Qm5pZUdvdFM5VnFWazh0VDYwNFlkZ3o2THQ3Tkc1bTd0NmZXT3RqSDlPZlZSX3RjcEZBdi1GZFJpWFc5MlNxRnctWnZqSVoxQ1dNTkppT3NvQUF5U0VtczdoRWlRWEHSAaQBQVVfeXFMTVlnMU9WZDNBZzFkUlNyX2RTMXo4SmdHMDVVd3NYZV9aLUxrUGlYeXQ3VkloU20xREpfZmRtRDlZc2NJc3BwU3FkNWJhUkpQM0JFRnZsRDc5R1BValFsaGZDVHVpU05GZnBSajg2eGc0WEQyNnlVc2dULXNxOVJ5V1ZLOGl1RTZvV3FZR2wwQjdKVWs4R2gtZnpSeFRaNEIxeXZiMXE?oc=5) |
+| Trump defends global allies against "witch hunts" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQUWxiUDBBVHVFczRzTzJMMUtOMXFEWGZnamJ3bWlScUhpOWxvYTRZTEh6YlZ0RURWNlBRbGZJRnJWTDN3bW5hcEdYOTlvRkE4Q1FfaEhSRXU0VjBCU19YalBSV3RDU2NJb1V0SVEtYnJCbk0wazZMVGp2alJGNlBIN2hn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
