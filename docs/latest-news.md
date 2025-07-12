@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月13日 02:21:05（北京时间）**
+🕒 更新时间：**2025年07月13日 02:42:10（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Swiatek inflicts 6-0 6-0 defeat on Anisimova to win Wimbledon | [阅读全文](https://www.bbc.com/sport/tennis/articles/cdx5dnwr2pjo) |
 | Trump says EU and Mexico face 30% tariff from August | [阅读全文](https://www.bbc.com/news/articles/cyvj13d9ylpo) |
 | Heatwave peaks at 33C as whole UK swelters | [阅读全文](https://www.bbc.com/news/articles/c5y2jd5yye9o) |
-| Fifty-five arrests at Palestine Action ban protests | [阅读全文](https://www.bbc.com/news/articles/cq6mjg13dz6o) |
+| More than 70 arrests at Palestine Action ban protests | [阅读全文](https://www.bbc.com/news/articles/cq6mjg13dz6o) |
 | Air India crash victim's relative 'can't be at peace' until root cause known | [阅读全文](https://www.bbc.com/news/articles/c80pmv1leg5o) |
 | What we know so far about the investigation | [阅读全文](https://www.bbc.com/news/articles/c5y5nq170z4o) |
 | Fuel to engines cut off before crash, preliminary report says | [阅读全文](https://www.bbc.com/news/articles/c79qrez8gqlo) |
@@ -29,10 +29,10 @@
 | Israeli settlers beat U.S. citizen to death in West Bank - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQMk15cFJWRmcxb3hscUJLWDBNQ21XVEdiZ0d1QUNDY0VIMEU0SUdpOF9JQnZjWmVPVWdudjh5a0pTal8tUVlvOFRXU3hpdTdVeGVVMGZ2VHRXRUJPb2tHMFhXMHFDZTJncnJCWkkzWllPb09BMmxncjNlUVBFNExNelRaeVhvQTdyTUtYd1B3SQ?oc=5) |
 | Hospital says California farmworker is alive after 30-foot fall during ICE raid - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOMGNLY3VOeWlEQTYwZFhGWVJIY3pYZzZ2eFloeDBtZ1ZESDJEdXZGMnhqdlJnT1BYcUwwb2VGTU4yMFRnS0N0OEwxSlFWckNaV2FjazREYm5ERHI5V3JyV0l0a3oxSzJZNmM4SThtdXZKYzRSUWU0UC1HalJVcWN4aGZFc0xWR0lMaG9jZHdsci11UXpxUEluSnpkaXlVajBNMWfSAacBQVVfeXFMTm5jdzRrZEhtemM3c1otWnJnR0Rjb19tX09qdDlVSnlZNUhQbEQyTFgyRG01Q3llVV8xWmJ0Z3AxQ1BJT2hiTENyN0s1RVRuU0ZZSTZOSGdfWnN5Q1FQc0htbkQtM002elpmZHZ6aWx4eF9pd0t5dDJYeWRKNTF4UVA3N0NtVjFSeUctc0RlVTlCWEx3cjkyT2RaYXF3a2FlcWJpamJadk0?oc=5) |
 | Kash Patel will resign if Dan Bongino leaves; FBI chief ‘frustrated’ with Pam Bondi - Hindustan Times - Hindustan Times | [阅读全文](https://news.google.com/rss/articles/CBMi5gFBVV95cUxPbDNDU3BLX0poTHJMSjhVbVNscTJrZzhLY2I4U0o1OTA5bGctdnV1VEw2RnBXR2doUWJYWExDZnYtTGhQQzRXZ0pHOXpwaFVuLUhmM2dUeUxrNndZc2pYV19kQ2JyV0MyaVhKcVQ3V0ttZndUekxhcEY1LXhrek5odU1GLVMtSlFlOVZlLWphV1dtZGcxUk1xVklkSzkta2c3SU9pcG9pR0hsOUMtQ1MyMEIyTFk1Sy14YzFuaC1RZGVpX0xDUkpXb0FsT0pJZjVUTVJhMS10MkRzdGl0X1lvMWNHZVllZ9IB6wFBVV95cUxQbUlLVXNwbFlKXzU2MXlCUF8yRUdfbEhQM1lRM3AtSHBhNU9ZcTVWbmEza0pvZlkwclBsZjZLazZjRVBYMWlmaWVuN2pTeDRTNENzekhZbnF3VWhRbTM0S1FXN0EweEljQXJZVm4zdmFvU254Q1l3Z1BYY0g2WGQwQTc1akh1TGZ3RjlTdEVUUHhHM3RyOXZweG5aUzQ3SkpyUEtpVEY3OVlBLWJERHVTNjFNZ1dyVkNqazFWcHhDTlVlQ3JzZkNMc1lINHRyUFlBWmcxbGt6VmI0OVl5Tkxlb25wS2hCQmx5UFZz?oc=5) |
-| 3 girls from Austin among victims in flash floods at Camp Mystic - KVUE | [阅读全文](https://news.google.com/rss/articles/CBMi8AFBVV95cUxPdHZlY1dQY1FwLWFGWjhkS3ZiS0Y5VDV5dXAtOW15SGgzT2thTVJFLUJhb0xEVEZtenlHbHZKa1VTaldNRFFOYzh3RWhYSW9tb1hOR0VXbExkVHh3N2RPLXlCMjk5ckllYjA3cXpCbFE4U1k5b1N4U2ZPY0lYb19aOWxkZ09JVDBZbERsWmpYZUVXLWNnbUg4eW9YZ0dqVlhlZkRsZjZxclJjRWpsNHVWTFR5eHJoWnpJVVN2djcyckJESzIxSTJ1TWJ4V2hZbmpUa3Q5MHZaQ3FXd256bzNhTWdqekZleTVLcEc1N3RmWjI?oc=5) |
-| FEMA removed dozens of Camp Mystic buildings from 100-year flood map before expansion, records show - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE42Y3ZYZC03ZFVaZGdoUjNtODFZZ3ZHN2lId0NMV0JQc1JlTzJpQi1rZlNoSlF4MHk0b05MX0xNS1NITUpsOFFYUndab1hlOW5qSWFNNlhnT0Z5QmVzWktKNDFab1ZBcS13dEtaaFVxbUktR1h0RmFScQ?oc=5) |
+| An Army of Searchers Combs the Banks of the Guadalupe for the Missing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPamg4NmQ0b1NZd3N6b0JRQXhiT2FqODZ4RXkwek5WT3NoNEN4Qk9naHNNUkdDWGRqZGE4cGpOaGJMSmoxV3A4bnIxVEpvaXlWYlFfMVQwMFZUdTFoNExMTnpsaTRRSk96YnI0Ymltc2d5THhDTjd0U0ZHSExsZ1VqOHpIVzZPX2VfUnhIVlpfdkc0M0R5OWNvYk9CS1p2aWZ5WnNUNENuSDZMV1NFb0lIN19OcEdJMkxFREE?oc=5) |
 | GOP warning sign in new poll: Trump’s voters don’t love his tariffs - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5fTGNvWm1EcEV3UTBTM3pMcUtWSXZGX2JWOTJDSzhDSHRfT0pYSkI4TWxnVHpoSmZkWDdyeGFhTW93Nnh4SXFJcERjRGNDMDRJVHh0MWVrZ3lBMHFrd0lLcjBMaWRDbEJycV9rX0czNkVZR09fa0k1Q2VOWmxXQQ?oc=5) |
 | The lingering mystery of the Trump shooting: Why did this young man do it? - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNU0RxLUdqNWg5bzRrZm43aVdZN05LY0MxcUpYQkx2b1dRYkpnbG90a1dqWEZlcFBtWTVQbU9LelJzemRqSDFxM1dITC1OT0xLaVlpenpxYzM0VGlrWkJTMExBLTQxR29xSGtGQU1SSDJEYTNNaEhMMkdseUNzVnZES2NLT3JrM08ydzl5VFRDb1E2U1BVT2RFUnc4TWk0QQ?oc=5) |
+| Trump cuts questioned as role of Fema in Texas highlights agency’s importance in natural disaster response - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNLU1IV2lUdXFIWUxkVWhxR05EU1R1M2k2ZzlUenVoR0hlXzhyTjdvREZyamNMYVFHLVlsX2w1QURBcHc5ajZqaEJOc3BqOVlxYm5yNGhHemY4S1MtMFZJUUR1YUtUdnBuV056cFpiVURkdWZ5WTNZaFRtXzhhMVluRGljeW5lZlp0YUZCNmNybw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
