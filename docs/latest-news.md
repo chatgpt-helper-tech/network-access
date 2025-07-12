@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月12日 12:22:31（北京时间）**
+🕒 更新时间：**2025年07月12日 12:43:08（北京时间）**
 
 ---
 
@@ -14,25 +14,25 @@
 | 'They were just kids': Mother mourns sons killed in Israeli strike while waiting for aid | [阅读全文](https://www.bbc.com/news/articles/cy9xgrrq54go) |
 | Alcaraz expects to be 'pushed to limit' by Sinner at Wimbledon final | [阅读全文](https://www.bbc.com/sport/tennis/articles/cy8gl12d7lxo) |
 | Faisal Islam: We are heading for significant tax rises | [阅读全文](https://www.bbc.com/news/articles/c9dgn647nplo) |
+| Gaza ceasefire talks on verge of collapse, Palestinian officials say | [阅读全文](https://www.bbc.com/news/articles/cqjq9p87vdvo) |
 | Trump surveys damage in Texas as search continues for 160 missing | [阅读全文](https://www.bbc.com/news/articles/cr5vlp0pmdzo) |
-| Liverpool to retire number 20 in honour of Jota | [阅读全文](https://www.bbc.com/sport/football/articles/cpqnwpxle79o) |
-| US has resumed military supplies to Ukraine, Zelensky says | [阅读全文](https://www.bbc.com/news/articles/crl04200dp4o) |
 | GPs to refer patients for gym classes and career coaching to reduce sick notes | [阅读全文](https://www.bbc.com/news/articles/cwyx880d1w8o) |
+| Former Met Police commissioner Ian Blair dies | [阅读全文](https://www.bbc.com/news/articles/cj61d0rd9gjo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Minors among 200 suspected illegal immigrants detained at California marijuana farm - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBXM3YxUFZjSnRuMFNmenNiRTFDcFdxX3N0TTNqQkZ3NmwtM1dKMzRfM3B0VndLd1FBa0k0bGJGTWNEVHROS0pIY1BjenA5RnZ4N2tSNHZMbTJIQdIBX0FVX3lxTFBjYlVUVmxfdl9uTnE4c1ZaenJ3MU5QODg1NHZpYzRGdnp2VGQ3QndmUl9xTmd4d0pZN3JPcmpJMXRmMFlTNkpabjBVZFhGX2c3M2hONVZLekFGanVmb3Rv?oc=5) |
-| Judge orders Trump administration to stop immigration arrests in Southern California without probable cause - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSnM2eXBlaENsWi1FOFZSZTdGS2I1ZWVWWVRyTVJRREc0WlFIcTlybks0U0VORVZ0b2IzSFZTdS1oSFliMFpwdWNVcmVkS1VWTU9EOHBneXZxcnVCQXRVT0xzSmVaZEpUdktMNEtPZXM4T1BZaWtZa2RVOGh6QTVwNDFwdVhpV1JSZXNwR0lR0gGTAUFVX3lxTE82dEVsVDNPQVkyeTZUaUF2VGloS1B3eDAzTWkyMXV2T2J2emJTWXhTZV9pSHRCZldHcGg1dXJUVlBVcDdWemlKbHUyNWlxVzhPT0N6dWpnVk4tN0Uyb2d5OVlaanF2Q0d1U1k0N1F6WkZaUGtzR2tJbVNYYWNIN2pVRm9zYjlNUXJtRDNOYS1saDlNTQ?oc=5) |
-| Engine fuel switches cut off before Air India crash that killed 260, preliminary report finds - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQZ05OYjZkMF9wWWZmZ19XckhqcVhqSElwVjEtME9ubUstajB2MkFHeXlTcXdZVWIzNEEtSVZhdTBKdGQ4eTg0Wm4xRVBRLUtueEFGZk9ISGhXQ2pFZklGdzF2endOQkdTS3dBdHd0bUpYZ002NW0tRUQtZHJSV2hFRnpwTFFTVlpLRS05S1MwdFNyU1VsOTZ3NnlPQ1preU1HOFA3N0RuLXQ3ZUdoT0p1eWM3TW0tYTkycE1wS21QbFExOS1M?oc=5) |
+| Air India crash investigation: Cockpit audio deepens mystery of Flight 171 accident - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5iRTRXSWczUkhXVVNDZ2RfTmNNd0dhUWEtajJaTERXWktkeHEzZU1lalAtc1Z4eEpWZlZ6eEdYZWRhMVUxQUU0TjRkNWR2OFE2eG5HUThXcU1KQdIBX0FVX3lxTFBJMkoxQzhTYU9rRWVLUVRhR2dTdE1wTXZTa2QyUTdmTDEydUt0aUhySGhsX1M4VFR6cEVXLTN1bkx1dE9lSzNZUm5xRE1BeU1oaWktWDAydF9WRFFuTWFR?oc=5) |
+| Federal judge orders stop to indiscriminate immigration raids in Los Angeles - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxNVXp6eGxDRDQ5LUczTmpPUnNHbHdoMHBnakJ5TEVCNkJteUlnZkhEaG55a2xHT2NZTTg3MEVrZG51MjVTUHdMUUFONlFaR3ZnZTExR290TEtjSi1XcTVFcEVqRUxhNzYxM1hLcGNrd0J5X2MtdWJZOVN6U2xFeXV1Ym8yS2FsMXI0cjExb0ZyM2tMclN1b1RNWG9NcWhsMTM4OV9sbkZXVlNlNmUwbnpTVXY4RHFCdkdBb3RfREln?oc=5) |
+| Trump tours devastation in Texas, meeting with families and first responders - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQZDNSbTRtZk5sMk96UDRtVlQxNVZPVzJ2eUwzRmxrWl8wTmpWZHNveTdCNi01U2VQdU9HYUpOYk1jY0lpTkdhaThrWW53Y25DbW5rWVVaZkhZaXB1eXViY1FCRGQ2MGlwZTVrTDhwUEJlNDF6dTdxT21YQmJxbHA3VzBjUWpDVnNMZHdzd1c3WlJLNkJB?oc=5) |
+| Pam Bondi and FBI’s Dan Bongino Clash Over Handling of Epstein Case - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQUEVvZTU1aTdaY1d2bHlwcUx4V1ZPcGpMMjE5YTNMZ294alN6eHA1aDN3aFgzUENhbjRRbU5BUjJvMDlGc3pxem1NYlpSZkQ3dXdVY3dNc1V4alNRMEhOU3k3N2RYU2lrakJkbDJ4NUNVekdmLV96Vk1ZSTlqX1UzVE5BLVRtZF9MZ1FEX1dvZnF2d3FyMW56M05tUQ?oc=5) |
 | FEMA Didn’t Answer Thousands of Calls From Flood Survivors, Documents Show - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOYURKb3JtYkVUbjJ6QjVfX1BMc0N0SVVLdExjN0taV0x1VTh0VF82a0k3bUtaX3F4dUpEYkFkblRCajVmbUYxdU5zN1ZuMEVFZWU0SzA3VlNHMzZvekRfTUtfY3l0UW90ZGtKUUNyaDlPVDhnTHJjTTJNT1ZTZWRsbVZweEs?oc=5) |
-| Scoop: FBI's Dan Bongino clashes with AG Bondi over handling of Epstein files - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5RNlllS2NNeTZMZTlGZjcxT0M2a2pxZlYyTjBYd2lEVzFvVzlfMXctLXVoX0xIR0p0RnFwVEh5c3Z3X0lZOXV1NDg2RndyZWJlZ1JaUHhjVEloMHhMLVBDakFWay1CU3RIMWJwMzhNdFVfMGRoTzgybEdfR0xFSjQ?oc=5) |
-| Live updates: Trump surveys damage in Texas after floods kill 120 and leave 160 missing - live updates - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5zZGNzYU9KS1NDbExlN3J1TmVLSVI0UEJMNk5sYjJiRmhzZ1JPOHltNmw5LW1PcWRJejF4MXZaN2dUcEVVNkRVek82QjNqRjNqYlh1VA?oc=5) |
-| Miami archbishop slams Everglades migrant detention site known as 'Alligator Alcatraz' as 'unbecoming' and ‘corrosive' - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQZjJIQ1NVMkZrWXkxcEtYSU1lU0pBcUxEVXNyc0tlRzUzS21PSUh4TlROVkJZaVMyb3RtV0I3LXZFS0h6aHZNZWJMNlh4TE1FbU1WS0d3MWRmamtPWFk0RHdnMnFmQmY2OG02V0pjeklJSTlQX0Jmd0s0bWt4M0h0bXlLUlRNWDN2d00zUU83dDUzRTlOUTBmSjY0SWlIUzZxUmpGRE1B0gFWQVVfeXFMT3NuQmdwX2dobWFOS1c3V0VWYlZra09yT2NxV1BBbFA1UktiV0NGRWloNkk5cTRBcnhqSUhRODhlcnJwTWxBa2oyanVpNW03QU5OVXZyMHc?oc=5) |
+| Farm worker dies a day after chaotic immigration raid at California farm - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQZmVYRXNsR1huQzBudFQ4YWZoMThWOHRpbGhpTXlHaTNIZUFscXNDWWU0SXQ4MWdNSXJLR19PNlA4cTAzSGhiUVVXQ2NUazRSdmRtdExJLTZHMENDVUd2TUdlNUdxNERfT19EajFOQ0xHaHBNVHBfWE1abUdoZVl5T2pDRVBqR1k?oc=5) |
 | State Department starts firing more than 1,350 workers in Trump's shake-up of diplomatic corps - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPTjFMQlJ5NTAxekNsS0RFdzc1dWtucFUzOEtHaVI1QlVqRlFjRVNBV1FFQzFZVVlfaUxxZHFLV2hldEQwWDVGUFNUNHR6S1JCbXBfRnRqZGdMQ1dyUk5qbWlsMkM4UkpFajF4M3BGbHpMNW9oSUxMeXZrclZsU1RiVm9kN2ZfYVBmSEluamtnelJ0RkxXTDJzWDhiWnBSTm9zYy1JQ3Q4MDFtQjZsOTBlR1duZGdpZGJZRUJpT1ZGc1RpY2RP?oc=5) |
-| Guantánamo plea deals for accused 9/11 plotters are canceled by federal appeals court - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPRGtYeXdVS0JISzZZUFZYTFU2UUFPWWNTazJIbHRFNmRrY3ZmbXlWOXpXUjJqTFM2SzlvZzZ5OUlaWUZXblVfMThKeDd4cG9uVVloSkU4cXM4UWVIM1pVTDlkOEFLVFpta1F6RVM2UmhYMGpLb0h5UnYtTkFMbTBEMXZlVUFucGlZbTNr?oc=5) |
+| Appeals court throws out plea deal for alleged mastermind of Sept. 11 attacks - spectrumlocalnews.com | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxQZFNHV1pxNHdzVnNsT0JOU0V4enRSNzgzY2FpQUZJbWlzZGRNQ1hyVTVNNTc2ZFBRdUYxcEI4TlBYSUZqdUdjVXlrWU5sY0RCS2RjaFk1TnlPZnJNYVFoVDJkTjJhdlBnQkRfUlAwYXNrWW0xMjFMNVJMVWkycGRteFQyMVRPcHFKWFVhb0wwY0gzOHVRWGhNQ2ZhU2s0cVI1WlNPOThnLXBuak9TWlRaY0NEU2V5OTM1Rk5wU1Awa0hrMExJaXVkUXRB?oc=5) |
 | Canada pauses new tariff threats as Trump escalates - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNQ3Flc3ppMUlkQlpKWmstbGJGbjlMSmRRQ2o5QXlaN2U2bUEwMGxfbFRjZVYybGJLOC1zWllvMHpGM0xjbHhnbEt6WThyaTI4aWRoU2RKbmRwVVh4R01DNnc3WW1NTjJHV1BDX1BLcDg5cl84ZnpPVERJeUV6NEJwMzV5NnhyVzQ4TW1Wa0RMMFU0VDRsMVNydmYtQ1o5MWZOYlJhWXowTVU?oc=5) |
+| Miami archbishop slams Everglades migrant detention site known as 'Alligator Alcatraz' as 'unbecoming' and ‘corrosive' - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQZjJIQ1NVMkZrWXkxcEtYSU1lU0pBcUxEVXNyc0tlRzUzS21PSUh4TlROVkJZaVMyb3RtV0I3LXZFS0h6aHZNZWJMNlh4TE1FbU1WS0d3MWRmamtPWFk0RHdnMnFmQmY2OG02V0pjeklJSTlQX0Jmd0s0bWt4M0h0bXlLUlRNWDN2d00zUU83dDUzRTlOUTBmSjY0SWlIUzZxUmpGRE1B0gFWQVVfeXFMT3NuQmdwX2dobWFOS1c3V0VWYlZra09yT2NxV1BBbFA1UktiV0NGRWloNkk5cTRBcnhqSUhRODhlcnJwTWxBa2oyanVpNW03QU5OVXZyMHc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
