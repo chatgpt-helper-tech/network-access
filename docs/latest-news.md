@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月13日 22:42:26（北京时间）**
+🕒 更新时间：**2025年07月13日 23:00:56（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | California farmworker who fell from greenhouse roof during chaotic ICE raid dies - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxOMHZKU1g5Sy1FOGY1WVF0b3VFbWtwXzQ4TmdsdHZRNW5fUm5fVXF5RVAwZmlibThJUXp5VkhTSHFDamx2SlJOSFBONHhPTFh6MEhaY1c2cnZyUDZtRVpDYlVYUVh0RkxHMEh2R2czVDZhaVBDVVMzOXpQcTNqTmRPVzV4MFhMekhfckZsYjU3MXZuM201S3RVUmRtOWl1RWJHVzVCYm1ocTBhZUtDVmdjbEpkRjR5dGtRaW9GQ0tiVnZTQVZNbHlTLVZ3?oc=5) |
 | Allowed inside, lawmakers split on conditions for detainees in 'Alligator Alcatraz' - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOMk1PX3dEM1BIUElEN0o2SUFxY0xPTkhGSG5Jck1HRzY5czVnQVp0WjY2ZkhhRXM4V0ZTcjczcFpxTkZjbURQNVhsdVo0UUt2cjV2STVaNmJRY3hIWkhFcUp0RXJlWkJ0Qzl3WEpyMklxV1VmNDFrVzFKMUV2MjZBTWM4R1NGYmE4UWN1Y3dFdjB4M2FGT185Z0NablZXTG5sSTRPQV8zamZKSWlEX2fSAVZBVV95cUxNY2ExYVdJTTBtY1d5UlRqYzFlaHhQT0lteGJpN0NGc1ZKUUhGa0xrZE5hcjg5UXRmQkktUDA4aHZnaGVfZTNLSGFMT1o4cmZGVTl0R2w3dw?oc=5) |
 | Who will win the Senate in the midterms? The answers to these 5 questions could tell you. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQZWtlVjVOR09hYU5UdGpIaFJvV2IzSy04bXE1YTFzSDdGYUJmWkdIcnJycGJITnVEclc2WldjOF9PdThpY0JQQ2FEYktkNHVIWDVUeHAxa09mWEtQMUQtalR6d2tSRXVvU19MY3ktTENoUDdUX0VodnR2RUFLLVpqZ0h5TmF4eGlMODVz?oc=5) |
-| President Trump, First Lady See Unbreakable Spirit in Texas - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOX2VRYnlkTHd4Y1ktUVpDUjdLSWVUYk9nOE1yclBTbzhya1N6eHY0SEc1NHNJemZWbzQ0OTJXZ2tKY0x6WWk1Qk5IQjJHNENfYlBNNU9lSFdVYl83cnZaR2hxbmhpMXVqSnBSQVRkQ3NSRlVkeHRFM3NSbDJLaGhnellvOUxVSExkMTRUeHdCWmEzd1JzU3ZHbUp5MDVOb3loMDN6SUlB?oc=5) |
-| Amid Tariff Chaos, U.S. Allies Try to Redraw the Trade Map - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPWDNIaWl5M052SnlIOHc2b0hacTc2b1BVX0NSWnFtUGxTSUo4cnpwempUMVRlLW9IdEdRWmh3QThUTXQ3QzJRRXBQdkJ4cElYdTVEanRyN05VQmdRRlphallmellvZ0ZwQS11c2dBT2h1NnJRVkdVX3E1YmljWlN3ODBNWEk4aUJXR1E?oc=5) |
+| EU pauses trade retaliation against US after Trump’s 30% tariff threat - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9JQ0U5ZlRldXlRNkdZdlNvVUFsWUt0SDZ1U1NEbllSeFVuXzdjNEZzcGFkaU53MThkUHBMVjIwTHJpTTQ4UlNYeFNkU0VZa2laa1c5ZEpJYkd1enlxUGFMblpjOF9HNHh1YS1adlBnZmw?oc=5) |
+| Trump says he’s considering revoking Rosie O’Donnell’s citizenship, reigniting decades-long feud - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE5oNzBrNi1DeF9Pd1JQa3F1QkhqNHFTTlJseVVVV0UwY3lKdkJOZEM0ek9zTzVZM2o2NkZmZFNfb2dPbDlfTGMtRTNzSGRQNWd5cTJPOURlWmRsenpKc05HSnlHVFo3cWdELVcwVktkMGxrTGNoTXfSAXtBVV95cUxPVnI0STR3RlZ6bUhKUWNmYXdDZnNoNTRCOHJSb3o0T3ExSDBwUlQ2TnRhd0FTWXExZkNycjYwX1IzSWlzWmVCRGFHWS1abjBoSzZ1aVZWRzBmY3NSbFAxMUl6aEVJSUZleV81T1JmV29yNGQzSkFQMWpJa3c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
