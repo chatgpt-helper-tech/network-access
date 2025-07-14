@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月14日 21:01:04（北京时间）**
+🕒 更新时间：**2025年07月14日 21:22:25（北京时间）**
 
 ---
 
@@ -12,22 +12,22 @@
 | Thames Water issues hosepipe ban for one million people across four counties | [阅读全文](https://www.bbc.com/news/articles/cg4revv15qdo) |
 | 'Just appalling' - dubious tactics at leading estate agencies uncovered | [阅读全文](https://www.bbc.com/news/articles/cvg81l57x53o) |
 | Man who murdered girlfriend and tried to cover up her death jailed for life | [阅读全文](https://www.bbc.com/news/articles/cz7lgpxld24o) |
-| Woman smuggled baby into UK using fake birth story | [阅读全文](https://www.bbc.com/news/articles/c98jl8jnz92o) |
 | Boeing fuel switches are safe, aviation authority says after Air India crash | [阅读全文](https://www.bbc.com/news/articles/ce9xpgnx3vdo) |
 | German backpacker lost in outback 'beyond grateful' to be found | [阅读全文](https://www.bbc.com/news/articles/cvg8zpej236o) |
 | A-listers and royals grace Wimbledon finals - in pictures | [阅读全文](https://www.bbc.com/news/articles/ce8zl55598qo) |
 | The 'strongman' PM who inspired Trump's playbook - but now finds his power crumbling | [阅读全文](https://www.bbc.com/news/articles/cpd1j1x2l1lo) |
 | 'Someone faked my death on TikTok' | [阅读全文](https://www.bbc.com/news/articles/cvgn1ve903yo) |
+| Trump, Coldplay and red carpets - how USA delivered football's first Club World Cup | [阅读全文](https://www.bbc.com/sport/football/articles/c39z39lr009o) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | 9 dead, 30 injured in fire at Massachusetts assisted-living facility, officials say - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNck5sZEdDZEdZVEh3aUtkY3o2VHpsME9zdUIwOGplRk50dE4tRTFaMWNGVEcyUGo5Sl93X21vVmpJemZ2a2FjS3hSOVJtdVVxR19PUVJxbDN1eVFUeFdCM2pWdHhGM2pvdG5HYVRsNzRKemtyaDAwNy1fX28yeUlLY1JpdFhZNlN2WFB5UmxYSE5hSVhKLXRHZ1h2WU92LXZQeEJEX1pCUGUwQQ?oc=5) |
+| EU warns that its trade with the US could be effectively wiped out if Trump follows through on his threat - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPQk0ydFdIejN6cUd5bkVJb2Z2ekM0NnRrV2lPTjVqZXRTVmRQTVJyN3JvS2xTeHVmMXpxLWE1dFRJbE4ybHVsTXRBcDdxTGhyNjlYTHRjc1NGNng1UGk0alFmUjVNck1PdllzSlByOFNDUVlqUi1lcnFMb3Q3MUNMMWxR0gGHAUFVX3lxTE5iR2tMcnVuVWdwZkp3MHhTQWZ1WXpzRzNkTFExT0NhWkxMM3ctQ1J3VFhoei1XYWtWcFlFNUxJSEVqeFAzcmZaNl9ZamNkcjBraWxPZDRYZlBncUZWY2loNXlpUWpKc0FJZUctdG84cWZtaGNKS01SQTFvYjVURlVILXdpMHlXWQ?oc=5) |
 | Trump says US will send Patriot missiles to Ukraine - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQMGZ0NDJHNnFhSkJheHFCaXE3X0J3Q2hjSWtTYUpwUzJ2Y3VhcTQ4WnVWUWtmYzkwTUo4UVpnN3VFVTRzWm52aVI2S0o4bmdNWXpOY2d6eDE2STA0ZS1ZVnluYlFXUE5xcTdzNEltcGEzYzF2S1hYSnZOUGljeXlVWHdfQWhidHdONEhTZ2hadzVDRk1GeU1Ib0tjSXpJQQ?oc=5) |
-| What Trump's 30% tariff threat means for the European Union — in charts - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNZTBDX3I3d1lxUUxmSnZvN2F6ZzU1Q0F0QWJLNWFWX2J4bVpYaDk2VjB2MGVhekRYNjBJSE5mWFNXY3FLWXVCSzFVRk9KNmdENGt6TFBvOHk3MG84ZnhDTUhWMmlTZVdrcldXLUljYnAyaktWSTUzd3VlaG01N05MaERSUnlaNHN2dTg2LXBzbEM4SDBtNFJnMTZJOWhIMVZyLXc?oc=5) |
 | Search efforts paused as more flooding rains hit Central Texas - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQNkVpNmEwYmxkaDBIZXFCaVpHWW82eWR5UTBJVDNrNDFfbkNfbDVtdHpCNzVfZ0ZTa2tDbE5VbUJLTktrRl9IM1dzbGVRcWtsa2c2MVBVTFFfakpWSVhLdHFfbEVFVGlHRXR1ekdLbXJqN0g0WDFCSmZoendiNF95QXhrVDRmUFRST2QxQVRTbU9USktWTno5bEpB?oc=5) |
-| Grand Canyon Lodge destroyed amid raging Arizona wildfires - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9QZmtXMkJzNmkyRTZka254V056d09YdnRqOFdSZFFrQkI0Z2QtWDB4SE1LYkFiRDF3X3drVGZPMmFqU1pSQ3k0b2ROV0JiNHJibllpU2d4V2EtUdIBX0FVX3lxTE5KSnNMUkxBUm9CUlFGZVp1R0RXQl9ieFRQdUVJczhhTW43WmZBZkFOTW5INkpTbWlpeE1rSXNnZ0laU1l2V0NhRjI4d21VVDVaZ0RYRFhRdEdtQ1I1dDI4?oc=5) |
+| Historic Grand Canyon lodge destroyed as wildfires force evacuations in northern Arizona - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNQV9EVGZkZ2VaRHZFQnJsUjJScW55RHlUenlXUlJwZTVReDV3UFNlNVJHV3RLZTB5aHRxN0hORndTeUlGaTRWeFByOWdCckZfb2tBZnhYMVQ5T09HanJ4TFpRZDhKbnRuVEF1d1RESFFDQV80eG1XVnZYUXZuMmZmbGl1Qll2UEFaN1BpZHN6NWhpUQ?oc=5) |
 | Bluffs and Bluster Aside, Trump’s Tariffs Are Here to Stay - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBXcHRnMkh4OEFmNGxpbDNLZGtmMThBbnVJRVdzc3dUVFZnY1ZWME0zM1ZvUzVYZlNGdGgtNFlYc1YwVUg3SjZGTGVFRHBjMW5DVkFLWVp4NVpHWmhSMGF6MU1hMkVtYUwya3RUUmlaekIxajQ?oc=5) |
 | Contributor: Alligator Alcatraz, the concentration camp in Florida, is a national disgrace - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOdkFSN3ZhNE9WVTNTdUdHa05nN09IT01acXZxM2F0dVRnbnFRVHBsUWJ1UE5GTHM1QTVmRHNaZ3hzekZvT2dZaEJxc1hRbFotRmxBX3ZFUU1LekNOWDl6dXV0eHVrUlVaeEt5ZjdPRTJhLWRpQzJHa3k5bUEwdjIxYTctUi05TzNzQVZJUjFkbWl0Zm44ZjlNYjNFb282UQ?oc=5) |
 | Lexington shootings end with 3 dead; KSP trooper and 2 others injured - WHAS11 | [阅读全文](https://news.google.com/rss/articles/CBMilgJBVV95cUxQLUIwUkJySjFyZEduaS1QdVBKY2xWZC1XN21NQjl5MHYwVHlmeXNld21xb1VIQ2duSTF5QVNTYVphbGtkdERacVIzdnM0dU95VXFrZHFwNlFSSllkMDA2TWxzYkNLRkRBaEJVN3BaOVJrb05JNW1YZ2xuSks2dHE5SWRWSUlNbXRGWkdDb0ZFZDd3LUVVNk8wMlBGMXUxWXpCVkNuSHRNV1FSd1A0b2ozOXhQZkdEYzdpTzBJUXRpb3dGSXd5czExWUcwOEhNdmZtNURWVVMyZEFZOFFhN0hoR0k0TmtKQ2g4azlTZHQtODV3UVd1U3RXUkJqYzBqN3BXZTJFRGlpdkNWci0zQ2tCRE82dkJldw?oc=5) |
