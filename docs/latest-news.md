@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月17日 22:42:21（北京时间）**
+🕒 更新时间：**2025年07月17日 23:01:44（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Busiest UK airports raise drop off charges, says RAC | [阅读全文](https://www.bbc.com/news/articles/cwyg0ly2ld8o) |
 | Tomorrowland organisers say festival will go ahead after fire destroys main stage | [阅读全文](https://www.bbc.com/news/articles/cpwqewyrw57o) |
 | Two men framed by corrupt officer decades ago cleared by appeal court | [阅读全文](https://www.bbc.com/news/articles/c5ylzyr8gpko) |
-| Several injured after Gaza church struck, patriarchate says | [阅读全文](https://www.bbc.com/news/articles/c8xvnlpx2dxo) |
-| Jaguar Land Rover to cut up to 500 UK jobs | [阅读全文](https://www.bbc.com/news/articles/c86g2d7e4pwo) |
+| Pope expresses sadness after Israeli strike on Gaza church kills three | [阅读全文](https://www.bbc.com/news/articles/c8xvnlpx2dxo) |
 | 'It's just better!' Trump says Coca-Cola to change key US ingredient | [阅读全文](https://www.bbc.com/news/articles/czxe59zl8qzo) |
 | Arsenal sign Liverpool's Olivia Smith in most expensive deal in women's football | [阅读全文](https://www.bbc.com/sport/football/articles/c3r9yz5x3w5o) |
 | Starmer stamps authority with MP suspensions, but risks appearing vindictive | [阅读全文](https://www.bbc.com/news/articles/cedg44wj47go) |
+| How will votes at 16 and changes to voter ID work? | [阅读全文](https://www.bbc.com/news/articles/cm2lgnze013o) |
 
 ## 📰 Google News
 
@@ -27,10 +27,10 @@
 | How Trump and MAGA Fans Are Talking About the Epstein Case - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPSWN1VVpibmVMZm9SNk5fajNHSFRDTkIxbExNRnZhTjRyR0NpdzVjOTAtQU5ld3VuUEF6ZlBIZlNJZFYyUDNOcVdWZk9jdVJXcHFfbk52c3Rzc0hMM1E2bUJTWFEtVnJqN05UVVY2cW1lcGdQM0xqOEtYQW1iVTkxNjM4dXgxc1NDVkw5anJzMG05Zw?oc=5) |
 | Tens of thousands in US set to join ‘Good Trouble’ protests honoring John Lewis - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNYi03ejJyTExidEVlYWJFaXR1U0NqdUJ0UEI3eUk2dlBjZU5kTlZ5X2Z1NUZlWXBBWHY5QzV6OUp4UHpBczdmdU1fMGJKZWM5WGlKU2RnVENiRGtSWGpGbS1qRTJVRXp3YWNoUENQN2h2aWY4bFItOHNIa0lxNGJXTm9kN0t4THZoM2NIN3VrNA?oc=5) |
 | Maurene Comey, federal prosecutor in Sean 'Diddy' Combs and Ghislaine Maxwell cases, fired: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPdVNqb21fLUV0Z2IxTXZDWWdOeUZ4Wi1kTkZsTXo4X1ZGZGQ1Qkp0SHpidWd2MjNuNk9JblphS1lIZnVvNXR5Vnp0N3RjeUp3eFhqQUo3eUxMaVMtWXl3TUVRVzVCb05xazZ2VWNBcE11MFplaVlLeDhfOWVCMlVTdjdNeENxOTZrazRrMEFWczBaUGdYak1mdFF3VdIBoAFBVV95cUxOenNERXgzU1h0aElheTJDNGdkQ0RYT0FxaThIMm9jc0Qtd2ZZUkZ0XzE5NUgxOVY2ZFdsc2ZZT015aVJEWVZSSXBZUU5oYlNaX3N0NTVCQ1l0Z2hJaVg0S2R1VjJNOUNpZDFzaXo0TjVXeWt3UU9uV2U2TFRoS1F4U3EtZEdKdjRQN1VWdXBzeHFxVjlfOWtSa2hya3Z6RExR?oc=5) |
-| Senate panel to vote on federal judge nomination for Emil Bove, who defended Trump - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE82cnNHWnNqeDY2ZU1DWlF2NG1PRm1XQ0RXVGpmN3RSX2Q1U0FPNjJhRTZNM3dkU0xOZVpmTHJGYUZmd0tVTDBzSEVINnZUblF0cXdLX1ozaWFQMmNvNHVXdEhoZ1lZNkRTYU1EOHRTSVJ0Znd2?oc=5) |
+| Homeland Security Secretary Kristi Noem says TSA might relax liquid rules - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPOUh2blBBMTZlT2w1LXBmajYzNm4ySFR4OEVNakh3SXA1RTUzR2EzaS1leEpIRG5nbzl4X01MbURfYThsM1I5T3pTMXQzdXc0d1ExUWlhUEVoWHpCLWRsX243YVA1d2dvb19LbUs5T3hzbGN2VkhoOTBVZkZzZml5Si1TX3VoRFMtejln?oc=5) |
 | US strikes destroyed only one of three Iranian nuclear sites, NBC News reports - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQUE9RYkNmUml1ZTdoMDkxa1dIbGI2M0lCSnMtN2FsR0NYaHMyZ3BVVG1IdmNGNXdnY2tvemNmU0FSS1FNT2p0Vm95Y2JoX2d4NVlXRlpsZnVVVUg2bml2RkFhU2FnR3BhYnhIRFBINW1RNWNHNWxkUHFkTkJhSkwtU29DdnUtdV8tNU5Bajk3cURxeS1zYmVWbVVabEktcUJpdno4ZTNhUjVqTG5OdWhUTllJY3lpN0J3ODg4N0QtX3NZMDdZM0Nz?oc=5) |
 | National Guard came to L.A. to fight unrest. Troops ended up fighting boredom - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQV2dvbG1WMTZkYkxuNTlCUnJZRjJYY2VIdERQcGI1OGlTWDh2WWZzRGxJUHhIQ3FXbVo0bXVSc0hwMWZGakpVZUxQREZwVi1DRkVjMDA1c3BqLVhyZEZwYzBJUG9QVVUzaG0tdDVDeE8yMFhfZl9KQU9YVEtIMVo2QWQybGFSNHkxRE4zSHJQc2ZlYTBuQ18xMUQyYw?oc=5) |
-| Authorities take custody of 21 kids in California while surrogate moms claim couple misled them - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOcUlETnY2ZHQ2T1Z3V2xkcE8wSU1ocTE1YkRfdWRpM0FUQmVkZ195UExkZHNlWEJ6STNQOE9CNENmSTVSdGZxd1NzTnp6MmdaOFlPcTllbWFnVWprdmg3NEFOWFZUN2RpVjN4SldRX1I3QkV4OGU2NFgtZjZmN3FDUlFZQ2dKaGVwcXZMVVBWMFN4V2FGdUpCMjdB?oc=5) |
+| Senate panel to vote on federal judge nomination for Emil Bove, who defended Trump - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE82cnNHWnNqeDY2ZU1DWlF2NG1PRm1XQ0RXVGpmN3RSX2Q1U0FPNjJhRTZNM3dkU0xOZVpmTHJGYUZmd0tVTDBzSEVINnZUblF0cXdLX1ozaWFQMmNvNHVXdEhoZ1lZNkRTYU1EOHRTSVJ0Znd2?oc=5) |
 | Trump revokes $4 billion from California high-speed rail project - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNYUFvTTZNaGpPTWJvb1loQXF1azZwM3IxZmtDSzB4OEpRakpZVWdnSWpSS0NIMnRhTktHREo0N29Yak9MZVNkQVE3OTNMNUdBWDl3RFYwajBIdkxkWWJWR2JVOThPbG9IWVNLQU1TSzh3cC16eGpJNktUOVVsaWNVeHNUWnJBUGp0NG1WV1JPSUtIU1BwZzd2WlhKemc4bURV?oc=5) |
 | Father drowns after saving 5 people from rip current in South Carolina - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPMlBBR2ZkQVk1NnJYQUg0V3FUdzB5QjItMk1Uc0pBYzl2TkdYM1FnUGZTWUdjQWFMQ1htaFZ2VUFMQkxfNlNLQ2thaVhkUXpfT1pjYkxqYTB3TGxNN0RpRUdvRHlLY05qb2hNRlhYVDc4X0hFNm9uazJVQmktOEkxMzdUMC1DMlJHWl9DVlF5SFdUbHF2RHVZ0gGcAUFVX3lxTFA4czhBMVRpNEZMckozZ1ZIT2dXdlhBOWRnQjZYNmpEVVFXN3dqQUR0REhidGVJZU14U1lmVDNzN0J1ZV8xQUtFN1FCdzBlYUliQi00cEJ6a21BbXZYWXphSzE5R0laLVdkVGhaQ1lya0VvZE5YOEdWZlBrZ2VtRFROdDJ0aUtXZnFtSmNVUXhseDNwTUtmemhibWlwWQ?oc=5) |
 
