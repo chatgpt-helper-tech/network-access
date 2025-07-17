@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月17日 09:42:22（北京时间）**
+🕒 更新时间：**2025年07月17日 10:01:03（北京时间）**
 
 ---
 
@@ -23,16 +23,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Maurene Comey, federal prosecutor in Sean 'Diddy' Combs and Ghislaine Maxwell cases, fired: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPdVNqb21fLUV0Z2IxTXZDWWdOeUZ4Wi1kTkZsTXo4X1ZGZGQ1Qkp0SHpidWd2MjNuNk9JblphS1lIZnVvNXR5Vnp0N3RjeUp3eFhqQUo3eUxMaVMtWXl3TUVRVzVCb05xazZ2VWNBcE11MFplaVlLeDhfOWVCMlVTdjdNeENxOTZrazRrMEFWczBaUGdYak1mdFF3VQ?oc=5) |
-| Trump lashes out at ‘weaklings’ who believe Epstein ‘bullsh*t’ amid building GOP pressure to release documents - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE00S0tCNFdwZDQzSW5veFdoV3RiNk9oU0JoS2dRdzRVc0twMUlrZzlxSGpyeUhPWFhfLTFvb05ncDR5Z19nRTdzVUZOb1BlSXFHcVdXRmRwMHctOThfUnJMeDZQQU94YVphZU9jdnp5Y241YV9QaU9YSXJhYnE5MUE?oc=5) |
-| Israel strikes Damascus military HQ as fighting between Syrian forces and Druze continues - live updates - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE9mUUo4M3NBY19GRTktbnJycUlzSlI1UGNNNDl3Y0FRNmNiU2dSamJMU2VsRDRiTWRJMTZoOWEySTBhbmFfcWIxcnAzV2pIR2ZrU3BtbA?oc=5) |
-| Tsunami advisory lifted after M7.3 earthquake near Sand Point - Alaska Public Media | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNSkIwNnhLdjdxOVJodVFGQV9mMy00cUliREkwUGlSWWdUWEJBcEoxLWZhUHhabXhwRUZIWWZBc01oS3VoZXNGSWVVQWpMTUtRNVFPZkRUc182U2tLOHhBemFqNmlMell5N2h1RFNKci1yLW8zc3RRNnJCZmdkM0xkWjNUZHNyY3AyZ0R5T2pRcy1sdDZnZk1JSjBuVzdmQ1pETHFWa29CSXNTZi01Y2xmQk03Y2Y5UQ?oc=5) |
-| GOP senators voice concern about $9B spending-cut bill they say they will vote for - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQTm5nX2VLY0VvVEVwcHd5UWRqNWsyRlNRN0hxUS1vY3puQ0lZOGRCbE9kNDNoVllpOHVyYW1MNmtEYlN2aXBNd2daNTZDVDFhMDZHWmphS0Utd3BoR3VndmdGeXBqNXdCT3c2NHJrdGF5VDUtRnkyUDdxdkJycGQ5TFJNV3FhRTNxT05jbmNyT180MXhUcFFvdVAxbW1faTdJaUxfbWVrTEM3b2hZX1Z3LWVn0gFWQVVfeXFMTTNRMTItRzdMeUJBN3pudXd1MXNjcEdiZ2hybkFuTU1WNXFFaDBiTWt5VlNpOVF3bXVuMU5qZ1hKZ3ZzWlFjYnJvTjRXeGtkTGhLYlM2NXc?oc=5) |
-| The Chaotic Early Days Inside Florida’s ‘Alligator Alcatraz’ Detention Center - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQQmVjZnZ1SGZqcTl1QlllQURKbjR0X3pQczhwSFFrWmY3WUltMHpxeHRYcThuLS1aNlF0U0tiZkRIaU53T1JxdzJUcWctRzlhRkwtY3I4T1hTVmFtU2liaUJzMkhNekVUSUstY0kxbFZVTkFoRmF3Y1NXU1dOdTZkanJFaDkxX2FSS3FldmxwcVVqdjZtNUJxdHdSTmx3dGtkd2gtRHVqMU0wLVZScHVtTWFvdmZUVUZH?oc=5) |
-| Louisiana Police Chiefs Accused of Fabricating Robberies in Immigrant Visa Scheme - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQTEJzeVU4azg5anp6S19OU3pGSzNNRDV1UGNod1NHUE9hemNDUjlVWUdzdHIzNkxCZzZ6UjU4TzFNbmdKa3liXzFNXzFpZnlmSTduUXV3aHgxTU5IWVhIeU1GcmtuX0dhUmx3RC1CWkVDUmZGaWVpZEo3SmY5X3ZuNWFzelBnalk?oc=5) |
-| Former NYPD head accuses Mayor Adams, police brass of 'criminal enterprise' - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPTllXY0l1ejRkNE5sMkljVkZuSFBuQjVuUEdlLS1sangxQkliUUdlNG1KYkRQWV9mWHB3bEdGTUVkX290M3ZJeHEtWHM3WEFwVERDSm5LU3RGeXpBS3MwYmFXNnlMaEtjNDFIazNldy15czhJa0theFRCdEVJZHZHTFRDOWxZU1RGVEJqTWlRQlh0WmxlbDU1VFd3LXlTc1M3?oc=5) |
-| Russia Appears Unfazed by Trump’s Ukraine War Ultimatum - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNYkwtWkswMjhUQVBpUFZlS1FZMU1RWUV5STBIcDlVT3lmWlFBUnE0Z0RoZ1RDejd2OHMwRVNYaG5RdkliOHBuQmI0X1hVcWtWU2VzN0gxUXNTRGVmSlozeWhFcEhEZTlDbWh0dnJYcFJKVzBQQjRDXzBQbUVhTXlMWQ?oc=5) |
-| Talking ‘Trump accounts’ and mocking Democrats, Vance offers preview of how GOP will message the 'big, beautiful bill' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi9wFBVV95cUxPVG5VYkZwd0YwUmtZTFhHaTQzTjMtaU41a3pLUHU0M01jNnVzSGdoZmJmekVRcTc1anI5TEwxQnhhU09neDREakRTVjY1c1JwZXc5cG50SVhzTkFYMTI4Z3pvQXQ1RldYdUtBR2JRU3pZX2FxdlgtbUlxOURDS1Z4U2Znd0xhZmlOWGtJd2oxcGhXVFhRNUV0YnZrM0ZkMllyN1NzTGRLSlM5MFB1N19mRGMybHZSNlZWekFrU0ZZT0hMUkdPRXZqUVVCM1YtVlVJd0EwNU5QejhoTllhWU9SY1dtaWUwMUFWUXNRd2NyX21JNTVVeWk4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
