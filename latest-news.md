@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月19日 01:21:24（北京时间）**
+🕒 更新时间：**2025年07月19日 01:42:29（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump rails against ‘NOTHING’ Epstein case after WSJ report - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQQVd6N281Vml4R2Jkb2JaUFF1RmZYRjRQei1ITlBUc0QybkxxWS1CLTJWV0JaRmtIVW9xU3diUENlOHk4eDRZMS1mdE1TYjN3amExVEs5YVFJcHVEMDFvWVU0amtBNm40UXhwdk5ZREJNXzJueTI3SW0wZnJscG5IZ3ZMYXphM0NwVmtr?oc=5) |
 | ACA health insurance will cost the average person 75% more next year, research shows - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQX1ozQ0FRMUpTT29saVI5bGl4cXA5clZLWjVrSTRCYjJsSDl3dFp2ZXpPYnNNTHUxZF9OMTZwUUVaRVozZzhLT1RkU18wMUItMzB0Q2lPMFY3ZUlsZE9ZWlJ2V0o5ai1iMTN5QzJzMnV6TmhqZEZCVmJlRHh4WUpkTkN3SzFPRVcxNmVCUmVFa3hGS3BXYnBmVndXQ2UxUmp0MXhSVk1tNk5UNU9OZDN5S0RpMjJUR203ZE5r?oc=5) |
 | What is chronic venous insufficiency; how serious is Trump’s condition? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNMXkzajdrUW9UYVNOQkoyWTJGSmVsQm1jWEVRMUlVYlZrLTBqMHNBUHppeU91UWpJRmtBdTVodU5DTzBOdFAtTkxPTFZkYXFETFRUU25yQVp5eVdGNmVranhrTFlSRkEtZ2lIT0tHdzdoREhIN3VkRmFEX2FsN3JPdjdpcmtfeGRQcmdkT3ZPMVdpdDE3VXo0bTl6c2VVZlFnZ21PVXRqN21sLU5hN1HSAbMBQVVfeXFMT1RVWERLMVlrX05uQktWOW15bG5OMllnbGZfMUM4a2RzVkJmRnZkM2dJRXNIOGNOVmVSZHQ4N2R0Nll6TFZWZGdNVzQxNVFwck13XzktRGdYQW1TTzdUMHlwSTI5VG84dVhiRmx5NVgzaENnOFJTOVNYT1laakd0enhiS1EtRkRlYXRnbHZVY0ZIdUI1YTZBbmRiOUx6aC1VZldBY3RYOFM4OGpZN2kwdW9TN2s?oc=5) |
+| Teen suspected of killing Maine paddleboarder to be charged with murder Friday - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPbmROWXZYRTJBQTJidE9WWWZkWHQyUHZDaGpMX2dReXVoTzgwT3pzVnVYM0FWVmxpSHVrRV9wNi10amZuWFVLVXJSUnNVUUhsa1Bad0p0MkNrbHFuWWxMY1R0QU9PaVFBdXBTcmVTN3VHWU8xZ1RqVjN0cExrcVVvOGJYTUxDVS1vU09zdEVLVTN5ajNOemtWcUFfeV9Ub0pYSkxzb3duWmRDdFFaTEHSAbMBQVVfeXFMUEhfS0syeW5VS19hRFpEczZBMmRyVE5FM2dyc1RFbWo0SnZSdFg3a09KWDVSTmVSNFNSUF81bEhPWXNnNHZmeHVRMXNyT0E1QkN0OU45WTZ1eHY4a1ZnREtfTXBFZEtfd1EtWjA1R2FJZi1NVEJYLU82RVczd0FaOUt3OS1GVjI0d3lXVXF4WGRyN0dHbjVEcmhrVDRFcnlOUC1QOC1mbFF5cm1lLVVxWnNKODA?oc=5) |
 | Felix Baumgartner, Skydiver Who Jumped From the Edge of Space, Dies Paragliding at 56 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOR3Z0eGtmcVNuVlZBbHFJUmVxUVNBakRpblN2U1lacUU1d3RvVkdWREpvSGkxeWhFYWxWQktqWHVYU1RGUUxBbnV0T0trZ0dKX0ZTU1ZEeWIzZmh4c29NR2RQNFA0cVJmNTBPTDhLU3dmcmNfQXFGMWZWb1R1dDRDRQ?oc=5) |
 | Brazil’s former President Bolsonaro ordered to wear an electronic ankle monitor - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOaG5DMWptSl9UWWJ2SDY1WHVWc1NYUjhQT2F5dGVGMXFOd1lPV2xkZngzTjJhbWw4WWhhTDNRT0R0dGh1aWpYMWNFQUduSTlETjBsd0V5N2tVTmd1cFRUSXFvUXhxVXlUUjR1UU1HdTVsaVc2S3k4cEVzd2NaOFM1UTljNTZpUE9zSnN0NUY2Xy1mMEVaWV9nY0JZaklrYlRLX0drRzZHbw?oc=5) |
 | Scoop: Trump's new Alcatraz could cost $2 billion - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5td3Y1UXNIajczelJ1ekhUVDV5TFdsalJXUEs0bEhVaVlOdkJTYVVrUFd1YzJaRVFlSHFLa2JYNFczbThBWmZfZEZmcHJKWWhtQ2ZTeng5SUlDZnhTZUZ1RkwzR0xRa3Nual8ybkJOOVA2V09lOTZFdw?oc=5) |
-| Trump immigration raids move north to Sacramento: ‘No such thing as a sanctuary state’ - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQbFFlcHpoM05iZkQ3Qm8xMXItWUQ5ejM2NW1MVFZTZU1nZXdDUXNEdTNtRk5ObWlqdVJwTU5zRk1pd1F5X1QxdllVX3JVdzRqcC1uT2dZNC0tUS15bVctcDdpMTRvekQ0cF81MVVaY3ZDei1GUnBCcHVCUUlmTjFBWWZjME9mNDNVNFRBRnF2TEY2VFB4M05Rc05kTnlrR2JxQjZrU005MHFLdzNhTkJmY0diMTVpWmRVTk5FdjJJWlFHUkJ5d0gw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
