@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月20日 01:42:53（北京时间）**
+🕒 更新时间：**2025年07月20日 02:00:50（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Man dies after being pulled into MRI machine while wearing metal chain: Police - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNN1FsMC1EOVBHYzI5eDZrdVd4bzhDWlFyaWdUbERTbUVkYkdGdHpOcVgzalA4WnZCcVkzLURQa0V2QnJBNkNOR1hIOTRHSVkxN2dJb1k0ZldMYjk5THNROGsxZjJDendwRnJuLXJSLUdBcnd2dGtucHZfbGMwWF9qVWhWTUVtdnM2UUNmSjkxMNIBlAFBVV95cUxQZkxwYU1ISDJSQ05Gc2laekJOejVNRDlKMHBOOHV5aHM1Wk1JUVRNVTZia3h3M2dHUHlHclZmVHNybjFyQURqbjhNNzhFcUhhS204NXA2YUdGN0dQRFlPOG00VG5JZ253Y09wRTVNM21BdjFhZjR3QV80MUZVZVdNdEJLZDdDTXRGd1dTTDN1YW4wMlMw?oc=5) |
 | 'Best of the best': What we know about the 3 L.A. County sheriff's detectives killed in explosion - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxORmVYTXNsRFBXRGltZmJiWXJXRTlqb1hQbUhSSzhzSDNwVFhjbEVIZHh4Z3FmTWJ4MGFjRU5iT0V6MkpkYTJfZmhNMVRVUWM1N040NTlaSXR4YklfS0xXOVFZMEdxUWhESWhxUkJleDdUUHhTZS1CYWdBR3M5ZUozZ2E5Zk9oM2w5YW5Ec2toVEFVUTdtQlJxc2t2Mm42b1duWHZCXzJJXzk2Tjg?oc=5) |
 | A Kentucky Republican and a California liberal: The unlikely alliance pushing Trump on Epstein - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPb2NQdTRRdFJicDBtR0NWX1NOSW5ycmNyMGtzZEVmSVMtS2hlYnBHSERqLTIzN1lBUUhoQWZoN1NPS0VMcXhCWW9MQk5MaHVjbTB5VGJodWhiWDlvdWZUVXdZc3hIWk1KNk91TU5jUnUwOG9PVThQOE4ydkJ1aVF0OFhDWWg0U1Uwb2t2MThFeG1iUWpmaXZUQi1rblVJTFVseHFnZE16amU0TWl2UF9hQg?oc=5) |
-| Why Are More Than 100 People Still Missing in Texas, 2 Weeks After the Floods? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9FejAtTnVpM0VaRU1yTlUtWXRQZXN1aVhsUmdqeXNwcWhLUG93eDVoQV9zWlM4Z1lkMG5CcUFnN1FRWFlVeTh6Q0hsMWV1STQ4VzZsRE9PbFA2a3k1VjJubkdQa2stZFM3aWkwMHg0Sy12TXE1Uk1Vc0hfbDg?oc=5) |
 | Sen. Nicole Mitchell guilty of two counts of burglary after multi-day trial - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOZjhlMmFLVXdZdUVmaUR3dklLbzNJRU90cEFQejVkOE5neE0wVi1fWjRsN3dBMmpoSzNtZWZITmxtNGU3RGMxa1RLR0JKT0V5ei1GbDNqVVZuaE1IR2l0NnpSZjNOOExpc3lKcnEtMUl1ek43MzU4TzZReUN1ZjE3TG1YU0RwSFRENlE?oc=5) |
+| Why Are More Than 100 People Still Missing in Texas, 2 Weeks After the Floods? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9FejAtTnVpM0VaRU1yTlUtWXRQZXN1aVhsUmdqeXNwcWhLUG93eDVoQV9zWlM4Z1lkMG5CcUFnN1FRWFlVeTh6Q0hsMWV1STQ4VzZsRE9PbFA2a3k1VjJubkdQa2stZFM3aWkwMHg0Sy12TXE1Uk1Vc0hfbDg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
