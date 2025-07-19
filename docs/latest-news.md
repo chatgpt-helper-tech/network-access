@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月19日 20:43:23（北京时间）**
+🕒 更新时间：**2025年07月19日 21:00:26（北京时间）**
 
 ---
 
@@ -9,11 +9,11 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Syrian presidency announces ceasefire after deadly sectarian clashes in south | [阅读全文](https://www.bbc.com/news/articles/c0m87d4p9gvo) |
-| Trump sues Murdoch and Wall Street Journal for $10bn over Epstein article | [阅读全文](https://www.bbc.com/news/articles/c23g5xpggzmo) |
 | More yellow rain and thunderstorm alerts bring threat of flash floods | [阅读全文](https://www.bbc.com/news/articles/c8j1nvp9440o) |
-| MasterChef crisis: Wallace and Torode were 'never friends' | [阅读全文](https://www.bbc.com/news/articles/cj9vgwr48gwo) |
 | Several critically injured in LA after vehicle driven into crowd | [阅读全文](https://www.bbc.com/news/articles/c873vd3y007o) |
+| MasterChef crisis: Wallace and Torode were 'never friends' | [阅读全文](https://www.bbc.com/news/articles/cj9vgwr48gwo) |
 | Who is in charge? The prime minister's authority is in question again | [阅读全文](https://www.bbc.com/news/articles/czxwe3g4wl5o) |
+| Trump sues Murdoch and Wall Street Journal for $10bn over Epstein article | [阅读全文](https://www.bbc.com/news/articles/c23g5xpggzmo) |
 | US tech CEO suspended after Coldplay concert embrace goes viral | [阅读全文](https://www.bbc.com/news/articles/c80pnnn0gj3o) |
 | Fantastic Four and Pokémon Presents: What's coming up this week? | [阅读全文](https://www.bbc.com/news/articles/cy7n3epl1yxo) |
 | Wasps are back this summer – a lot of them | [阅读全文](https://www.bbc.com/news/articles/cz7ld2jgqz2o) |
@@ -30,9 +30,9 @@
 | Los Angeles: Several critically injured after vehicle driven into crowd, emergency services say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1hdDRBSXRySXp3MzlQRkRZVTNkN25TRW5wdkhsd3lkRElacTR6bldqd1N6RE1qQS1QTzdFQWMtaUxCby1iSGZkSGltNGdrTWZraUpndi02NEZOZ9IBX0FVX3lxTE5JTktWTGgwcTFfamoyWmhnNFZjYUl4cFhIZ09HLTFtNmpITnpWdk1vT0pkTFo3eUFzVGFNZFNyajliVXI4ckYwOExHV1ZZMl9aM2YyR0tOQ21iTnRFZFFB?oc=5) |
 | The USDA wants states to hand over food stamp data by the end of July - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9NYWxSTlZmakJEbGctV1lYN3VnV3ZiR2J0dDR6QW9JZHBPZV9xVkNreUhxaGpZSUJLYmlTeU5lc0FqdlZhUGtkS0xIbl9FQjNmTTZKbTlNRGZmcl90elB6SWV6RThlN2JnY2ZKY3ZvNEx5Z0F3TWxIM2p3?oc=5) |
 | Sen. Nicole Mitchell convicted on both counts in burglary trial - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQdU9Rdm53MG1UQlkxVDI4Y2liYjh2bDI4aWY4akJDVVRfck8wUjJCT2ZDeHpSRkRRM3BPNGFzWmhMVDBCcE41MGZaR0ljRHlyNWJmZk1EZ3BLd19qQjVVR0Z0d0FCc0ZnUHRSYk52aXpJYzhSbUhHZlVmYjByWndxZnhxajQwamVEamRVMlNR?oc=5) |
+| Why Are More Than 100 People Still Missing in Texas, 2 Weeks After the Floods? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9FejAtTnVpM0VaRU1yTlUtWXRQZXN1aVhsUmdqeXNwcWhLUG93eDVoQV9zWlM4Z1lkMG5CcUFnN1FRWFlVeTh6Q0hsMWV1STQ4VzZsRE9PbFA2a3k1VjJubkdQa2stZFM3aWkwMHg0Sy12TXE1Uk1Vc0hfbDg?oc=5) |
+| Two surrogates speak out about California couple under investigation - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPQnhmbFkzQTNuZ1JWdXk3TVJYWGlzd2dYLXVBODhxSENBUEJ1S21HYlFybnRnUUEtR21lS1FKRUU0alFkbFpFdkkxcnprWWtGcnVsS0htLUpUU3B2ZE82WnQ3RkFVVTlaN2JXTU9FRU9SMFpkQTJ3ZDJYRTUtNnJ1aXlsTlBCaFFCXy1FejQ0WVFuTWl5WHRpcjFtQ2hQTm9KRHNMdHVxZ0tWUHM?oc=5) |
 | A Kentucky Republican and a California liberal: The unlikely alliance pushing Trump on Epstein - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPb2NQdTRRdFJicDBtR0NWX1NOSW5ycmNyMGtzZEVmSVMtS2hlYnBHSERqLTIzN1lBUUhoQWZoN1NPS0VMcXhCWW9MQk5MaHVjbTB5VGJodWhiWDlvdWZUVXdZc3hIWk1KNk91TU5jUnUwOG9PVThQOE4ydkJ1aVF0OFhDWWg0U1Uwb2t2MThFeG1iUWpmaXZUQi1rblVJTFVseHFnZE16amU0TWl2UF9hQg?oc=5) |
-| Aspen forum attendees admit there’s no return to a pre-Trump world order - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPS0ZoVHBRbk5iYWZhTEp6NVN6Vmd0dUZmR2pibEhCVzZ1Z0dlVU82VzhXbmtmcUs1c0x1YXR4VS1ybVVNUi13Qi1zOTNpLUdzVVJ3Mi16SVdLa1FFaHhZSkRGZWJ4SFhtTnpNbUg1M1d2NkRjMlotSWtrWjc1VXoxLVFld2VzalNoQnpQRVpPcWp6WUJRNXhYTDh1bmlHLWhSMmJLeGFwc3B2b2k1R0pFUERqaXcyMll0aWMwamRR?oc=5) |
-| Makeup artist is one of the US deportees sent from El Salvador to Venezuela, congressman says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPVGZhbk5JdzZPaDBySURpTVk3LVhxX2JOX0t2Z2hMUTRCUGtlSW9HUkUzSHRwZGVtdm4tUjFNdnJTQnNsVkVmNDRseW50ZDNoUVlsUXpEbEhFS1FmUWR1bmxNYkZmVkQ3WFZXNnNCNThjUEVGRlJrMmQxel9vbU9hV0RvdkMxLWk2QnpNSFRwVXNzNkhwVmJKUFo4SHM0a0FCWERWVFZNelZjdVE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
