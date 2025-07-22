@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月23日 00:00:29（北京时间）**
+🕒 更新时间：**2025年07月23日 00:21:43（北京时间）**
 
 ---
 
@@ -10,12 +10,12 @@
 |--------|-------------|
 | Ex-Unite boss McCluskey took private jet flights arranged by building firm, report finds | [阅读全文](https://www.bbc.com/news/articles/cp3kgg55410o) |
 | Cleverly returns to Tory front bench as Badenoch reshuffles team | [阅读全文](https://www.bbc.com/news/articles/c24v0j73e75o) |
-| Mike Lynch estate and business partner owe HP Enterprise £700m | [阅读全文](https://www.bbc.com/news/articles/cjel5qpe9vyo) |
+| Mike Lynch estate and business partner owe HP Enterprise £700m, court rules | [阅读全文](https://www.bbc.com/news/articles/cjel5qpe9vyo) |
 | US justice department asks to meet Epstein conspirator Ghislaine Maxwell | [阅读全文](https://www.bbc.com/news/articles/cgjg9j0l7j9o) |
+| Brewdog to close 10 pubs across UK,  some 'within days' | [阅读全文](https://www.bbc.com/news/articles/cgmw0mmxpjlo) |
 | Man who murdered wife as she pushed their baby in pram jailed for life | [阅读全文](https://www.bbc.com/news/articles/cq6mn3r20p7o) |
 | Food bills on course to rise by £275 a year as prices jump | [阅读全文](https://www.bbc.com/news/articles/cn5kvv9n10go) |
 | Five-day doctor strike will go ahead, says BMA | [阅读全文](https://www.bbc.com/news/articles/c86gz61151zo) |
-| Brewdog to close 10 pubs across UK,  some 'within days' | [阅读全文](https://www.bbc.com/news/articles/cgmw0mmxpjlo) |
 | Welsh Conservative Laura Anne Jones defects to Reform | [阅读全文](https://www.bbc.com/news/articles/c2le45rj1dno) |
 | British man who 'dreamt of being like James Bond' guilty of trying to spy for Russia | [阅读全文](https://www.bbc.com/news/articles/clyn0ygwd7jo) |
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| DOJ reaches out to Ghislaine Maxwell’s attorneys, expects a meeting with her - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPT0ptbGpqX1UtSXFHQm43bVMzdzFXQ0toV1Y2eFJEb19OeEIybURTaVNqcjBVT3FwWU0tVWFUOWJnOG5nVlozTkxfVHVZZGlUWWxnOFhPcERraUdFSGY1SGRCRzB0RTFMbkt6XzlnREg1OHNCelAtX1M0VVUzMU9PNUZ6dWJLQQ?oc=5) |
-| House paralyzed over Epstein files for 2nd week in a row - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNcFU0emtBOUFGOXBqSVJEWENWM2tGck93R1Uwb1ZjeHlBckZhVzBBOTZ3REdZUE1vQVZHWmV3MVQ4Nm5ZdHFnQTVXWVpsR3pRRE1CRUY2QjBJZ0FqOHRnUnhncGlFd1AwZ0pVRkhhY3pkbmNXdVVWMXBsSUxYei1INHgydHYwRUQyN2dla3dwWUNmcGxKVUYwMNIBngFBVV95cUxQMU11WThWSmtxQTV1VUdidFIySGtacWhPYlBWclhveWppbF9WY05Hb3QtUnlnOTB6UDRZOXdZNnZfNFNqNVZTbGNkQkwzVG16QktLVWs2N0JZdVplNXJzbmNhYi16b0g3T1F1MDN3ZmZ1aUdEcFFSLTRUVkFBRjJkc1RXeElYSk1TS0V3QlNmOHpCOV9xeVNKdnVNUHEzQQ?oc=5) |
+| GOP's latest Epstein drama: House panel to subpoena Ghislaine Maxwell - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1qMVcxTmxiRF9CRXlqRTdweTFBV0FRTjJwT3lDUmFUTVRQeDBpZl9XNnRWelN5QzRXaERNZmt6U0prRWtIeF9jUU92UDBBOWhnN3FzREpESEVXSGJ2cmMzNGhETnlTbWVwQTBuUm1DaWo4NWRPUEhxQTAxMkRpN2s?oc=5) |
+| Mike Johnson shuts US House until September to avoid Epstein vote - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5faGQ2UzByYWIwdEExSDlnWEVZN2EtY3EtTGwzRVpJNWJUUEc3aGIyeGhDeE0wXzZONEctNWRsTGZ0M0xXVUI4SUlNcXlYZGNKV3NCbHpyMGhqQWtCSVgtTDhUTkdJQUktS1RQc0F5MnE?oc=5) |
 | Martin Luther King Jr: Trump administration releases files on slain civil rights leader - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1zYlYxNWxPb2IwWVN5THpYdTNFOVdPdG5fUkNSa2lUUF82dWttQmh5R0g4Ry1yei0xdzAtWTZkRU5jT0NKTUtUb0wxZHF3OGNINXdSSzVXNlhGUdIBX0FVX3lxTFBMby1YRmh2bFNGc2J1MGRUYkFtcHp3dW95djFEanV1Q1ZPOUJsbGRlLWFIZWlvWHJOTG5qUm10X21MUUNlZmxsN0xJY2I3bFlPSy1ISGl5dEhLdnY4eVd3?oc=5) |
 | ‘It’s just wildly misleading’: Why the administration’s latest allegations about the Russia investigation don’t add up - CNN | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxObEhJZzhRV1J5UkExSGVzT2ZHbWdDLUlmSFBWQTZMbTE5eC1QQlFWQ2NYZWo3VkV0ZGFvTjUtTHdDV2s4U2ZBR0Z0MTJ3QXNzcy1QcVVQRWRkTGhRTklEN2ZwSEZfUlVPY0hheHE4c3VLU2doZmlZWXhvS0VQbmZkNHVqWmxERm1tOTQ2a0dDSzZGRkZjZUFjSVJza3ZIVUFHLWVLUHBQcGVIRUhtR3NmOWdjaUPSAboBQVVfeXFMTzhKV2NoZUNDNmlqc1R1MWF0UVhZWUJISEstM2lJazA2MGozdlF6dHFiU194ekMwQ3h6REdFdmJTRFR3Vm1nenRFcV9Pemw2ZEJIVDVyVGFMRndpRTM3MXp6REM0bFk5UnllYnBXdFd5cGowSkNHdG52MzNTbkpxX1JPVS0tZjlHNkVQOG8wOTB3OFE3ZE5oYUNLUTUzQm03RUd5d2o5UVZVSTV0d3UyUnFBRmc1REFPOGVB?oc=5) |
-| Trump pulls US out of UN cultural agency UNESCO for second time - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQVGJLeTBteDhhbEVUR1U1SW1kU0lFZXV1SURaV1ZNRTRDcjJCYmlFMVBXbzduMjFQRzRyMDlkQTU5cVZ2M0d2WnU5c1dIOFU1eFdvWmY0bUhJdHd5cXY5dEE3VUktZDNYT01VMGFBNXVJQTkwQzBxVERkX2Ztd0lmS0dVT0I5SjV3b2g3TzJabW5GS0hRdmFIc0d4QUtBbGM?oc=5) |
-| Is Medicaid rife with fraudsters? One man explains why he breaks a rule - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNbndfaDdVaWpxSlQ1SFhic251UWRYZjQ2cjhsREFWejFsXzEzczFOR2d5OXd6Z3VST0RiRWlXSEtBenpRRy1uUzJJVkNJVFFscGNKbU95Y2Rib1JyMjBFZ0tpUXM1TngwVml3VW96N29YQ002SVhVeVZHdmI3ZlFFQnFvQ2JON2F4Y0xSRXJZTVNBR2ZSVEFtNzJ1aXpBRHpoZG56eUFpeW1PMVpyU3pJZ3FlTDhwNUU?oc=5) |
-| What the sentence in Breonna Taylor’s death says about police reform under Trump - The Christian Science Monitor | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOZExwXzQwSGZHdW0tUmk4YXMxMVpwZUk0bHc1dFFIeTA3YWUwQ2Fod25GQk16LXp2cklCNzdLZVMtWU5XQkR2U1lSN2taVXIxWjJKX2xkVDZKQ3dmcXQxTW1BSG54LXhUcl9LZzJuVUNlTmFIOUE3M0FHTGxyaEJyb3VRaWhxV1c0THZhSkZTbW1CYXlOM3fSAa8BQVVfeXFMT2psNkVVTXBxSWttamZXaVAtQThoZG1pUkltV1ZDWWt5eVVwU2Judk1KejI1Ql9VaElKVWhSYVF5ZjJBSmJqMWEtX0NndWc5TnJ2eHNjOVZDb1B3c2lnTHpXMUxiOEZlWkpXOVgtcUR4VnBLVUhMNmFzMUtjRGJNUU5XQWg5eGNaOU5FU2NERDg3M2pic3VTeWJDWVk2RkJHRUQwVGE1dXhnY0hQc29hUQ?oc=5) |
-| AOC’s campaign office vandalized with anti-Israel message - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQNlo3QWxwb2RJdm9kSk1LeGlsLTc5T00xVVdoV0hvTzlXdzBoTlhmX2V6cndKTlFaLWtfQjkxbUdrSlVWTmhRNWNMaERGcVFLZXExWmFTa1RtRGlfb0Flc043aUd5akJUSFVpdkRRTV91WG9zVzludUtqNHFwcm9mMnpPdm9Lc1hCUVVzbDZmbmk1dEstWC1HdjUxaDMxR0tSdGxrb0Q4WGc2Zw?oc=5) |
+| Global outcry grows over Israel’s killing of starving civilians in Gaza - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQZE1nbUdyazRvS1VwTG1wTW1yOTBGRDlVMy05T2J1S0d0RUw4ek5Qek1BbkJrV3dFbnJqSktCMGs5d2lISTAxb3ZiUVZmbURHbFhMeDdINm9IMU85MVRwOWk4a0pudmRtcWRSSzE2QWVQVWVCN1hSVWFMcWYydEk4aHY0Uk9aaXdPZmNObkZnSVpDMWVwUER3MWNfUGQ1czczZjZjMThLZw?oc=5) |
+| Commentary: Hunter Biden lays into Democrats, Jake Tapper and George Clooney - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxNVnNlSUtDczJ1amU2VGE3QlBKSUUyVTZIMDM3Y3ZPcnhjc0hMejlNMWl3NFk3Q0YxNWlnRlZqQkZaM1lTb3o2RVZUTVpWLWROWW1qM3hVRXNleUxKZGJJNkkxNUI4MEpiNEdfYmxfdHhYaUZvbjYxTl9FdHRRY0FiV2VqdU85VUYwR3VfakNlU1BQV1FETk5vN0hCR1ZuYWxZNElrNnA4ajZwMWplVERqRmx1MDR4R0ZLamJHclFR?oc=5) |
+| Ex-Louisville officer sentenced to 33 months in relation to Breonna Taylor’s killing - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQZ0szckFsbVZWYy1TVm14bFFBT1hPbklSSkhVWG9sOWZXUE1aQ3RIQkNqdTRPVnhUaXYzRXZIVGtFR3QwN2pBVzkzU3EwRllySzY0YTFLZzVKbVR0VDhVN0RheVFRdmtRN0V6a3dQX2VJemRsOHZTOGJUaXYtOTVFOUZuSEJIN2owMGFUUGdHb21lV3lucjFYY2dVOF9RSlBF?oc=5) |
 | Investigation underway after Vietnamese national in ICE custody died in the hospital - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPVXFjSTZERnE0R1R4WmlKSV9oSzFmNGFvajRkeEtPQktDbXhzU016SGU2SUZaQ0NhSFpka1BlMlA3YTFBZlJpeGZiU1pYWlgtLWRmTW9sWHc1VS15U2kwQXpBRVB6YUgzXzBiVFBtSzZOS0Q4azctWU9LUXM0Sk1oWUF1VE1OZld4c3BpODU0cU51VmdjaHN5WjBVbk1MTkJhSFVaUUt1ai1kd3pIYXpzR1JWcEFUWE3SAVZBVV95cUxPTWdjcU83X3JuZ0tYYTQ3T2ZzeFQwMTc0TjhVX0ZsU1JFQVhqWjJUaDZ1SV9hZWpWTV9qc0Zwb2NPMEQzZHFiamZ4OThaSlBzeE5XbFRVdw?oc=5) |
-| No criminality in viral video of man being repeatedly punched by deputies: Sheriff - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQZ19TczdBbXh2VjRUSkdic1NQUERYWFl5TXBiNEtESWo4X0hibUFWZkRGMkR1ZTBCT3VWdG5XQnBJRnZTM2p5LWZXZkR5dnhjNFItZXlVc01vMnAxVnNiS0wybkQ1YndJcmo0blpJNGhDdW5JR0xSeVV4YWdjenlRTHhxT2czZktuUHhIYnFJaElLbVpuZXJxSDRKaGpxN3pHeVBSTzh5R1BxeUVFN0V30gG0AUFVX3lxTE55NzBNdUZiQnhCcE9ZSGt6eDlMUGdPeWhkYlFoRTlQVnB5cFJkV0IyNGg5akM1eFlwMW5iVlNWNE1PaWY1WC1ZMDRHZFRudS1IMHZyVnhFOFVMc2xYOUdqbkNiVk5iU2xBQ2tfWlVRenBLbmUwZm4xdGZwRGZZM2FQdnZGeG1JWU5YeEVsSGdKZm9EaENJY1NnVzNFdmEzV2hOTXprS1VZQTc1QTRjYkhyTUdzMA?oc=5) |
+| U.S. Says It Will Withdraw From UNESCO, Again - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5ZTk1zNXdfMUFDOGpRYkxkR1dKR05mQTFWUHozTG9YcEEydHNXd3lDcU9lbmNoY21qQUhmQndJX2dyWjdxbGptRXNiNVhreGQ4TWdrVVIzTG5RWEhfa1JMQ1pnUEM2ZlhBWEV1T2lXX2hPLU1sSlJ6X3NZcw?oc=5) |
+| What to expect at sentencing for Idaho college killer Bryan Kohberger - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOY0JBSE96V01DZ0cyeU1fQ0theWEweUJwM1pUTERMbVFCYXlENXRlRXZvRUVzQjBUajJQQzF4WGZUTkNmRVhvNkZWejMyejR1cVdsODQzR0NXbVllT1BtNGVpcjNZb0wwcVVlX2ZkRk9INzBKcGJ5c3J3QnJmbHJNSEZaYjZnejQ5d0dzZXpoMkVnN3RJWFNMS2ZqWHJQMmlU0gGmAUFVX3lxTE4xeWl5MFdlNTgteWNNMHMyUFRzWG1GWnhOdDZqYmZRRWdpRldJMUxTZHBxRWYxMVp3STBLNXE1cGE3M2lUaXRCQTBhcVdwQVpJSVVSQWNqQ3QtQ0Z2aV85QVlmczJ2N0dDVmpmZDBaUU55NDR4MDhCM05yX2NHWUdzSGhhUkJiT2Z2a0p2ejVYVEVKQlR3RXM5ZU9vbHlpQWJKUVRLdHc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
