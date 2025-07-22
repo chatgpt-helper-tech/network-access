@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月22日 10:01:26（北京时间）**
+🕒 更新时间：**2025年07月22日 10:22:15（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | UK and 27 other nations condemn Israel over 'inhumane killing' of Gaza civilians seeking aid | [阅读全文](https://www.bbc.com/news/articles/c4g814gy2e7o) |
-| Man who dumped remains in suitcases guilty of murder | [阅读全文](https://www.bbc.com/news/articles/c98wz78jy6zo) |
+| Rents rise £221 a month in three years, analysis suggests | [阅读全文](https://www.bbc.com/news/articles/cwyxp280dxwo) |
 | Ibiza Rocks pauses events at venue after deaths of two Brits | [阅读全文](https://www.bbc.com/news/articles/ckgl73kvyweo) |
 | US police officer jailed for 33 months in relation to death of Breonna Taylor | [阅读全文](https://www.bbc.com/news/articles/cpvjwrm29wpo) |
 | England aim to solve 'wobbles' in semi-final, and what to expect from Italy | [阅读全文](https://www.bbc.com/sport/football/articles/cn0zj5r79k7o) |
@@ -31,8 +31,8 @@
 | Trump's spy chief claims the Obama administration 'manufactured' intel on Russia - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQVkNqRTNiVndqR2pMWC1WaGNyX0xjRWVGWG9qVWRiTmVGVGtvZjQwdWVMMnNPOTYxXzBpZU11LXZ2M1JWUW5VVExHaGFPM0NLblZmMEotc3JkVUlwR0pkX21ZSENCaU0zQ0lsRXBUUFRXZ3cyTzRMUTVvYlU2dHpsTklRcTB1QQ?oc=5) |
 | US Marines mobilized to Los Angeles are being sent home, Pentagon says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxORUdOZ3lWalgtd3ltZ1BrWHkwYkRvMlJqbTFNNWdyMmZiQ01fcTcyckk5eENGc25DbElHaEUyZkc1UF9NM25zcnB3azdENDM1OWlmNDBuemZzZ19qNVNjX0ZDZDNoNHFtdl8wMlR3ejNja0pPOE1oTDVjM0VpSVQ5MkZMSFHSAYoBQVVfeXFMT1dEOU1qcm9aT1dENGk1U3dvOFRicV9qOENMaE1RUGZaN1F1MlFHalBBcjkwN3ZyY1didGlnN010NUp2M05QaUtHT0dLQTRoRnJzQW9LVVlVTnJRRXpyQ1RaRE8tV0tWQnpUTE9YU3FqM2VIYXk1cF9vTmk4VjVGQ1E3SGFKY2VWNzNn?oc=5) |
 | Nicole Mitchell to resign from Minnesota Senate after burglary conviction - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPRENyLS1mVXRqZ3RfOEU3eVg3blcyNHNkeGNkdnZrXzlKUUttcTlmREJMcUdGOW44UHduUjFMN2VoYUNYN3R3ZENFaGpJZWwxVE41LTJyel9EMjBuN3F0RzhIQ3RZMW96azZ0VjhsemlfOWtNMWh0SHN2c0lxYi1HNnhEQUU0RjBQQl9ZZkFQYXJ6RVdaXzZmV2pB?oc=5) |
+| Senators press incoming CBS owner on Trump’s claim of settlement side deal - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOd2NHLWV1TlpCazlSMG1WYno3dzh0ZXE5NExTNlZzLVFIa1M0aENmTF9tbVRkb1BQV3lxbEk1YlBGeDROYmtMNGV3ZzdZUGN2ZmhSRlVoMzdES2RycjBCN3VPOUlMSXNHQ09pb1ZJeEo5eFR0ME9yeUcyWGxtNmdPWmJpa1RxZ3NOdmIwZWFEQ2ppbWJ2Znc?oc=5) |
 | Trump Talks About Anything but Epstein on His Social Media Account - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPMk1UUWtiemNoVklBd0Ribk5zUTdMRVV6Ym5uSjlsWUp2eFY1azJmUTJFN0hQc1dhNjNOc3ByTmExSERrUjJlaHFRSEVzNHphZzVXci04T3dtS0ZRVmtmLWI5X3p0UnNfXzFTaHl4T3Mtd21iRDZYcll2SkxnaFRfUnNJVlc?oc=5) |
-| Air Force reviewing B-52’s apparent near miss with airliner - Defense News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxORVhZXzczNkxxQ29DMGpuNFliMWlYellXOTJjMzlRUGh1Y0dmSzIzLUpZa2tHdTRGNnVMYVFrb2pXVGZ4cUFpaFg4MlB3OTkxaFJqODlsNlFnV0FldHhoeWlyUUVsNjMtcmZoa0hUSzdob2NpaDlUWjNBbzdmQklFZzFpU2hBNHJ6NUVJQjIyRkdwUGJjM1JucE5HUlRRcVVsdUNSNHBnTFJzYlRaal9BQ0hxVDJCX0ZHQUE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
