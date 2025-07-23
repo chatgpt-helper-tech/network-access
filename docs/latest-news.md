@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月23日 18:42:30（北京时间）**
+🕒 更新时间：**2025年07月23日 19:02:01（北京时间）**
 
 ---
 
@@ -11,11 +11,11 @@
 | City traders jailed for interest rate-rigging have convictions quashed | [阅读全文](https://www.bbc.com/news/articles/cr5vgqr8p14o) |
 | 'There will never be another Ozzy': Stars pay tribute to rock legend | [阅读全文](https://www.bbc.com/news/articles/c17w4wn71z9o) |
 | Chaos and comebacks: How England keep overcoming the odds | [阅读全文](https://www.bbc.com/sport/football/articles/c1lj0nm0myyo) |
-| 'A hospital gave us two death certificates for dad to cover up their mistake' | [阅读全文](https://www.bbc.com/news/articles/c78np7l9djlo) |
+| Two dead and two injured after NI shooting | [阅读全文](https://www.bbc.com/news/articles/cqx2537w5e2o) |
 | I don't care about my age, 19-year-old Reform council leader tells BBC | [阅读全文](https://www.bbc.com/news/articles/cj61l526xlxo) |
 | Home Office to share asylum hotel data with food delivery firms | [阅读全文](https://www.bbc.com/news/articles/cy4yjpv87v0o) |
 | Protests in Ukraine as Zelensky signs bill targeting anti-corruption bodies | [阅读全文](https://www.bbc.com/news/articles/c9w19pl84r8o) |
-| 'I felt ignored by police when I was cyberflashed' | [阅读全文](https://www.bbc.com/news/articles/cn41p1rzxllo) |
+| 'A hospital gave us two death certificates for dad to cover up their mistake' | [阅读全文](https://www.bbc.com/news/articles/c78np7l9djlo) |
 | British couple held by Taliban 'may die in prison,' son warns | [阅读全文](https://www.bbc.com/news/articles/c0563e6yyyqo) |
 | Heathrow boss 'frustrated' at being asleep during fire that caused airport closure | [阅读全文](https://www.bbc.com/news/articles/c07d4v9j7gvo) |
 
@@ -32,7 +32,7 @@
 | Judges’ move to oust Trump U.S. attorney pick Habba triggers a showdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNcXlNbHhpeUd4Z3lzVjJfTTZZWDRXdmNReHFoWDBJaEQ5TEVyZ2p3Yi1CMFJxN1Z1QTdMYjRCTzZhX0lzZFRCT3JjbWhFbEh5ZWFNWTBLMFkyQUJSRnNSemh5bDZ0UkJjOVRTajA4RzZaOS1VRlJBaDRqMVB2cWR4b2JOM1VJdkpEWDJYMHN4TkhPZFhDU2tGRC1VYmduRG16WWc?oc=5) |
 | Officials search for bear that attacked a woman hiking on a popular Alaska trail - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQZ0FOMXhYVG5VR1RmTlZMdlJkRlFWY1Zjcmtpb3FVWXA4aldIV2Q0SVdYWUg1Szk3VzlZWklYUGFFendCMmdYZlBzNlpaU0ZWbUpmQzFjeTFfYjgtdkFBdERpc0FaZFo0SnYtUDRTUTE3dy11ajNFUlE1TmpyaTJ6SlBBcjRkelA4ZnNZTw?oc=5) |
 | Trump announces trade agreement with the Philippines and terms of deal with Indonesia - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5EelA2MXY4UFBvRU5tOE1JaXNkNGs1WDNXZk5ES29FX2gxYkFPSU1SSEZkU05icHRPV3BVT2VIbmN4alNTa0dtNjZmRTJWaWtZOTgwdldnT1hvVFl5akF3SG4xWmF0T1IxaWtPbGM0aGRrQTNZcXp30gF8QVVfeXFMUEZ1ZUZDM1BIeUg3TzdzN1BUX3ZzTlB4eFhiNnRMMzlINUlvZF93ZnJxNFZqRzFhRmVRemN2YjQ4bG1OUFhReVdxTnBqMU9ZNXBZaFpQMktkQ2VUX2xmcjd1OTBtSS1ncUwtTnJRR2JreC04TGQ4dnNWc3M0aQ?oc=5) |
-| Death Toll From L.A. Fires Reaches 31 After Remains Are Found - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1xSHFSLWdsN0stNmI2dG1YNndSeEhHclRjUUhBcmlTeml4MFFHd2ZHRlJZSHFGbHdZU2JKdnF6N0UtTHhvWXMtams1QUdFVngtbW1JOEJzR0xZbzk5b2hESzZhQnlCbExtN0Q2NTQtM3pVRmVmM0E?oc=5) |
+| Under Trump, Hospitals Limit Transgender Care for Minors, Even in Blue States - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQd0dhSDdlV1p1bG9pbGItalQzSl91ZEgtU3dvSThJQlpBMG9RT1g2NTQ5RVZpNnk2TTZHMEN5SmdyRV9ETFcyTFZqYjN0SWUwempMcW05eHY4T0lVZTExdmNrWmk1ekVFXzNaNG1RTExMdmxWOG93ektXTS1ERE55WWl1aTNrR0FzX2V4U2VfTzc2eUpKOTVr?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
