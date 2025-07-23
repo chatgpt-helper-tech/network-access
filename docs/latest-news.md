@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月24日 00:21:08（北京时间）**
+🕒 更新时间：**2025年07月24日 00:43:58（北京时间）**
 
 ---
 
@@ -9,8 +9,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Top UN court says countries can sue each other over climate change | [阅读全文](https://www.bbc.com/news/articles/ce379k4v3pwo) |
-| Police say two children among three dead in Northern Ireland shooting | [阅读全文](https://www.bbc.com/news/articles/cqx2537w5e2o) |
-| Did Ozzy Osbourne really bite a live bat's head off? The rock legend's infamous moment | [阅读全文](https://www.bbc.com/news/articles/c72ppzwek90o) |
+| Mother and two children killed in Northern Ireland shooting, BBC understands | [阅读全文](https://www.bbc.com/news/articles/cqx2537w5e2o) |
+| Did Ozzy Osbourne really bite the head off a live bat? The story behind the notorious incident | [阅读全文](https://www.bbc.com/news/articles/c72ppzwek90o) |
 | British surgeon who had his legs removed  accused of fraud | [阅读全文](https://www.bbc.com/news/articles/c75r21ww30vo) |
 | Police deny driving counter-protesters to asylum hotel demonstration | [阅读全文](https://www.bbc.com/news/articles/c4g8nzn3ne9o) |
 | City traders jailed for interest rate-rigging have convictions quashed | [阅读全文](https://www.bbc.com/news/articles/cr5vgqr8p14o) |
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Idaho murders: Bryan Kohberger to face sentencing - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFB6VTlqM0oxZHZOY09HQ3dBYXI2dkpIQWJVOHBDREhfRF9meU5CUzMzcHYwT1Uyb2hidy1wOWlzSGVwMEZvLWJmWWRiYzVyLThaeWhpaA?oc=5) |
+| Protests flare in Ukraine as Zelensky reins in corruption watchdogs - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPbG8zM0NjejRlS0x4aGNHc3BuRGtwSkVuVTlRcU9XcVM4UkI0bDZuOEdBMEtVSFBqYnBPUTk1LW1WYWFoOEd6aGQ4Yk1BZnNHdlQ1VEZEU3V4X1FrUjNwNVJSTldCYTd2aXZqOXV2SzA4LUVuMDBFS1BOc3ljZ3oxRnlGclJVWWpjOUQzLXIwWEtvWVdNMVFZRlRJRlY?oc=5) |
 | Gaza doctors ‘becoming too weak to treat patients’ as hunger crisis deepens - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPNnctYkdrTmFObkw4YTJualFXbWV6dENFQjk4aU1QYTAwSjBQUnVBMlhSQTYxdkV1dW5UWkZGZU1DZ3lqTEJ6UXhzWVBCOUlHd1UwcjdnNWtxSEM5ZFpQWWFrbFZwODRreGQyb08zcnFuOVFvVjRYWHV4d18tZHlMb1k4V0tlSTlzcTRraVlxYUdacVA5ZXRlRnRpTExCa3NaMlBrSTJzUmk3V181SWpmSV9rRmhNbnlDVUJLaGoyVlFldE5zZURtNld1Sy0?oc=5) |
-| Ukraine backlash grows after Zelensky strips anti-corruption bodies of independence - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1vWWl5SkFwbFRsYU5lZVhFaF84NkFCeXhQY19ETEpXbXgwUDY4eXNyeDlRVjdNSE1MaEdsdi16MzIyZ3ZRUzJrRTdnUWRvTjZjVjN5RXpsSGx5UdIBX0FVX3lxTFBsOC1ROXg4TkxzNExtSWJ0VjZuNUJGYWlZbWFkWGw0dGlVZzN2TXVxQTZwVzdabE5fTVdLdFBfYlR4V3NqUzM4aTR4ZjluZ2tQR0pJYk1MQzFveURYNlJN?oc=5) |
-| DOJ fires newly appointed US attorney in NJ after judges vote against keeping Alina Habba in role - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBIUUxPMldmZXY0WTZ3czVqRU42RzNrRmdLV2lOM19iSXBuQ1FLTExIMERBVl9GdnN4ZkV3QUlVRjM0NWNhblBHZnZvLXR0QnFEeWdqYXVGOVRnYUlCTWdmSVF2QV9sMTBlYUc2bThRSHRuZWhXb2FCdlF30gF_QVVfeXFMTzNYeG9OcHYyekVnOVE3OVdRYlVLSldrZ19NWS1sU2hvQ0pxajlLSUZraEVLZHdscm16ejJSekhmVFd6amJCTkZ2TElWcDFTbVZOQjVaVVhHZDVKT2ZMSEtTQnB6TUJWSVE2THBjWDRQcXJidmljam5Hemg1NDZjWQ?oc=5) |
-| Live Updates: Trump Administration Releases Documents Targeting Obama Administration Amid Epstein Criticism - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE1HZlhYMGNmWUJKWkxyMGczdWdEVHBPNXYyT2JwT2ttWFZqNGdVTjNhMkZKaUxzZDVSWVA0aTBZb0FkaEcxTTBDd1E4RTJnMF91UVBUU0NBYjhjbTQ3M1c0MEl4MA?oc=5) |
-| No charges for Jacksonville officers who punched Black man during arrest - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOZHdUaHFWUTc1UTRNZkdrQlVwZU1mMXdZMXo1QVN3WmRlYkRQNUh5c2lxR2RhTGxFNDJhaWE1ZWVSUXlaTjNoVC11MF9XU1F1VE1Rd0RaTXBjME5RRGNsemxEaGYwOFlQSGtKemFHejFDNW1ua2xhek5xM2FHU3BYWDVhbWJTOGpHMm00TWFqLS1SWmM3al80?oc=5) |
-| Bryan Kohberger has another chance to explain why he killed 4 Idaho college students. But he doesn’t have to speak - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1tejktNzROMFhpNGtvRXFTSlFMenY5NExQb2trUmYwdWZnOGh5QVd3QVNTUS1kY2xsUE05NklIQmVOZ1o2QlZIUHhBR0NjU2hfQURDdVVhWGFiclh1elBkTWZtSUZ4UlBYYmdNNzJ5cVlrR0NmOW10MnBxRmY4OTDSAYQBQVVfeXFMTzlGVG52WnhVd2hsNkhJSG9BLWpwMXN2RllXeFM5OWV0N2ZKTGxLaDc0emZ0TTZISUluNFlyd0JUdjVJOEdpTUhQVEVPUzVSVFFfdkpGb3NPM3VqLTQzQlR6MWtZTWJ3aEZObFBscHI5dGRqY1AxY2Q5cEdGZUVkeTNtT0o5?oc=5) |
+| MAGA demands arrests after Trump accuses Obama of "treason" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE4wRndGcDNsTjVoMlVSbExHbnAyU0UyWmxWZzFNNXplbDJJWjJLZWctUHdoZzllQnctSDJkdGlWSnUxbm1qYWNPMHBfbzhlMHNtUjRhQ0c0Q1VOWTRPajJra0xPWDBkaUl3ZjNaVkJOVUFRNUotQy1vaTV1QQ?oc=5) |
+| US and EU close in on 15% tariff deal - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9uWEZYeXZubFZPM0RtczV3czg3QmF4MV8tbEg4TEgzM0k1M3FFLU9QN2RpSXNsNUxkbVlEX1lja01GTE5lUC1lTXF6Z1d1ME9qY0psSVVTSFRMa24wNm4xT2tuYUNIN1AtY0RhZkdZRm0?oc=5) |
+| Top UN court says countries can sue each other over climate change - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5aMXFxUGZPQ0l4OXFvQ0ZuRWdCbFVES0hoUnZYd1RzMEdHQmJsVC1PQThNc1M0SWxWWDNYUmxxN2x5U21tTVFHRUVNTGt0MklOWE14Y3cwWkt5UdIBX0FVX3lxTE5fclJGa1EtQ2hraUdDdG9zdWxVQ19UcEhndGVxLWs3TjFJT2Y0TnNvVGVrUVRoWXl1c09NanpvUlhzd050RzR5ekx2MURDRjZ3ZWhpdmNHQURpT0pybC1F?oc=5) |
 | Exclusive: "Release the damn" Epstein files, Tillis says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1GVUdUMXRhXzdfSFhMVVVQaTJmSFplYzVBU0ZZSG1CYTltRENSUVZ3MUhPcHl4d1dEVGZsNDlqa1pMNU96TlJkcXBtRF8yYy1TRjlSLVFGRUhmZ2ZKWWFBMGJzU3ViekJpbXd5V3hOUWxTaVJBbWFtMg?oc=5) |
 | Lawmakers call for release of Afghan man seized by Ice at green card appointment – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi5AFBVV95cUxQUDZOc3N4aDlFcHJyWnp0WWk0dXRvcEFVdUQ3UElwSVdRcXhxdlhkZTlwbE53Tk0tWl9FTERpdVVLenRJOVh1MlBTMlBpdEl3dU43NVhqMklOUXVoMVFqNXdySVJBQnBFVUhYcnhxTVpTdkNJT05mZ21uZHZ4SU9rMzloUHBxN0ZsVTExZHpGWWZLanpMc1pjRV9iREQzQmhuWEw2bEZNTUJRVnpway00aGxpT3RGM0IzV2tXT1dlaldCTzVfUnVZYWd0cEVuWGpldEZBUXJvVF9Nc29QVlN4aFpDUjI?oc=5) |
 | ‘POTUS is clearly furious’: White House is frustrated by all-consuming Epstein coverage - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxPUGw0ck04WG92VFlIX3NTOEJSUGxNdkNiUC1ibF9BaGFORkJocXA0cXFrckM4ZmdGT2d3ZHhRSFN0dFJsaktHQnZqbUhPVjJNaGc0cXVnVm1qRUZyWHRsSDVfOXdsN0ZOcmdnQk9pVUVmUTlqZHJ6eEdsTENMZ3NBckQ1TWhBdGRWdG05ZUpDSzE0dGdrR3JxNXRiUEhTZXBNTk1GS2Rlc0FlZTlfUUlfSWVtQldPeUxqN1otSkJFc2lxbE9yQUJISTlGS3FFa3M?oc=5) |
