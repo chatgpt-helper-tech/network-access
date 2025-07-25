@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月25日 20:00:58（北京时间）**
+🕒 更新时间：**2025年07月25日 20:22:20（北京时间）**
 
 ---
 
@@ -13,8 +13,8 @@
 | Samaritans to close more than 100 branches | [阅读全文](https://www.bbc.com/news/articles/cm2l23ylv46o) |
 | South Park creator makes mock apology to Trump after White House attacks episode | [阅读全文](https://www.bbc.com/news/articles/cz7l7g21e0yo) |
 | Former MP Mhairi Black announces she has left the SNP | [阅读全文](https://www.bbc.com/news/articles/cx202grvk29o) |
-| Kelly Osbourne lost 'best friend' after father Ozzy's death | [阅读全文](https://www.bbc.com/news/articles/cy7n7e6g6x1o) |
 | Thailand warns clashes with Cambodia could 'move towards war' | [阅读全文](https://www.bbc.com/news/articles/ckg5gz03d8no) |
+| Tour de France route changed because of diseased cows | [阅读全文](https://www.bbc.com/sport/cycling/articles/c5y9y2r5l77o) |
 | Watch: Trump jokes he wants Powell to lower interest rates in tense exchange | [阅读全文](https://www.bbc.com/news/videos/crl0l0xxrxeo) |
 | People who cannot eat gluten to be given cash cards to help pay for food | [阅读全文](https://www.bbc.com/news/articles/c0l4d3g4p2do) |
 | Starmer under pressure to recognise Palestinian statehood | [阅读全文](https://www.bbc.com/news/articles/cly2yky91lpo) |
@@ -30,9 +30,9 @@
 | 'You're going to see real hell': Venezuelan men allege physical and psychological abuse at Salvadoran prison - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPcXlwUGpPQTk4RmZ1WE9qeVNfUUI5RHZDbDBBb3NET0VwZ3h5c0MyMWJnRlE4bW0tTGFiSGVVRmN2ek5nQTFBMHFQMFgwT0JtRDNLQXRIVzh2YUQ2TzMwUmwwbFF5TDZxNnJVTzE1TjNvQzZNT0hVeDlhSXhuVTlTdVRNMW5oYUZ2SVRYTE4xeFpYakw0a0N1RTRiYVR6VTVDSThLeEFuN2jSAa4BQVVfeXFMTU5GVjR6Y2oxenc0YWJZUXFSREZ4djFXcTN2MmFKRGRaUUd1QXhPdlE4eEtScDFHVDJ2UjUwa1JYeG9oN2p6aDdHVExTbXBodWcwdXNVZ0JxWW15bnZWR1pGUjB0UnBpNEF5cTU3MW5Hb0otdmtGaUdfZjN5NEFTM1psU0Q0YTZyejZ0SElYSHhqc29xX29tT3c5cmhGTVUwOURhMzNJZWo2U1RCUlFB?oc=5) |
 | Education Secretary Linda McMahon says Columbia deal is a 'cultural change' for universities - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPZTFUb0V3bm5kM29sZzdsNGhvcmRvMXBjcHI4cTB0SGJlZzR4eVROVktDbDRrd0FRWVhqV3htck1oZlk2SWVnTXF4emRrbzFEYTQtZTdXcTVvN2hpUkhaTXVadjJzVGpkVTVCbldQdkJhMlpPdXdVS0p4WEcyT28ybmVwSk1mdzVuWUg5SzNZNkdNdHBGQTRhVGJWNjZyN3JRbXQxWnFQM1JmUWNLZTdlWTB1N0g1N2EzTk1j0gHAAUFVX3lxTFBxMnU0YkNTSWxOdnp0akllV2puaDBLY3lfQ3N4bUpEVVQxRk1iRS1EQWhTc040U1JWQ1RLdmQwVjlrbC1EaWNlOXNQdUU1dzB6Tkp3Y3pfTUFUeUM1eXdzTmdrLWVwS0tNaWg3dkJqR1dlUThyZ2g0Zm1JeDNuMHpxb25TS2NMUTZGZ2x4c2FYQ2d5ZlJzclJFQlVLVkZ2c0s4T1ZFWDRXTXZiZ0xTeUJHeEdaaHkyVE5mU1R1S2pLcQ?oc=5) |
 | Idaho Murders Case Investigators Dispel Baseless Rumors and Theories About Bryan Kohberger - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNd3VidDRtbEhqeFZxVUlYZGNFQ0N6T3E0OE45WlhLQlZPTGdyd2ZLR2Z4UkxOMUxPcTU5R3dqOTA1NFVSLURXMFJXX0hVUVdTNUxDOU9kUkJZbWFCY3pubWpiMTkwU0IxLVF0dmVfWTVFYU9ucFh4RlVKRjhfTXZuNHJTSTdYcDZTYmszTFIxV2lUd3pvV2c?oc=5) |
-| Accused gunman was cited by Lorain officer killed in attack - News 5 Cleveland WEWS | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQd1c4SHEzUXFIaWJYeFl5VHZkUUtjOE43UFY2cWFBelc3Q2RyWHpyeS1YaVpvOU1WUC1LWVZKUEhNRmpJckJkd3F4UFJMQUd1cWwyUjRGQTYtSU9oaTZweVNGa0g5MFdzTWxKeEdNZWJZQldtZzB2VEJsVW81UDlCLUZxYmtmYjZZNURTTWZQRkM0TE9QT3dPUXdRdFpaMExDYWd1Z0dXUDZrdw?oc=5) |
+| What we know about the Epstein files - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9ib19oQWlyX0xzbk12YjJGcHNtbk1uaDdNSkZ3MHdBc28yTU9XTzJZTzlVa2I3b3VLSEpSM2JIZDNIUW81TGhnVUtIdVhyQnBYelpGQWZHTVRrV1F4UjBiLUtEd3VKSVpuZkU1N2NkWWg1TVI2MmxVXzh3X0jSAYIBQVVfeXFMTndxakt5bjVQSGtKeTgwdlBNUFJGZTlENkxyM1l0RmtXSWNqTVFmcDllWnY4X1B0RUVpaE5TdWkzajE1RFZCTENWZUxNZjJSTTdJYmR6ZGl6dTNuUXJ5YUlkVEhXaHpHYXZIdElGUFYtbzhLT1hlc0dlN256ZjlXbDZWdw?oc=5) |
 | The White House wants more states to redraw House maps to help GOP. Democrats are readying a fight - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxNREZSeFZyV24xTGRnaUxwUWRic1BKVk91bTFLYUxjSk41Qk1pQ2IwUlV6cXpYZWowdzY1d3U3VloyaTFCSXFpbE52ckFXVXpSeUphM2NKdGdpcWt5TnFIVWYxeExNclc3RG53eDZ4ZFZjOXNlV3lEcnRtSjlKOWJfMUk0bVp3YUlRQW02RFNGM19pb0U0WW1peUc2TTIzTUJzdl81WFlMNURIZWlXTjlnclpDS2ZSUUZXTkRiWg?oc=5) |
-| Court Strikes Down California Ammunition Background Check Law - KQED | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPOGt1NWhqRi1lYVA3Z0hjX05wRmV4dnNEUV9mUjgzZy1BX3NRRVhKdGRFT2ZlR08zc1lJWHhNX3lZZUdOQWViWm00YWNNQ1ZnRGZtWlFsQVVOeGFndU96cVcxNk0yQ3pjOWo2Y3RWMGdNMTRQSUxmSTdYbWJMZjB2RFFzcVUxdkQtM2szbkdBR2h1Nml1RmxlX2c2SFk?oc=5) |
+| Ohio officer dies after ambush shooting - WHIO-TV | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQWFltTXNJbE1xcEJkelZIbGFMVnl1aWJISVJ3RkdUbDIxQlVHQi1TVzdGZ0hRNng3SWFoNFBDNG1NVmJFc1FOZ1NINkNwZ2ptcTFjb0IzX0N4S2FabWVyTl9uZUNQTEloa2R4a2NVM0lPMGtHTkwxdnJRRUxSVTRJdE9tWERXLWhwWUMwV0NsODctb3JhQVpMM0dsQVhUY3Rv0gG0AUFVX3lxTFBPbXVCc0tpRVpYVzZmcTcwYU9POEk0dXpLVGhHamFsUnlHRHZ4X1A2STF2OEs1clo4MWt5QWJkMnB5RVV6MkJzNDMxT1VQRlA5Z1Y5VTJkLU16N2EyaXJ5bFVRMEl2WDRhYjBFVmJkb3pQLUlfZnlvY09MLWJ5VWwxa1lmcWRUSXVmN3k5alhqVk96WmV3WUNpWnJVaGhmajRWRVhxN2JCUHMxYm55WXhwX2VjMg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
