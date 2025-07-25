@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月25日 12:43:50（北京时间）**
+🕒 更新时间：**2025年07月25日 13:00:38（北京时间）**
 
 ---
 
@@ -8,6 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Starmer issues 11th-hour plea to resident doctors to halt strike | [阅读全文](https://www.bbc.com/news/articles/cn5k5w7vrdvo) |
+| France will recognise Palestinian state, Macron says | [阅读全文](https://www.bbc.com/news/articles/ckg5g4p3245o) |
+| The story behind the photograph of a starving Gaza baby | [阅读全文](https://www.bbc.com/news/videos/czryry57x4do) |
+| Trump to fly into Scotland for golf club visits - and a meeting with Starmer | [阅读全文](https://www.bbc.com/news/articles/cg4r4z2gx2qo) |
+| The fractured friendship behind the fight at the Thailand-Cambodia border | [阅读全文](https://www.bbc.com/news/articles/cvg1gdgy2pyo) |
+| Kelly Osbourne lost 'best friend' after Ozzy's death | [阅读全文](https://www.bbc.com/news/articles/cy7n7e6g6x1o) |
+| Samaritans to close more than 100 branches | [阅读全文](https://www.bbc.com/news/articles/cm2l23ylv46o) |
+| Cash cards to pay for gluten-free food in UK first | [阅读全文](https://www.bbc.com/news/articles/c0l4d3g4p2do) |
+| US wrestling legend Hulk Hogan dies aged 71 | [阅读全文](https://www.bbc.com/news/articles/clyzyr4d2rzo) |
+| Woman in viral Coldplay concert clip resigns from executive role | [阅读全文](https://www.bbc.com/news/articles/cp3l3ldd0j1o) |
 
 ## 📰 Google News
 
