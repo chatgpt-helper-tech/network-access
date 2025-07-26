@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月26日 21:01:13（北京时间）**
+🕒 更新时间：**2025年07月26日 21:22:32（北京时间）**
 
 ---
 
@@ -23,6 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Trump flees Washington controversies for golf-heavy trip to Scotland - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPdmtWa19LSGNEUndjLVI1SmduZ3d2Mnc0RUpQVnEwejZHT0NUeWVOZHpCVG1rZWhrVHZoRHhUTVYyVmpqcGRYRmR2czBwTlA0cGJZdnlkT3ZwY3RXcTZxakF4NV8zRndTejcxYXhEMUJsOW5xYk9OUFFPVk9vcXZOQdIBhgFBVV95cUxQRVZydE44ZHJQNG1PN21yOFRtN2EwN1JaUF9MS2NxQWN5Sl9sRnlGRVlna3NScGZ5VkdoZm5SN1NDOFpxT21OUjNNQTFEVDF1bGYyUlVJNWRYbmo3Uk1IOGpmNDUwTEk4dXM0UHBZQlRWbTUyX19XRmo3enJiOWFfX3pJSHFUZw?oc=5) |
+| Ghislaine Maxwell received limited immunity during meetings with deputy attorney general: Sources - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOWUh2a1Vnc0JDUS1QYnI3M1hJWDFWYTNHNFQxYm85OUNRRExWYzNGSFJKMkpVQU04cElFb01pRTFBV0RnTmM1dzhSOGE0TGFJUkNBM3c4aF85dWpJNHBLNXJ3czM0dnBfUzBTeE1NWTNLaHk3aVJ5VmtPUlVWcHFvWXd1YlYyRHR3dkdVbklkV3ZFOGfSAZgBQVVfeXFMTm85eWZBZjdWb2R6aTlJY3FFNHg4SDdwdlEwQ3l6Yk11blpTbnA3bkpNeDNKUUQ2a1FKdUs5NEFfOHNHZGJHQ3hiWElJbUxmT0JRVGtSQlVISXltVHF6TnZ1eFk2V2p2SEdaODJCbFdhZGZrX0c1QmY3WW9GV0QwM3pVUFp6UlBlanFEb2FzOS04enZRdFJGQ1g?oc=5) |
+| Amid starvation scenes in Gaza, Trump administration hardens tone on Hamas - washingtonpost.com | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPVjRBREdzMnVUQVc1X0N1b2lGXzBCaXRtbUs1MUYyVHBNVDlnY2ZjTVJiVFhDemM5eFJMYWppMDh1VHEyNmJqS1M3cFl4aUM2TkNwUkw5SVZUSXBId29DSWFIbVB5X3hWeGFuZmQ1bkZoSVdseUtUNTBWb0YwUVduNDhyV2I2NGwwbUhzRnNlWXlXWnBTQXFaSmtR?oc=5) |
+| Scoop: Democrats think they can get their hands on Epstein's birthday book - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPUkctcy1lNHp2NEc1c0ctdGRsYnVQSFBRWm9rMnFydDk3UGQyMFpreDUyaVNjR1VCMEh2MXlrSFBFdnd6Y1J2c0VuQW1zemFoSDJ6em1oZlZyX2c3eUo3bGFJNXUzMFgxdlNBMU9ORF9zVlZEelNxaHpFa3RoOWhGMndYMlczQQ?oc=5) |
+| Federal judge dismisses Trump administration's lawsuit against Chicago over its sanctuary city policies - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxON3M5dlhkUVRMcTI4Sk5PemhMSlRLeE00R1ZSZHJaWm1rTVVwWGZQZVZGMmJ3OGNHZUZOWmEyV1N4WjhtUXZtTUwyMElMZlBRUEp3VUNaenRLdXJVSnFUa1BhTWU4cE1ERFNpRndDR2MtSUMtS0REMUhZSTZsQ2d1NzZmMVhfTkRVT2lKNTBpNkZhU2ZqT0FUdWFsZmt5QzNvcDhwSWM4eUwwbU56cTlJYkNqUDlNcU8xSElxWWw0N0lGeUo3S2xCeDBnUndsWVJ60gFWQVVfeXFMT3ZZekQwVXhYb013a09JaUhjMTNsUkhsVjl5N0dfdEpoQnJKVGZhZUhnOHQ1bGlIcEROV3NoVVJQQzN2RGJtWUpXY0dYUTBGM1J4dXlCb0E?oc=5) |
+| No Proof Hamas Routinely Stole U.N. Aid, Israeli Military Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQc0g4bFZERzBtZEF6Wnprc3NjVE1RUHhEX0xjN3RaSVZvM1NxRllmQ29hQTdqNlFmSUtFSWJYZFlYV3VuSmRBVDJNR2JtQndvdmp6QnVIRVZGWUYxdlRWNUZ6Uk00WXBsMHk4N1RFUDR4eWhSZ2Y0RjFIMGMzZHZ5Sw?oc=5) |
+| New aerial footage captures ‘Alligator Alcatraz’ from above - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPQkRGMlJkU2NjMXVGTXVEWVNhamExQTJXTmpOWFBpREw3SHZaUzBRRE9JQXZtT3FQNEp0TENRZENQb0FDYTkyQ1YzbmowTGxwMFplc0dNZ1BleWl6dmF3UTVkUXJXaTFyOHVmdGljZUcwN1o3V0dsZ3VIVjdDdlNDQVhqUDA4X0xTbGhhWFJDY3JzTUh4Wnc?oc=5) |
+| The Navy secretary is trying to limit a deputy's role — before he's even confirmed - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNazZVTXRTTzVXbUs0d1N4RFcwNXVGVXJUeXlsZWNUMjBhMGF3RS1NWFJzQVV5S0ZtNWZhNEZ4cXNKenM3cFREZGFwSjRCSWZxLWZVaU42Q0ZadnQ5MlF6c3htTFl3dXlfeFdMc2M0NzVhZmdSQXl4RjFxSGxqRmxCenVUY2ZCRllqd3VMakhhZTFhem1v?oc=5) |
+| Trump administration to release billions in frozen education funds - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5SaFJkMWc3cWRobjM0MEdhR2pRMGpRaDhSbWZXeXJNNGZRTnd0bER4dnd6bjRNN010VEV3S3ZlX3ZRbFFZVW0xLVhCUHdhTndBZ2l1bmN5NjRRWUpHUG1VM0J1ajdmeVprdk1vS3dDcWxRY3QwMHljLQ?oc=5) |
+| Gabbard and White House 'lying' about intel on Russian interference in 2016, ex-CIA official says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxOM3RNajNUV1NzNnFwZmVUUFZvY3NFSUNPYnl2ak9QOGZ3WUpDM3pLaUJteWw3RGgzbWNjVktSZ2ZKMU8xcTlWY2hfd1dnV3NjSEZnUlhPX3JxZlBGellBc3FLTmdRYXZmYng1ZEJhX3dFR196WVZRbUxEcXFKWE1WQ0J4blctR2VBSllGQzlidE1rcHJvMklSSEJ0YmdIWWFLaGF1eXJuVXdnX0JmSTMtTDc1bG1RZ1hzZVBMTkZnTXUzdFRhX0phQTBZTGrSAVZBVV95cUxPZXgwOHlSeTA5cDk5X21lbzdBci1EVUNGdDZCenk1UTVUdDlVRGR0MUZUalE0YkZaVzNxRlh3QW1tNTV2VUdra19ZODN5RE5aa1FYc29LUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
