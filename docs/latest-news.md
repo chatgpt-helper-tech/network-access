@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月27日 12:42:12（北京时间）**
+🕒 更新时间：**2025年07月27日 13:00:38（北京时间）**
 
 ---
 
@@ -16,18 +16,18 @@
 | Bend It Like Beckham sequel in the works, director tells BBC | [阅读全文](https://www.bbc.com/news/articles/c05eje3gq61o) |
 | Ozzy Osbourne: From Prince of Darkness to reality TV's favourite dad | [阅读全文](https://www.bbc.com/news/articles/cn86892w986o) |
 | The Papers: 'Gaza suffering must stop', PM to tell Trump, and Euros 'Pride and Prejudice' | [阅读全文](https://www.bbc.com/news/articles/cr4e0d2wwkwo) |
-| Screams and chaos: The moments after Bangladesh fighter jet hit a primary school | [阅读全文](https://www.bbc.com/news/articles/cp90d9mkz9xo) |
+| What makes Wiegman so successful? | [阅读全文](https://www.bbc.com/news/articles/cp8284r0rw0o) |
 | Does this look like a real woman? AI Vogue model raises concerns about beauty standards | [阅读全文](https://www.bbc.com/news/articles/cgeqe084nn4o) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 11 People Are Injured in Stabbing Spree at a Michigan Walmart, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE83LUtlemNNNWFvZkNkSmp2UFlIaURsdUlJVGhDakJNdVZROGEtbFpjNmpNOVZsbUdEc2lmOHJLSWttOXFDSEdKdmg3MXBXUFpvNUxrVUtpQVVEYkpGV3JJb3FPM1lHWXc4NFN0aVQyQWdScUZseF9MbDBMT3Z3dw?oc=5) |
+| 6 people in critical condition after 11 stabbed at Michigan Walmart in 'brutal act' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOeFVPbUc3cnpuUlpGXzJFVHpZV0Z3Yl9GQUNRbUhxLVpwdjZvZFpIZ1Q5ajZDNTh4Znp2dnp4YkVFV1pNVkFac2M4NXN2UDB5M0ZwdTNQdUZYN0RwTll6SExWQlY0WGVUVDhFMkFCcTFRZlYwWDNyREprLWg2cUhub2MyVTMwbWZyYmdHSXpDUTE2TllDd1Fmc1phQWc5eURGdF9vVzhyY0JyZGfSAbABQVVfeXFMTmpnRC04a1Z1UkhKeDRXcWR0Z185QXRtdVV2bW5jR3A2cW8zanNjRDVnRzhZTU9KRFlNTzN0VngyenZURnlEWm5sYVpTMzlqVnVmX1FpWXBMMUxOWS1pWXhrUWJIdkNLWDcwN3JuM3NNUUFMOXp4NGdnT1hLQUJTVnozQWt3TG1iS3VHbTZKRXJUMVJfUlE2c2FDMDZQVHh5akNXcmZScGZUVks4Si10QUk?oc=5) |
 | Food airdropped into Gaza as starvation deaths rise - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQYWxWWGV2OEZMWGxOSHJZVlFiNXJrUl9CbTRHMGlyc2NEQW9JS2FETEhFTHdzTmRWUDVtVFgwWXhKZzhWVWdLd0JoQ0RHVTd4M3prbGxlR0l5ZjhMSGRYd3VWeVcyZnJRUG12VzN1cTJNTUxCcXBETHZJRk9wbjlyWEFmcXV0MEI1cU5acjR0LVE?oc=5) |
+| Trump calls on Thailand and Cambodia to cease fire and talk trade - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE4yVmdhSk5oNEctNFdqTFoxRXktN09idl9FRmQ1QVNJdEoyVEEwbzAxWGpZby1WWjN0M3M1QkpyRWkyUWQtYkVjaXk4UWp5NUo2cl8waGJMTmZxZ9IBX0FVX3lxTFAwWFpSQjAzOS1ybzg4YnhXaTFENzl4aHplR0VBaE5GY1FGYWREZlliVmRKZ21xVDR0YWRUUGZaR3lvOG15WFZWeENyaXdGSG5DTC1wV1FTV2FWWkloSDJB?oc=5) |
 | 'Scotland is already great.' Protesters troll Trump on his golfing trip - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNakhWYWR1YXI4a3NCUklYbUZvNU4xVEgzLTFkbEJsUF80clB3NjNNWDhCbWp1OGNYV1ZEampNVS1USlkzTzZMMzQ3YU9jdU9pWkdTb2h0dlI4V0IxU1k4Yk9VTFlJZjlyMXFUSWRwLVBVdHBpd0pCNXQ0RWpvWkNQNGh5TQ?oc=5) |
 | Ghislaine Maxwell's meetings with Justice Department shrouded in secrecy - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNQ3c4ZXB6WGpybW1BcnZlc2l5QjBYUVNYcFoxdk1ZUUpiQTFuWkxBWXVFbnBRRXkwSDduVG5IaE1xY3VuNXBBNTlnWWZ1MXd2ZHhlMDFUdnljR2NtOTZSSVhYeFhJVV82SWdSYU8zUkNhVElRMUR6VF9fUFNYUFpKRllzNUg3dnc3c2tBZnZHYVdEN0VUYUMyOEdBNThVajU4bF9veTVoekkyUW5a0gFWQVVfeXFMTlRwQ05BNGNQZlgwdXBQNENtQ0pJN2d4M3RNWXRxVnFJYy14b0gtb3VocGZqcllhTjROcnd0blcxRU5IenhScHpyR0g1QlVUa1NaNlpFSEE?oc=5) |
-| Trump calls on Thailand and Cambodia to cease fire and talk trade - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE4yVmdhSk5oNEctNFdqTFoxRXktN09idl9FRmQ1QVNJdEoyVEEwbzAxWGpZby1WWjN0M3M1QkpyRWkyUWQtYkVjaXk4UWp5NUo2cl8waGJMTmZxZ9IBX0FVX3lxTFAwWFpSQjAzOS1ybzg4YnhXaTFENzl4aHplR0VBaE5GY1FGYWREZlliVmRKZ21xVDR0YWRUUGZaR3lvOG15WFZWeENyaXdGSG5DTC1wV1FTV2FWWkloSDJB?oc=5) |
 | Hegseth team told to stop polygraph tests after complaint to White House - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQcHlOOGlOQVRrS1RuWU1vY1hURC1ubzg3cTllOE9lNXhCNFJibjlDd2t5eVkyTFpSU1ZtLXc1NVlrcFV3aUpSRTU1R3Jra3lHT2picUtNVGFRYnc0Q0x6NUZxamZzQkprQmtCVHFGRUYxZ0FJYm9iUTZXYXpPY3YzUDM4X0ptY2NuSUQyWFVMSzNSak1Nb0hWN3hwdmw4eVU?oc=5) |
 | Dangerous heat continues for over 80 million Americans - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQblFoNmdJb1lBVnZiUmctQzRNOWZYSWxEeFNXRGpfS2tDQUFqem1lTjY1ZEpyRTR2R1czbW5CTXJ3X0JSUEJYXzRnMHhReU4zdG1DajNEaHY0TVdISDFPTEhmM0Y3dXl5SElXZW5ZaWJlc2luSHNTdVh3Z2lNS2dlR2gwODZiOHVSYVhER25wSE1VMFho0gGaAUFVX3lxTE9mNTNveFFsQlFERXdSLThscGJJMUc1bUpkdTNBUWlnck5NSjlHYTh0SkQydWxYMVNFWVdXOGdPc1FhZnd0R3JLbF85X0RuODhpNDVROW81TlcycVYxYkljNmtBTFd3TzdCNEt0UFVtN3hUWFdhMG5JUnlKelk0SlJIaGt6OUtwd29iWUYzOFlJcWw2Sm12ZGpxN1E?oc=5) |
 | Illinois Man Convicted in Killing of Palestinian American Boy Dies in Custody - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE81UUR5eFBMal81N3IwWkxKTURYM1FSUzhPb1JHWS1hQ1lCbElSaHVnR1NZUUJCcHYxOHl0NGtvU3FOYzFaNTJxZWJZSnY3S1pKcUZIazEtQWRORmJEWkUxaUJ6ek56SVdsTFdJYTdNakNLZUVsSGhtTUl5eUZBZw?oc=5) |
