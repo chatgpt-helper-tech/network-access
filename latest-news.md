@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月28日 00:42:29（北京时间）**
+🕒 更新时间：**2025年07月28日 01:00:43（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Walmart stabbing in Michigan leaves 11 injured - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE10M2MxSnVpSllNTTl5OTNlRHoyRTZPVzlMRS1jNlV6MDFzNThlczVsdWl4d0g2X0FheDUxMXN4OWxjSlFXNEoyZ2JveGFPNGI2YlY0MWpfWmdPZ9IBX0FVX3lxTE41ZGJBcmtEQ054MVdNRXduR3g3N3ZybDVueEFMd3RJRXRhcEJGWnJFQUcxazZ1TFlBZG9oa1BhekxwaHo3WVFCVlcxLXI5S0g5eGprclYwM2J0OXZaOV9J?oc=5) |
 | Thailand and Cambodia agree to Malaysian mediation, Malaysian minister says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNVkJlYzdIdzVMQndvTTVmRzNjdWtqSWNMTGYtdWQ0TV9pSTNKd2JJREtycEs5QkRHUi1Gb1FVWk1nNWJlUGJBVW85ek9yQjNaQmF1elk2NEltaXA4b0QydlJhcmZ5UEVYcmZNYWRYa2NYZkg3bGRtMmVFNjFUMDlEenE3ZzVETlZPWnU2YVN2QmhzSktBTGI4Vy04MlJFQ3k5VzE1UlUzYXp0T0VPejFqMjRrbXRhYW9LU0FoT1N5OA?oc=5) |
 | His name is Mohammad Al-Motawaq. He is 18 months old. And he is starving in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQWjVWZk4zMEZ1VjJDN3gxRkEyajh2ZEJKUVhDb1NPOGlfNXFuY3pXUzNOdXR0R1owNnFsM0dFM3ZGOXhvRjhmNVNtbE54STN1d2c3M3VCTkVLSWhFLXlFN3Z3M0FLeWNVY2o4OE1OTktNem9UZjNGLUVvak9KWkJJVFJHb2kyRHdDRXVxWHUyZFl4Zkl3?oc=5) |
-| Commentary: Political ploy or bold move to save democracy? Our columnists debate Newsom redistricting threat - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPVGR1MEl6TkVWQkpwMUtmNkxoWElnTE1TM3RaYjN3aVBRMS1hZEZ2OVUwRzN0c1RLQkZDdG5kc0xRcUhDQ3pyS3dDODB3a2YxanpEX3dnMjZxNll6UHp2Q2ZpUlF5b1RZTXN1T3lDb05hMTlFUjJ3cUxVWU1mU3QwTzNWeU9LMi1LaThvU0hiUUhUamZVM2tGQ0R5NWk5RVE?oc=5) |
+| Trump and Von Der Leyen Set to Meet With Trade Deal in Balance - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQRDRORWV1WDdIdzlpZ2hBdjdTSXJiVmw4cHl1dU1aWFZuRVpIWVdMN09DQmFCR3RpcEdSdTA0dFhQSWJKOU1iZG1IU3RZbTNUXy1DVVNNTjd5ckJlYjVaVVVMal9zdUhKc25IMzFRakFRWEM3T0M3OGtyU1dYbUk2QmhNY0JFbm5OOFlMME8tSUdOTS1HVGQwNHFhNF9ZZC1fUHlvX013U3dFR3MxZ1E?oc=5) |
 | Researchers quietly planned a test to dim sunlight. They wanted to ‘avoid scaring’ the public. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQbV9CQ1JXMV9PRXI0X2hSbDc4amtlRTZXVVcyNG5lb3NnTHdJZnFLaTlDT3NtdGVjLUZXUGoxNzRQWUI5SVczUTdRNEIwOWFhOGlqSm1DWndVVmxYZm1HY09MR0hBTjBRd3R2Y09rVVVtZUdoOWhFR0pGTUs2RUFzOGMxT3Y3Ujd1SlE0TGxwOEN2Q19jNWphRnNKZURFdw?oc=5) |
 | CWG Live updates: Hot today with strong storms possible; more heat through midweek - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQQ0FKR0tyUVl0MXNFMlpxWTZ2c1k1VjhNOFpaM1BjZGxBRTlXRGVwY3ZBRXBTdUprUnVadW9UUzFnYW9ubG4tUjFjVXQ0U2JrNUlIS1Zma0ZWMFJtMmI4SEs0MTF1S054TVIyVXI5MGtRQVRxS2Q1U3FUSUxpNXRSZXV5bEVHbWFiazV0Z2hNb1g1TXJvZkhlQURiUQ?oc=5) |
 | Goncalves family issues statement after Moscow Murders investigation documents are released - KREM | [阅读全文](https://news.google.com/rss/articles/CBMijwJBVV95cUxNUlRfSGlqdWEzOEdRd2VnSXlSc2tiTFVBTnBRenNyN1kwNi1VQW5vQ2c5Q0R6eThCd3UzN1ZvT2VBNkxIengyOElDejdZa05tbVd4MXZTdXJjeXAtQzZQeVNhck9CUlpiNlEzY3FVbnY3NFdnSm5fNk1ST2xyVl9tQ1JkTXExVTJOdmVteDM0YmNlVVJmNFBPX0pqdUZZMUFTNW9NQ3dKYWJXbXNLM1ZCTTF3UWVGZnVkajNjOWtVZ1ZKTV91dGRrd3VJNEg5S2tFOFd3Y2kwTklMYTVJRUx3R1hmVW9FdHFjTHZ5UHo3d3VnNjhJbDdWajNFdGRWVHJHNllmX0VDMlNnYnk3cGow?oc=5) |
-| Trump, EU's von der Leyen to meet on Sunday to clinch trade deal - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOT2JJSFo5YW41dTF6czVuYlBkVWhOaHZWZVQ1M1RocG1wVjQzdlNORDVkMUI3RU14MDAtekN4OW1fdlJHRXJScFJPaURhLTRsQmhLMGpuallVZy1UVGFORlZoU1psUXVPNVY2UE5HMFFnTV9LeEJsYkxMNHdOUEtrYS1YWkdmMGtZZ1VIckd0NnF1cnlVNmZQTzhZSk1mUWM?oc=5) |
+| Commentary: Political ploy or bold move to save democracy? Our columnists debate Newsom redistricting threat - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPVGR1MEl6TkVWQkpwMUtmNkxoWElnTE1TM3RaYjN3aVBRMS1hZEZ2OVUwRzN0c1RLQkZDdG5kc0xRcUhDQ3pyS3dDODB3a2YxanpEX3dnMjZxNll6UHp2Q2ZpUlF5b1RZTXN1T3lDb05hMTlFUjJ3cUxVWU1mU3QwTzNWeU9LMi1LaThvU0hiUUhUamZVM2tGQ0R5NWk5RVE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
