@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月29日 01:22:00（北京时间）**
+🕒 更新时间：**2025年07月29日 01:43:10（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | How did Lucy Bronze play the whole of Euro 2025 with fractured tibia? | [阅读全文](https://www.bbc.com/sport/football/articles/c4g0q0jw9v6o?at_medium=RSS&at_campaign=rss) |
-| Gaza experiencing 'real starvation', Trump says | [阅读全文](https://www.bbc.com/news/articles/c62nr9rglm9o?at_medium=RSS&at_campaign=rss) |
+| Starmer shares Gaza peace blueprint with Trump | [阅读全文](https://www.bbc.com/news/articles/cly6zgyy0wjo?at_medium=RSS&at_campaign=rss) |
 | Surge in VPN downloads as porn sites start age verification checks | [阅读全文](https://www.bbc.com/news/articles/cn72ydj70g5o?at_medium=RSS&at_campaign=rss) |
 | Liam and Noel Gallagher's brother charged with rape | [阅读全文](https://www.bbc.com/news/articles/cr4exd0yx90o?at_medium=RSS&at_campaign=rss) |
 | Emergency pleas for strike doctors to work blocked by union | [阅读全文](https://www.bbc.com/news/articles/cd0dz70zmx3o?at_medium=RSS&at_campaign=rss) |
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | France Criticizes E.U.’s Trade Deal With Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNTmE3eG5zUzFQM0lfd3FybFZhSmthSEFkZzZsUXdaUmk2ZTJLRWdJcFNJNlY2U1dhMnNyYUVJbktDeFBVSlVCVFByYXQ5OERvcEd1RU42OWZWY0xtanRYVkhxYlNmaTdETWI0eWlzM2hTdHJRd05nMTZPemJQZEl2QldDSGQ?oc=5) |
-| Gaza experiencing 'real starvation', Donald Trump says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBsdUx3a3lnQUVGNGl5Yk1yVGJ5ZDJSNzZCc1J3NF9UWVVmYlRfTFpUcFlWR3JQZ2VIRVpJMXU3R1BuMS15SHZXSDdXNy00LXljcWtRUVZFZEV5d9IBX0FVX3lxTE1WZ2JkSnVucURkNUtud0lzLXg3cndfQXphaGRjLTN3eXJlblNueWFWbm1jSkJwZnNGbWRDSVNlMm94b1ZHVWRaVm04cXNkeFJNbXVBeTJxQndQaEowUFFn?oc=5) |
 | Heat indices could hit 120 as sweltering temperatures grip eastern half of US - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOX3g4OFIwbHZDSkpGcGlWYm84M2dPcHZFQVkxNldZeHhMQndmQldQN1I2b2V1SVprc3pCc3puajhqaVlWWk94RmU4eW1lemVSQ3FQbmNGdGxjOVFNSmZkYk5OWFM3dXJuejRYMzRBS0h0TUUwU19UMjdONWlMdjNybG40RjhsbC0yTTNMb1AzY0ZCdU5JMHY5NVl30gGfAUFVX3lxTFBCRy1JVnVqejNuU2hiaUhJeVVQZnlQWmZhem1renF4cUphcXNnOC1IaGkyOXhvOHQxTHBqVlZIS3dUdUNhd2p4MkxZbjVja0k5VEhPcmVtdWlVU0RRZGtBYlBjenNzSGRMNjlaVWNVT1FybFVycmlkc0lFcXItcng1Rm9oVk1DNkw4enpfMUNieDJMSFNNeDd6ZktwRURxWQ?oc=5) |
-| Trump and Starmer to meet in Scotland with trade and Gaza on agenda - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPaVl5dWpJd2ZTdzN3a2RCRU9FYXh2S2RTdkswa0h6QlRubkJEMVJ4b0lRSkJEaUJ1SGNLcWtsVTNOcDNfcXk0REd0dFB3Smt3SXJKMGlEamw2QXpGendxWWVUUnEwOE9pWnpyUjg5empjTVFwcHBZRkRsTUdxZTI2ek10QnllUlN2YlpUWjA4Q2tjMFB6S28w?oc=5) |
-| Police search for suspect in killing of couple hiking with their 2 children in Arkansas park - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9saDRKTTRCRDNPUXcwano4U2R6dHV6QjlXUkRTWm5kMkRHMlRJUXFlQVY4UlNYQ2dXT3RkdDdnYTctSm1BTFFZajhMT3BiUmNqMkREeDZnOTlPQXpnTms2ZURuTkNyMDR1a3JVUEJ4bUYxalhWN3fSAXtBVV95cUxPcHZLRU9GdXpGdXYyWFVRLWNGMFZQb1VQNm11QTN2ZUI3RllVZ2hEYl9WaUV5WHRmZklXYkt2LW4xZUN2THRYTUlNWlNDdmtYd1otbG5KY0d6V1F6eFh1RGh2SkZQdzVkMmhYNlVVTTBpS09ibHR3Yl9vZWs?oc=5) |
-| Obama calls for action to stop ‘preventable starvation’ in Gaza - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPMF9idE1Ncm5EM09yNUxRa3NvZHVBaHMxNnRBQ1gweDAwVHFlVk5TZDg4eFZkbmVnT1g0aFRZczVrajVjbW1YVldPbjE3UnAyNWd6NkFQYmdyTzUtRnRKSEZydm9RTHowSVBHVmNPY3RhdlNhVFEyXzF5LW1nSHUwRUcwbVNBQ3dRVjFsUmxFdk8zZ9IBlwFBVV95cUxNazlTQXNPN3hEeGRlVXVYWGUtdFVFSi1xYmtnUnNpUnNEVDRBa1NyRkFzdTdvUlhoQUdvSlJXY0tXQ0RTMzRUUE82b0dscXRjbHIxYmpjaEpmNEJDMW1tQlRQYkpoRWc4bUx0SldOR0laSWx3RG1MMDF6WDJsVnpaZ0JRQ0pXd0h4by1LWkFXNXppbWtHbVRr?oc=5) |
+| Gaza experiencing 'real starvation', Donald Trump says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBsdUx3a3lnQUVGNGl5Yk1yVGJ5ZDJSNzZCc1J3NF9UWVVmYlRfTFpUcFlWR3JQZ2VIRVpJMXU3R1BuMS15SHZXSDdXNy00LXljcWtRUVZFZEV5d9IBX0FVX3lxTE1WZ2JkSnVucURkNUtud0lzLXg3cndfQXphaGRjLTN3eXJlblNueWFWbm1jSkJwZnNGbWRDSVNlMm94b1ZHVWRaVm04cXNkeFJNbXVBeTJxQndQaEowUFFn?oc=5) |
+| Trump reiterates that he has the authority to pardon Ghislaine Maxwell - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOaVdkazk3QmdXczR0b01JZW1RUEFqb1NJRXVNMXVLV3FjOGlXWGk0ZXVObWVHVmlWR0dEa01SVl9WWnJVX0wxVWJvVFNHMUxkdjZWZkJqZlktLV9Ea3llWDhQTWNhcVBvZVlyTTZlRnljamZsYlVuT2ZSTTkzaS0zYnNZX1VMQXkwdVZ3QTdwVjNMdEItZXcyd1hmc0s?oc=5) |
+| Britain ‘revolted’ by Gaza hunger, Starmer tells Trump - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQRGxXaE91ODBwOHdxaHBqai1JOFpZcW5QcmpyMWZZZ24wT2h0NEZsYUNHMTR2azdBT1ZrSW11Qm1GVjg1emhRMGY5XzJYSDRiVXFRc2hKTUpBNjZSRk5tMWVuTklJaDQ0VXdwVy1QaWVpNkhGcWpLOUQzbV80Wk1aODZUUUZFanBaQml0ZWdLV01HU2V1WDY5VHNSOGIxcXpaWmpZbDFYLWNXQ2M?oc=5) |
+| Once again, Israel tried to restrict Gaza aid. Once again, its policy failed miserably - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQdXJqaVNlZE9VaV9Wa1ZtMkZVNFhwaVplUGZFUjBvOVNLZXB2TGtKbHhMR3lPTWpxTUptLWQxVGlqaUUxMXc2eHFSZnVITXN0TlBoNjRVaXZlMlBvM3BuaFJrc211SFJndHY5cWgyckFnbTZNcGJkUTc0MzFxRjBNOF82VXROSkFzWEVBMVhQbFJaWGhkMXFlMmhkVVoxU242a3k2M282cE9XZ9IBrwFBVV95cUxNMWFWaHU2Y05mN291SFdDNS1WVzU3R2s2bDN0R2d5NFRfWVp2ZlJUdEhLNXdSYkg3UXFuUWtqUG9QS2tBTGZYTE53Ry1ydXpLMzhHX09PeFJtamJvRnJZX1NIQ29XR2VGenBIa0ZfU0xvalhzeFVYX1JzcGplNDNOM2FrWkVFQTEtdlFpZnZtekttUGRiR2RDQTdDMFJaak9EeUZILWhLRmU0ZzMzY2RB?oc=5) |
 | Emmet County deputies searched for Walmart stabbing suspect day before attack - WPBN | [阅读全文](https://news.google.com/rss/articles/CBMi5gFBVV95cUxPWUIwUlpWb3QxT09XdmZSV1NRRTJZYlNqM2F4dm1aeDVWTWY0MWx1aWdBNm5xbHYwNWk3QU5IelpyMnlXY1NzbklrYURDQlI4cExaZ2JSb1ZIQU1vbWhOTlI5cDZWaTk1UGVRdVRJeXFydnoyN2MwdlJNZi1EMENTVzV2cnlxQWlXZnY1OUg5d0RaWFgxdVMxTk1QVnYyVHpPRHFJbzlEdGNzblN3WURDT1JvMEJ0NU56aU51MzR3cGVWaEo3dTNpQkd1UVpEQ2hXMXpBN1NEZnhLU0dYRDhCOWQwaEswZw?oc=5) |
 | Roy Cooper officially launches North Carolina Senate bid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQLUFFczZVcnBEcUZfbWZGY25uODJyblV2UWdubm80TjJXVGJzWkJiY1FxamktamRjUmxpZTJXbzlLOVZRZmlydnllcjljUHpNTG54VlozWlNONEFQRXdLQzhEazJYeTNkRDZwc2tXOVJjTklsZzlFeGpxcmVNeFBEd284VDg4ajlCai1SOGs2MHRwNWJiTWc?oc=5) |
+| Suspect on the run after couple killed during hike with kids in Devil’s Den park in Arkansas - The Independent | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPNnhtUndNQUV2OHF0eFlWWDBDVmFKM1ItVHRMdm1qaTM2OTJrTlVBbXdTQll5UXVPTDFpeElDZTFOaVhCR2lSRkFjYUhkWHJ1ZFJGWXA4UGNNNVEwcXJXXzdLNWpCSlgwRWp0WURSZnZUdFdDSnpUaGx5eU93bFhsRTc5M3F0WWE0WlRUQ1ZUd1hycWhYc2VOdm1wbHQ1SDRNZGR3cA?oc=5) |
 | Wallis Annenberg, visionary philanthropist who helped transform L.A., dies at 86 - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxObldGTGt2VTQyRnlzaFM4aHJUYVBVWDhtamlQTHFCNWxkcG1EUGxfeFpUcVFPakJCd0EwNHV3aDZtVHJ5a21IcnljZ3RpcFNYb2Mwd1AwZlJ4MEVwbXVxcVl3alV0YjFrelFTQUFGUWhlS19Tcl85d0t6WF94RnlnbVNSVHpBQzlXSERXSHlaV0pDcUY0YkZSZWxLeFNoNm1VRnRlRjJ1NEY?oc=5) |
-| Florida’s New Attorney General James Uthmeier Is Making Waves - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPX1RUQWozTE1BeXdmS1FuT0NPdGhRdWZkbVdLdU5YQlF4bG9ubkpsN0stTk03dF90M0VrME13MERsZFhseGRRb3pVaGNPU0lQbHF4YTdfYWpfbDhZY09oNGtldGpmOF9aN3ItaW9vUDhNWlpFZE4zQ3owVGd5cUI0ZWh0TkstTXd0OVhOT3FJRU8xSEpfX2c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
