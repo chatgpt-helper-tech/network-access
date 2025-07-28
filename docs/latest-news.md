@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月28日 12:22:55（北京时间）**
+🕒 更新时间：**2025年07月28日 12:42:14（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Stock futures rise as U.S.-EU trade deal kicks off a hectic week for markets: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5ZR29NVGFNYS1oTmpva09ra2RWMF8yYWJfSElhUmVZYk5WTWtSUWlkcUJFT0V5aHNFQ2UxWXRMV19pOFhmMFUzcVVOMkp4VkR3SjlCa0IxQ0RkUVRkOVM0VVk5aEIwcXQxTDgtZnllUGYxT2c0TTVB0gF8QVVfeXFMT2F1d2ZtR0ltZC05bWFTR01URDBkUjlTdXRQcEcxNHRycDctLTE5ZVY0VHJFeGduTGUtTnhBdUhtbTlZSmk1cnFuRmZmSExfRDFCeExtVHJLTy1JcGMtRzRTeHZzN3FETkQ4TzJYQW9YNWV3d3d6ZlI0bXphbg?oc=5) |
-| Couple slain while hiking with daughters in Arkansas state park, police say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNYW5VTXVDOW1vX2lnMklGMU1iME1RajVVU2FVaU91X2pkRUN4T0thSHEyU3lCMDk1TUlwSFZVNE9uQkNDNzdDd0RFZTZFTVhNYjUwb2RZWThwTlVLMmtOV3hsVDJ3V0dIWi1ieTY2SURmaVdqd3pMajkwQlk4Z1JORVJRa1BGdHJqS0RiRnYwSjFPNm9Cbk1KV1BJbzlONkJyTkdQNVY1Z2wyVTB10gFWQVVfeXFMTk5ISnZGaGN0N2pOLWJYR3k3LXotYWc1WVVFUDBYcnhIa05RY2lCblVObHZNQlJPeU5zRlZ1TUh3MjdXdUFFdFRFR0RHWU9oMm1sc1FOUUE?oc=5) |
 | Israel pauses attacks in some of Gaza to allow limited aid, as global criticism grows - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQN3Y3ZlZHX0ZZaVhHSTBPakQ1M1FaME9SWGt6WExHREhsYkduR2JnRG5vaEFZdVptRjNXWmhRN2Rsc0ExX1lPSUx5eHY0TzlNd2ViTzczV19jdG5XeWFyN21jQmJtWVk0c1JMQWtJTXNvX1lYV2tzRTZ0Rm5MZy0wVEdlVGk?oc=5) |
+| Couple slain while hiking with daughters in Arkansas state park, police say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNYW5VTXVDOW1vX2lnMklGMU1iME1RajVVU2FVaU91X2pkRUN4T0thSHEyU3lCMDk1TUlwSFZVNE9uQkNDNzdDd0RFZTZFTVhNYjUwb2RZWThwTlVLMmtOV3hsVDJ3V0dIWi1ieTY2SURmaVdqd3pMajkwQlk4Z1JORVJRa1BGdHJqS0RiRnYwSjFPNm9Cbk1KV1BJbzlONkJyTkdQNVY1Z2wyVTB10gFWQVVfeXFMTk5ISnZGaGN0N2pOLWJYR3k3LXotYWc1WVVFUDBYcnhIa05RY2lCblVObHZNQlJPeU5zRlZ1TUh3MjdXdUFFdFRFR0RHWU9oMm1sc1FOUUE?oc=5) |
 | See timeline of Traverse City Walmart stabbing attack, suspect to be charged with terrorism - MLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxNYW80eXBKeFdaZWdkaF9tNzBrTVVqR1hPWVc5SW85UUQzTF85T0I3Wi1iOG9WR3RiQWFOU3UwUkE5eUN2M1I4YzJtQW1VSm1PbWEzU25KQkpSb3AyaG5KNDU3Um5Mby1iSUNuajFjSlZjM0dZSGV6YzJ6SXRsaDcxZ2VPSFVNZzd5VUl4Tno4UXBwOEpoYktZVmN6WGJuNld4T182aV82N2RuSU1qd3JhWkM1NzFQU0x6aEF1M2dXRUtnT3RHNmxHdmVB0gHeAUFVX3lxTFA1QWd0d1Nvall2TDN1Y2ZwMmlwYlFsWHp0Ry1YNHZIRDROUVZsM08xUzcwdGxDdDJYZjRWalNtalJzZXBDYXBZSG5JMV8tc3RpRkJWc2NlcjBJaWJRX2FxUzlkSkR0dHRBV3ZXSXp0ZndJV0hob1NBU0JPWEZ2TkpsVXhGYjVBME1FY1dPRXRkWm0yRlYtYXpBVXAxTzdNR3Y4M1k5N0JqM2RRVGpvX0FMa21SSERSLTdwM2FqTkVTWjZPWU9leGFZXzNkRzRQOXZ0RERpT2tManNzeWZ6QQ?oc=5) |
 | With Bombs Whizzing in Air, Thousands Flee Thailand-Cambodia Border - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNalpBOWVvNXJFem9OYXFHOFc5Y0JPVU5oY1hOaWZoTVc4b0xCVFRDVnpkSHJVWVhjaGRTT2dRdWNRUWdQUkdYWE5zZC1RX1V1QlZ4V1RqOGFJZmRNNEs2NTdxTkdmSGNkektobkRUZmpPWXhLWEhLSE1jSXdjcFloNmsxQkZTcUQ4RTFBRWNmMkVCUjVxQXBoQQ?oc=5) |
 | Medical groups are concerned that RFK Jr. may dismiss a panel of primary care experts - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNVC1tUm9UVGVKWE9MUDBRZFpqSnZaNmtUNHA4UnBidldmLTl6UEZQWlU4T0Vwd0tDSndhb0VqcnByNlJVVUY4VF9hdVpyU0pQaU16NGdTQ3lud3ViOEdwd25jVFBZUzl3TG4xOFpaOGozaVNNbVJXeFprc1IwOXRaMHBXaHdia0ZsN0pYOS1vRQ?oc=5) |
