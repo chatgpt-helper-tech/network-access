@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月28日 11:42:52（北京时间）**
+🕒 更新时间：**2025年07月28日 12:00:11（北京时间）**
 
 ---
 
@@ -8,6 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Lionesses defy odds to create English football history | [阅读全文](https://www.bbc.com/sport/football/articles/c5yklp550yno) |
+| EU and US agree trade deal, with 15% tariffs for European exports to America | [阅读全文](https://www.bbc.com/news/articles/cx2xylk3d07o) |
+| Malnutrition in Gaza at alarming levels, WHO warns as aid airdrops resume | [阅读全文](https://www.bbc.com/news/articles/ckgj270grkxo) |
+| Google failed to warn 10 million of Turkey earthquake | [阅读全文](https://www.bbc.com/news/articles/c77v2kx304go) |
+| Imported dogs 'posing risk to UK', RSPCA warns | [阅读全文](https://www.bbc.com/news/articles/cpwq40vjw8lo) |
+| The rise of Japan's far right was supercharged by Trump - and tourists | [阅读全文](https://www.bbc.com/news/articles/cx2k29233jeo) |
+| Officers faced Southport killer 'shoulder to shoulder' | [阅读全文](https://www.bbc.com/news/articles/cjd2d9kpl4do) |
+| Three killed and others injured in German train derailment | [阅读全文](https://www.bbc.com/news/articles/cy9844egpx8o) |
+| Royals lead praise for 'awesome' Lionesses after Euro win | [阅读全文](https://www.bbc.com/news/articles/c5y03dyyvx2o) |
+| Nurses to 'overwhelmingly' reject pay deal as strike vote looms | [阅读全文](https://www.bbc.com/news/articles/c4ge4905eq7o) |
 
 ## 📰 Google News
 
