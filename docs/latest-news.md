@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月29日 23:01:14（北京时间）**
+🕒 更新时间：**2025年07月29日 23:22:36（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Bereaved parents ‘horrified' by Leeds maternity services report | [阅读全文](https://www.bbc.com/news/articles/c5y2m51krkko?at_medium=RSS&at_campaign=rss) |
 | Farage demands apology after minister says he is on the side of 'people like Jimmy Savile' | [阅读全文](https://www.bbc.com/news/articles/cgery3eeqzxo?at_medium=RSS&at_campaign=rss) |
 | Police investigate station assault as video appears to show Tommy Robinson | [阅读全文](https://www.bbc.com/news/articles/c209p0v5plwo?at_medium=RSS&at_campaign=rss) |
-| IMF upgrades global growth forecast as tariffs ease | [阅读全文](https://www.bbc.com/news/articles/cn84gg2y5kpo?at_medium=RSS&at_campaign=rss) |
+| IMF upgrades global growth forecast as Trump tariffs ease | [阅读全文](https://www.bbc.com/news/articles/cn84gg2y5kpo?at_medium=RSS&at_campaign=rss) |
 | Ozzy Osbourne's hearse to travel through home city Birmingham for fan procession | [阅读全文](https://www.bbc.com/news/articles/cgeryx3j01go?at_medium=RSS&at_campaign=rss) |
 | EE to launch phone plans which restrict internet for teens | [阅读全文](https://www.bbc.com/news/articles/cvg3lgdv3r7o?at_medium=RSS&at_campaign=rss) |
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Manhattan shooting suspect claimed to have CTE, mentioned NFL in note: 'Study my brain' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQRzVtMDFSRTF4Rkx3Q0w1VHUtRlA1ZXMtVnRXOXV5MVBNREJXZlhHMWtONWN4TGVlQzNsTjhHclNXMm5PMURwV3RsUkdsRjNiQVZlUXVuSmotVTJwaV94LXh5dktFOWkydVVGOUJvQmFTOXFuZm9WeWZpODdob3NKb3BaWXpVWFctMU9icjZ5Njg3S0pyanhWNW5MZlRXczjSAaQBQVVfeXFMTlBTNlM0MndYaHJ2RlhuakF0Tm5nMExzLXlOYUVzMzc4UkNOYlRvREYwa2FMcVFjMU1oNHc2SEh1NldHbFFKV2R5aE9sSWplVlJpM013X0RZdGJ3VVhYc1FjZzZzblZtQng4elJicHQzY0lmcUNZZG9CcWR4eDZIUnl0ZlBHS2wyXzFYTzFqa19KOXhJX2ZybVI3TXJmRGk3LTdMQkI?oc=5) |
-| Europe Caves to Trump on Tariffs - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOTDFwcTlfNGVlQXcxLWFRWE56dW1fZlNsN2puNVVBZGFMNWRrb25PYWpoRjlldUsyWllVaTVrdE52TTNTRXhMcDlaY2F0SmJSa2N1MEU5eVhhMVQ2dmdrbGVHcGRoTElQa01LSmhzUVM5VTR5ZGVkWHlpSlIzWW82WQ?oc=5) |
 | Trump lawsuit against Murdoch and 'Wall Street Journal' turns personal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPWmxYLXJWbkMzaDdFMklaRTduel9Gc1Iwa00wd3Q0bTROSzhBZ0FnakFEbTFxRGRpckRGSVB0TUdacGtkOFlZTTEzdW80cjY0YlJOSTF6ZVk1OUFPcDBqVVhOSXZjb29fZGEtdzNNX0ZmZzBJSWlCSGdXNXFUcWhUUWUxdFZxLWFnOHFmS2dB?oc=5) |
+| Europe Caves to Trump on Tariffs - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOTDFwcTlfNGVlQXcxLWFRWE56dW1fZlNsN2puNVVBZGFMNWRrb25PYWpoRjlldUsyWllVaTVrdE52TTNTRXhMcDlaY2F0SmJSa2N1MEU5eVhhMVQ2dmdrbGVHcGRoTElQa01LSmhzUVM5VTR5ZGVkWHlpSlIzWW82WQ?oc=5) |
 | Jimmy Fallon Ridicules Trump’s Choice Words About Epstein Island - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNdHM0LVk2c1JHUWpfZWJXSFRBa080eGhvVXpvYVpOSzJDWHBqS3RZMEotUUREU29UNWFFNDMxcnF5eE5OWnA2WmJsVHJPM24xRzQtRWo3YXlFUW1STUhWTV9rQjU2emttaXR1a1NjWUloUmZxdEQtNmtvaFp0eENLb0FTVFFfTVJiUlE?oc=5) |
 | Roles reversed: A veteran Gaza aid worker pleads for survival - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQQ0l5Nm9GbGR5aVhVOGxFRVB0cjByZjRBdVR1S04ySmkyS1hGQTRvOTA1WWNYTUpwd1JwSkhjMWVhR21DVnRMY3hJUzdsS3RjRnRkYnpmSEVjUTNmQS1mQV9HcjlCbFd4U180dWNYRG8tekJCZERwTkFKVXBacmRSbzhqUGpBZw?oc=5) |
 | Texas House Democrats are fundraising to potentially leave the state to block GOP-backed redistricting - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOSnFoTnRSUGRSbFZVSG9JVVJuYXdrVjA3TUtOSTA2R0lJTEJUVE96cnJPQUg2NnVXTklYblZOS0JJRExNdUlycDg1TGpLVzgzcWRwTUZmTGltUzUxWklWNmhHNmZjZW9GZm50enM4eUZsdVVMclk2YVB4R0NiVFYtTmpjRk10RDhqSUo2NXZDVDZ5SFVJZFNRYXdfMUJmTnVEWlhV?oc=5) |
