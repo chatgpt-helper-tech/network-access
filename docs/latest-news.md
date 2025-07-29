@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月29日 13:43:53（北京时间）**
+🕒 更新时间：**2025年07月29日 14:00:44（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Gunman kills four, including police officer, in Manhattan skyscraper, then takes own life - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQYjc5MkZHakxXNXFaekZZV3RRVUFpTC1jOFgycjNaM01Nc01jM2I3VzB1N0hrSWtUOTljUDJBZFF1XzhuSjdwaEJVdFM1Ymh6SFNlaktXcFpkbjNlZXlsVTNaNDVZdjFsdk9NYmdwUS1DUDk5ZU1LS1RrdF8xeEdjSGp2aDQtbGNLQXRnOVBjX0t0X2tHVVh3d1dKMDFFWFh3WTh3bmtXVjBxbmU4M3RnZmNyYW82SENRc0VoQmNCRjU?oc=5) |
+| NYC Shooting Live Updates: Gunman Kills Four, Including NYPD Officer, in Midtown Manhattan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBCRmNwQTNHWnJZT2hUWHh1QjZZN2FWdEI4cjd6WTV5a2laMlM5WHdnRllIYS03OXJXMjRiZ0JZaWVhLUpwWU1Bclc1RTRuYnlyeEQ4Q3MwOVZjUkdkejc4QnA5WGxXZzNEYkpTSDZB?oc=5) |
 | Trump acknowledges ‘real starvation’ in Gaza and tells Israel to let in ‘every ounce of food’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPZFp1SVdoYXpsOHFuOUlReDljdUlRbUIwajdYcDF5aGZTdjNSalhQQ0p1MXRoMGJma2hSeTJVYk1JMEFVQkxBZ3RZSHA4XzdmckpoMW4wMFlQT2ZJWVF6QmU2eTd5cXJkVHl2S3NDTWhoZjlOUTY4a0FBdkF1ei13ZTBXQ1lGQTVEVEVJSlJSbzZvdE04ZUZyMDA1YVNvTVYxM2NwTXNRZHh0V1ZaNXZ1X2hYaFc0V3lOVDk0dFFSSTYtUmFSN3oxa2VKeFM3YU92VkpF?oc=5) |
 | To avoid worst of Trump tariffs, E.U. accepted a lopsided deal - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNV3dzeVBnUkFPMDlJTjZGQjhFRkVRMHA4ZTlaVzFpdlY0b2NvN2lsOTJDeEhrT2ttaWlTbGtMLTFJSzZkLTBZb0NfZXh3N01VLWJTU3ZEOWFTX3VnZ19QSHlBZXZZUDZRZTczTzI0TFRWak01aDFiQVlZSEhBN094UEF6MW5iSmNaRklF?oc=5) |
 | 3 killed in Reno casino shooting at Grand Sierra Resort; suspect in critical condition - Reno Gazette Journal | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPLWtNenBhV1RDalRRdnhKSVBUSDlwdl9DRlUyRDN4MWhVWE1fUGVfTDlodDZNZUxwV0IzaFFVbDhwVUp4aHRid0p2SjFHVnFuTmh5M2N3V043V1BlS004Y2dFQngwMVAwVVdtdC1VLWwxVHpiYXhETHozbldHTzZ4clBYVGNSc3c0VXlqbDB4YnNNa2ZnVkI5N25aQWlMdmtCZzN1RXRIZTQ?oc=5) |
