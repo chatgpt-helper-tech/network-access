@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月29日 16:42:16（北京时间）**
+🕒 更新时间：**2025年07月29日 17:01:31（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Arkansas police release sketch drawing in search for killer at Devil’s Den State Park - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNWmxMMmRrY202SVFTSzczTnpzaUpJbm54TWNfMEdvZ2piM2JjbmUwTVF6NTNrN3FBMGZmcGJKX1R0Y2c0Y29WSlBJZUxFc1pfTGQza1ZJWldGdzBlS2hHUV9zTVVUNGtDb01rM3FpbXVaaWVoQ21QWEo2NGhIVHRPdDVpMEg4bk9SRmpCU1pzVmFuMmdlbnVhLURVeDV0Tll6?oc=5) |
 | Trump administration files another misconduct complaint against a federal judge - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9MMUd1SWFKLWd4cHpRRGpERjR4d2oxWkVJQkVSc3hkb3VpZ3RPVGhRcl9jQXBRckRDQ2tlSkhQb28yaUZERnZ0Y2prdlBGZE5weDJKWFl6Z3dhMEg3djl0MjJQR19GNDA3MTNwWktYWm92UjZzQmV5cNIBfkFVX3lxTE13b0dYUFExRXV2czlpUnU4N2JTZTI1N2NWQVhpWHUzY0Z0ajl3RXRDSXhObHBLdHYxLUZVYlZaR3FMekRPLTJnb2p6LUtDSk54RHNOMldubVZCenVMX2NNMFhDWmtIQWNYdW5INEdFUUp1LXRELXFKQ1d2QVZWZw?oc=5) |
 | Severe weather risk favors southern Minnesota overnight - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOMzZzVURRT0ZGVXNGWTY1OURmbThXamluN3Y4bXRRTXRpUFpOYmYydFVaQkR2SUNkZGwtQVh0VFNuQWFXblZyejNicGQteU1VSFZYT01wbHRHa281bl9URXRiTVRwdzVJRm0ya3JTcGVtRWozeDZMemZLWHExalN0S3RjRFlQdmgwX3NRRmRlZ0FTeTdaSGVFaktfTlg?oc=5) |
-| Medicaid funding to Planned Parenthood must continue, court rules - Axios | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQZWVCZlQyTjhYWnJiMDNRMnZhVUlQNnZ2MVNqSEFQYUdCNjhlc19BRVVRZlM2bV9vYUUwR090OG1Od29yb1ZITTFRUGVrNHNDTU52RmY2R2lyamJ4SnpLMFFEcmtvR28telEtSF9ZRHNWTXpuMUNwTzlFWFg4X2VSMWFJSmFhbG5FZndoaXhYQW51dEozRk9zQg?oc=5) |
+| Trump Gives Russia Less Than Two Weeks to End Its War in Ukraine - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOOWVWbkcyc1RERVdYTFp6NEVMQ2htd2hJeGg2eFA5QXhDYWVXNUE2VzNHejE5bElHUEZGaXhYT3Zwd2ktMmZCQ1pLbGFLd1FFZWRERm5rdHZuZTVIT0NxbDBpNDQtWVFZYm1ZMmE2c1lyTHFEX1J1aFlOVXFmaHdQek8xMldTeXBFTTNocnNtS3RyRVM5V2c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
