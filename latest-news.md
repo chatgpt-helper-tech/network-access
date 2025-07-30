@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月31日 00:42:10（北京时间）**
+🕒 更新时间：**2025年07月31日 01:01:34（北京时间）**
 
 ---
 
@@ -16,23 +16,23 @@
 | Streeting invites doctors for fresh talks next week - but won't negotiate on pay | [阅读全文](https://www.bbc.com/news/articles/cdrkdp3xy17o?at_medium=RSS&at_campaign=rss) |
 | BBC reunites with Met Office for weather forecasts | [阅读全文](https://www.bbc.com/news/articles/crm4z8mple3o?at_medium=RSS&at_campaign=rss) |
 | E.coli infections rise due to salad leaf outbreaks | [阅读全文](https://www.bbc.com/news/articles/cn72m1e3ylko?at_medium=RSS&at_campaign=rss) |
-| I've stopped life-saving medication, says man exhausted by fight for NHS care | [阅读全文](https://www.bbc.com/news/articles/c209pgq7rdro?at_medium=RSS&at_campaign=rss) |
-| Banknotes are getting a major redesign - what could they look like? | [阅读全文](https://www.bbc.com/news/articles/ckgy7j02xzro?at_medium=RSS&at_campaign=rss) |
+| What caused the Manchester Airport brawl? Footage shows how violence erupted | [阅读全文](https://www.bbc.com/news/articles/c1wpwy2rjd2o?at_medium=RSS&at_campaign=rss) |
+| Watch: Sharon Osbourne cries as she views tributes to late husband Ozzy | [阅读全文](https://www.bbc.com/news/videos/cly6rp46l97o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Tsunami updates: California sees 4-foot waves; Hawaii escapes major damage - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQY0RLaXM5eEFYVzB5eldpTzNfM2hCN3cyc3dLUVFzVTJVYk5iQXJsaGxHRXpMNGVCREQ1bzAwRnN3ZG8zek04Rl9hdWhnOVgtVWVUbDFIUC1KTVVtV2c4NzdVSkFLaGsxczdrZDJYNVNyODg0QjJlQ3VZQUFvUDFBQmk4R1dFNGJWTzBfZDYtVkRhQ3VjNUpxWThGZ2VmUQ?oc=5) |
-| Trump to hit India with 25% tariffs - plus 'penalty' for trade with Russia - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFByQ3N0bEl5aW84bTVqTE5hWTlESFAydjA3bGpZbjlBNXhzTzQ2RVdKbVRyM21hUWFyZkJfb2ZjOWJnT3RxNmhHS1daZEZJZFhTTGZhOGU2cXR5UdIBX0FVX3lxTFBMd0pwNldETzJGbmE5Y2JNaHAxTElFcFFoOUFMYUhuaXZZVHhhZFVUbDJZYjB4MGhaY3c0VF9YbVRRdWtEeko1a01tU0xjRXFNbW43bXowU0l3VFBVcHFR?oc=5) |
+| Why did the Russian mega earthquake not cause more tsunami damage? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1CWE8xUnRwY3dTVEkzU20tdkR2M1FNLTI3WmhadDZuenRRMmg3UXZSd3o1MjhqQ0FWSy1lOWxaRmZ2bG9fWDA2SlRuQmtFWWVpSlhqcC1lNGY2Z9IBX0FVX3lxTE40TmVYSE5YYTljTjlGbUgyREZLVWRpZm9XN0tJbmdCOUhTVy1TUW9qdmM2MzdjeGk4U1ZuMWpxRE15XzFTbDhJSXMwZ2ZucE0zVkhqZ205cUh2ZDVrZDd3?oc=5) |
+| Trump dashes hopes of a trade deal with India by Aug. 1, announcing 25% tariffs - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9rbEhscnpDZGw3cWQ0MlE0RlJpMWRLZ0dXTHpRZDVqYjI0U0VYQzdISWhHN1N4Uy1pX2pjcUdTOVM2M1RkODFYNE5ON0RQcW04TGc5V3RhaVFRSmFTZWVlSDZqSzR0aW1UUGVnSzNtSUlKc0g4UXRZWg?oc=5) |
 | Questions emerge about NYC gunman's mental health and his security-sensitive job in Las Vegas - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOWDZHMFBTeXVjbVNSNUxNUTl0cDE5Qk5UQ3RkWEVnR1hjd0dHZVFKcFpUcDdUZ1dJOWczWEttNmxTSGtHVVVoVm5SMVdNdmJTZXRxZU9hc21BS01Kb19ORmhTNC1NS0JuNDFQbEhQRVA0dk5FbHNzUlU4R3RUeC0xMVVMUEtDWmtNOFhjbS16dw?oc=5) |
-| Trump is winning trade battles. The war? We'll see - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiXEFVX3lxTE85eEpPSWRWWEdscHdXWFJtWTBFelhuRjAyeVNFZmt5eE5tOVA1bnZheVJoYmE4RjVkYVpZeGd6TkJwaUZyVnJjYjBaTlpLdEUzTmpNMWxnUXlacTBs?oc=5) |
-| Texas Republicans release a redistricting plan that could achieve Trump's aims - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNbW5RcVAySmtLbGRTVElTdFFoWHVtdjk2N3lNb3pKMXZVd3h0VDJFRHQyR1BfM0x6MXJpWFZKOWFoQ3hlaHVENTFiNzFvcjUyRWRyeXpHZDNmNVh4VldpQm9hUmE3TUd2UWJyYUE0ZlYyYk5lVl9jQXdubXo1dnJvUnhqU2tfcFZmRFduelgzQUY3bXl2dVE?oc=5) |
-| Why certain medications can increase your risk in the heat - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQSTZUa19qaTc0cGNlVGozbkJnUUQwZ1p2RWdLcG5jLUlKQXBodEFEWFl5c0ZDZkJUM19hdDJnanhma2Z1Qk5iclA4SmdfbzV6V2VpUVczdTB1VXozUENDNUZ1R2w3dXJiTi1BZFQxcVpHWDFaMGZzdEhiZlJyQ2x6Uk9OWQ?oc=5) |
-| Senate Democrats try to force release of Epstein files using arcane law - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPbUxwaF9QeUFxSUdrandDbXRkbTdndzJ5Wmh2bGhpYnQwMDJrcDZrLUNCVzg1QWZ3RFJIVGVsWXpoY2p2MUw3dzNvVkRGQ2tpM1hDUmNJdWtURlZhbzNvMGItdXpzQkF6Wlo2d0pMZ3YtZllMQmkxbnUyUzdDc0FoOXlYMGR4Z3FZ0gGOAUFVX3lxTE1Vb3RTTEVHR0x0Nm9qZ2dzY1NZdlkxbFFSNmFMa0VaWTZQZkRfWUpCOG1iczZFODZoS0tmVm5BZnczcW5lc3NQMUlYRnkwNzNJSllncTNBSTRvRl9wemtfaUxvV3dwaDdJOVJYVHRzSGxoaDRzUnM0SHdCWUp2T2VnbGZPRk1Cbk5jR2hTeHc?oc=5) |
-| Trump says Friday tariff deadline 'will not be extended' - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5WN2JPSXdkYTdwZDRwVFZncUZJNFNLNFZnbUN4bmlORGxVb3RmMkwzSE8yTEVkeGl6SkhJcUt5TFVUcndfZFBQTFplemdSWGt2VmRJSVg1R3huQmNRMDJONWdyZzZnSTJCZEtZWXNQcEhDQndXSDVzTVVJb9IBgAFBVV95cUxPYXZfQU43VC0tZk5KQlhCYm9BaTNWOTgzcjJCX2NraTFwQm4tS3BjMy1YY3NVSEdyWE9WRUlROFBYQmhRUlBIcTFBSDl1cjVQZ1dMN29iUzNtYUM5azlTVWRkR0lzdUUxN2lIVloyakJnMzZCTVJOR2hFSkVxX2kxNQ?oc=5) |
-| Virginia Giuffre case returns to spotlight after Trump remarks - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1LclRVdUtvclU3M2pyb29nTUY4UDFLQi12NFBDdkVReHoyUGtUTHpWR2VHcEw2MHp0Zm1TUS1QUVNvcnNLdjA2VHJEczlVQmZCZFhPb3hORDU1Nnc2MXYzVmR0QWZ1VzdIaHJLNUF5cmQwS3M2YmNtWTJGQQ?oc=5) |
 | 3 people unaccounted for following explosion at Nebraska plant: Mayor - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPQkhGam4tbmR1X3N1MHBOOUVNNmhXYjNONFdDWEU5MVZpWW9SNEhIeVphMklfOFFLbnNtS0JsUGptVEx2NmpVeEtrZVNPTVdkUDFYRHpGTFZwRWV6YndKWmQzUl8xTFl2aUN4NUxDUEYwbWdPS0FJUGtKb3FvV1hoOElQQdIBiAFBVV95cUxOS2U5bHBSR1dvZmR4Szh1ZUllTW1HMVBSRi1INFQwaG5nNVhuV1BNQU15ejZUTVE4VTFvQVowUjdtVGpwR3dOaEh0ejZUVzVXeUtBSUFDX0NhV0NRd2tXa3BWd1lJbnh6NHZUYVFEQ09YWTExZFFyWWU1TEFYNm9JM2RTd2s4T3px?oc=5) |
+| Texas House Republicans unveil new congressional map that looks to pick up five GOP seats - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPek9tU1A4LUNuZThXcGVqYjVYMkxReDFub3J6a0V1STRkRTQzUUZoRGZna0lnSlBSdm1uMkFLdEJWV1VmMTBUTWpIVjhJb29kLUhibThFVWk4Ukt2TWtvZnc0S2xhSjB5NjBnSFlONVV6eGZpTElGSVFwUWd2TjhrOXE5OWw3dVg5NEo0c1NuYlAyazY3VWhHQm82MVNSQQ?oc=5) |
+| Why certain medications can increase your risk in the heat - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQSTZUa19qaTc0cGNlVGozbkJnUUQwZ1p2RWdLcG5jLUlKQXBodEFEWFl5c0ZDZkJUM19hdDJnanhma2Z1Qk5iclA4SmdfbzV6V2VpUVczdTB1VXozUENDNUZ1R2w3dXJiTi1BZFQxcVpHWDFaMGZzdEhiZlJyQ2x6Uk9OWQ?oc=5) |
+| Families of DC plane crash victims break down in hearing as new video is released - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPWUU2NEUyVzktOEx5UUdvZWpXSGpMUDFDUkljS3JXSGpwOWhzZjcwNGRRVGVQRVBFRmpsTFB2Ri11MHM4NlFwTndrYVlNMmxSQXpfbjkzRF9UNXZBLUtJMWpmbUR5Y2V3Y2E3R3lnRHd4SVJRSG9HNHZIMFNaZGZPR2RwbTJqTEhlUTE1bFRXQzdTWUpNakxKRw?oc=5) |
+| Trump Sees Emergencies Everywhere. Judges Are Considering Whether to Rein Him In. - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPbTRXTkFwZllPb0t2a19ra1Q4YVlhZjZDekt4UDFTbnd2MmctWi0zb1N1ZVdsbzkzdVFyMHRuWWxVdjJMcUkxOHFsRF9JaVJaa3g4blVGeVNvUHNrTGhJVTFRd1czWkM2YkdyZWRDVDRaY3VHSFVtc3JlQW0tZ1pEWTM1Vk95OU5jQzVjWF9wQzdTV3dKMEQ3QTc4QlFMYUxrUkVEV3dRVTRaY0JrQzJQa1R0UzhNTGRZLXZseQ?oc=5) |
+| Democratic Governors Are Angling for 2028 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOM2VhZ1lEbENQcDBySm5vRndGSHU3dkswemVCSWs1Tk1pZDhjOTlMOXNOMjFsX3ZJQmFaMDRfR2swRWRUVGU1UkpKMFcyb3hZR09RbGpFRElvSFRaOW9QR3Q5aTRSd05OZDFaY2pyRVVfUE1HWm5LQ094enZ1RFRMUUYtaExJd3JqREI0QXNudDJfSUMxemxxU00tUzVnSEs3aTVZMFFRVnhhTXNf?oc=5) |
+| Virginia Giuffre case returns to spotlight after Trump remarks - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1LclRVdUtvclU3M2pyb29nTUY4UDFLQi12NFBDdkVReHoyUGtUTHpWR2VHcEw2MHp0Zm1TUS1QUVNvcnNLdjA2VHJEczlVQmZCZFhPb3hORDU1Nnc2MXYzVmR0QWZ1VzdIaHJLNUF5cmQwS3M2YmNtWTJGQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
