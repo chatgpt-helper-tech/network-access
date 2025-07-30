@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月30日 17:22:10（北京时间）**
+🕒 更新时间：**2025年07月30日 17:42:37（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | Bowen: UK move is a diplomatic crowbar to revive peace process | [阅读全文](https://www.bbc.com/news/articles/c8deme846mro?at_medium=RSS&at_campaign=rss) |
 | Up to 40,000 homes to be built on disused railway land | [阅读全文](https://www.bbc.com/news/articles/cgqny1jw7peo?at_medium=RSS&at_campaign=rss) |
 | Why plane turbulence is becoming more frequent - and more severe | [阅读全文](https://www.bbc.com/news/articles/ckgy7jx082ro?at_medium=RSS&at_campaign=rss) |
-| Dating safety app Tea suspends messaging after hack | [阅读全文](https://www.bbc.com/news/articles/cd0dgkjgzvjo?at_medium=RSS&at_campaign=rss) |
 | Banknotes are getting a major redesign - what could they look like? | [阅读全文](https://www.bbc.com/news/articles/ckgy7j02xzro?at_medium=RSS&at_campaign=rss) |
 | Rape crisis centre to launch single-sex only meetings after trans row | [阅读全文](https://www.bbc.com/news/articles/cvgp558qkz0o?at_medium=RSS&at_campaign=rss) |
 | Missing pages from Ian Brady's memoir ‘could hold new clues to Moors murders’ | [阅读全文](https://www.bbc.com/news/articles/c8d6vp3ezepo?at_medium=RSS&at_campaign=rss) |
+| Dating safety app suspends messaging after hack exposes thousands of women's images | [阅读全文](https://www.bbc.com/news/articles/cd0dgkjgzvjo?at_medium=RSS&at_campaign=rss) |
+| Lionesses' legacy is cemented - and players are planning their next move | [阅读全文](https://www.bbc.com/sport/football/articles/cx2x0747mvyo?at_medium=RSS&at_campaign=rss) |
 | Watch: How did Gaza get to the brink of starvation? | [阅读全文](https://www.bbc.com/news/videos/cjey0v4xjz9o?at_medium=RSS&at_campaign=rss) |
-| Famine 'currently playing out' in Gaza, UN-backed experts warn | [阅读全文](https://www.bbc.com/news/articles/cvgvxgl5zxpo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -29,8 +29,8 @@
 | U.K. to recognize Palestine in September if Israel doesn't change course - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOb2dtYkZpRDBiNWtXZ3A4TmdBTV9oeC04RjRGejFBZC1mMnBwRkw1Q1FrZkoxTXdEWnFneExCSkZIaUtPcnYxNV90SGUyX0R2UUZsRHcyck5PM1RqN3FyeXJwUFdCN1lJLUJxU0lOUk9rYlFxS1E2R1htVTZqanRoZQ?oc=5) |
 | Trump says Epstein ‘stole’ young women from Mar-a-Lago spa, including Virginia Giuffre - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPbTEtOUhWNG5QV2FMWVN5UkgxSV9yNjh2d3FXNnZRS0xVX1plcXBUci1GOElPcEZOQW5jSVU4czRaeFdCNzNxMlVFTm9FTkNpZVI0ZWpqTU1fUmxBcWRMdUxtQmFqMndZOGhIcEhuUGYzVjVlV3Bad1JmT1hJREV3QjNUQXdhNkE2QUFJLWpoQUEzcWFGb2hPdm5ZVUdDN0psX0VXUVlUZko4TkpMUk0tbUdKakNUY2hvcmNlSGln0gHDAUFVX3lxTE8yMmlhVEkzWGNjeDZ6MndTbmZtRzFkTWdyeW5EX2dKbXktSEdCbGR5UFJ4VHlNVXUzOTk2MVp0Y2paQ2g2eDVLSGlWWjJ1STBQeDNLb201QzIxOVJtUEZwN3VFMnZNLVpLSE5kVXE4cTRJUlBaV0RPMHhmVjZUMnU2SmVLQ3ZtTXNDLW5qLWVmTktxcjdUOUhlZFZlcENyNVlFZUxVRTRSdGlHcTVTbU9fbTBMNmhEZDdGYXJHZHlWQXYzTQ?oc=5) |
 | CNBC Daily Open: Boomerang tariffs ahead? - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPcC0tSkdqa0NzWlEzQXBtMk5Xb2xqSG9Uc1ozTDZUaGxKUllQZFQ2RzhYNWlSZHhRNDEwNWJsZU5fbGtvTXRhbXRSYVN4bGg1WXRRblByWTA5bDNwUXlnd0NpcHV6UGpHT01iLTMtQ2hnZHh5ZFFfN2NPU1ZkcnNvazdFWjJxcm5jTUtLTkpNUVEtM1HSAZgBQVVfeXFMTlZlOEplbl9sWVU5WktXeVBEM2VldmQ2NEZCektuWmxDcnk0WWhHYkc0TlhqMjhlMjhOcG1GZUlLZWFsM09PWDFQaUdMcHczc0hFMzdIU3JKNFo5Nk90VnhGcks4WTVObkJ5cXJsU2VGTUZRQWZDZ2ltdHYxN2xyRFRMUVZiSmowall0LUlsNXhTNkNQYmt4T0Q?oc=5) |
-| E.P.A. Moves to Revoke the Legal Basis for Tackling Climate Change - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPd2VCeG9KMTRabk1qTDRfYXRyajgtUi0tVlFRWGRZZjRZeVZfdzVzMnljalQ3eFBWa1A3RTBlV2xFYU5jZUxkdm9QZ2ZERkdyM1FWam1EekZjTWc3TWNQNXZRUXFkUzdvZHM0LUNhNXFDUUpYY0dOeTJFTW5kTHQ5QloxajJPNjJWOFlzdGw4eGpyUQ?oc=5) |
 | Roy Cooper raises $3.4 million in first 24 hours of his Senate candidacy - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPSGt0WGNhdmQ1cXE4VVZPZlFsMlY3NzhMUTFXS0R1TENVdWZ5OFgyc2F0QkRiUWZma1NGaTY5M19LcEdHVzRHdnE1Y0lObE1oRWZmZDBMX0NHTGFmVzJZbTRXNjhaNU1SVmlabjFVNGZBQl9QaGRSN1JGSlA0T2RmNmd3NVU2d1FYUl9LMUpZS2JWcFpFRmpQOXItblpGOXFTV0tHM3V6WFpZLWhLTVEtckJiZlg0RFlHYjV5cEpR?oc=5) |
+| E.P.A. Moves to Revoke the Legal Basis for Tackling Climate Change - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPd2VCeG9KMTRabk1qTDRfYXRyajgtUi0tVlFRWGRZZjRZeVZfdzVzMnljalQ3eFBWa1A3RTBlV2xFYU5jZUxkdm9QZ2ZERkdyM1FWam1EekZjTWc3TWNQNXZRUXFkUzdvZHM0LUNhNXFDUUpYY0dOeTJFTW5kTHQ5QloxajJPNjJWOFlzdGw4eGpyUQ?oc=5) |
 | Senate floor erupts as Booker accuses Dems of being "complicit" with Trump - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPUmRYMzR3b0wtS25Sbzlsc2lsWG9fZXE1TDJKVXFfdG16bEtjWFBtMVltRk5USTJBUlpXeFYtNzdpcGtqNVJQYkVkLTFuV2pDZmIyRVVhMkhNNnpseF9zdWhwU2JicXdHb3NxRDhmcW9yeHNFdkRaZDR4VWhQaW1PTFJDQjhYVWIzTkE?oc=5) |
 | There's a massive bipartisan housing bill moving forward in Congress - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTFB5cjhNZjBqX0ZWT3NaVU9FR0dxdmdmV09SRGt5RTBLc3lpWnZnUExIN2VUcThvaGo5TnA3X1BMTDNVZi1wRWFZVEdmMkRTTTJ3bHp5eHFsSjkwRmdYemFTRGZZclR1NlZqNEE?oc=5) |
 
