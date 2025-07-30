@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月30日 18:00:58（北京时间）**
+🕒 更新时间：**2025年07月30日 18:21:21（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Tsunami warning live updates: Hawaii prepares for first waves; Russia declares emergency after flooding in Kuril Islands - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxOS1NESnJDRENFdmVnUUl5d29BNElmYnNQc0hhMi03Wmh1ZFpydi1UbFJ6NXNwQVA1WTRVV1Ewc1YwQWtXcXgyY1RER1BSMi1EWTJxb0ktTlFpVnFNMGR1a29QUHk4Y3FjR0ExNzVQbDRGZzl5SnpHNHhMelFSYVZDRU40TmpQZVJIdkcyd2dZLUhGZUtiNDlYaVdhMmJfZ0pqcG5Zc0dBU2h2d1JIUVVuREk3N3BxU096X21QYWdFSGtfcGRkejNLWWtZUkpYZ1pabHc?oc=5) |
-| NYC shooting suspect claimed he had CTE: What to know about the disease - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPX1ZIYTFEdXpsNi0wc2F2YWh5SE5mT1NlZlRuRG85YTdHWVZMZjdYdGZ4TjAtOEpzaEpjSjNrNjlFMW1BTFE5bEJuZTlEd2M0Njl6S3U0dUN5MkNiazdQWUJzZ3VGaFdvdkRsak9KRDE4dm1XNWpkcVg3bG5hanJXTEpB?oc=5) |
+| Tsunami updates live: first waves hit Hawaii after huge earthquake off Russia triggers tsunami alerts across Pacific, Japan and US - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxOS1NESnJDRENFdmVnUUl5d29BNElmYnNQc0hhMi03Wmh1ZFpydi1UbFJ6NXNwQVA1WTRVV1Ewc1YwQWtXcXgyY1RER1BSMi1EWTJxb0ktTlFpVnFNMGR1a29QUHk4Y3FjR0ExNzVQbDRGZzl5SnpHNHhMelFSYVZDRU40TmpQZVJIdkcyd2dZLUhGZUtiNDlYaVdhMmJfZ0pqcG5Zc0dBU2h2d1JIUVVuREk3N3BxU096X21QYWdFSGtfcGRkejNLWWtZUkpYZ1pabHc?oc=5) |
+| NYC Mayor Eric Adams shares Midtown shooting surveillance footage details, calls for gun reform - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNTk1RQkJKZzNOMmtMaXlrZmk4SUlMTXF1RjZpT2lQRU93UWxpZjlVaXhNWmJIRk5XZXZUVTJ1NGtieTEzMzExdVBYVk1SOHdYci1jcVQ2UVRLM3gwa0ZlUHFmTGx4YUEycVJ4R0l2TkJ2Y0lsTHd4LTRiSW95cEQ3UkVTRG1Kdkg4Y2RBRG9KQVNxTGphdFA1LWIwbTZuWE94R0RnNdIBqgFBVV95cUxNbFNXVXFfYU85WlVNUHlPeENWV3dQaERxVUhHTlNvaFVOakRYSkhteXVicHJSSHNKZ004NnVUNzc4NkZlUFh6T25QMzBuZ0xCUl91NWVraWFnVVV3NlExTWE2VFhXbkpJN2s5VmVaTFZIRVlNQ0dMUUwxdXhMNzBScE00R2NYU3RMZThYTXlaSGpqTXhYSklZVFJ4S3Z4aUw4QWc3MEZWTnVodw?oc=5) |
 | Senate confirms controversial Trump nominee Emil Bove as federal judge - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNWURPMGdsNGRCdnVMYkZmS0JDYzN2bExBOGhMM3BwT2V5d1gxRGtlRU5xVzA5U2NDbzRiQmd6OVlQNUp2V0VYN2xlVmc5dVNUUDVvTEo2QVpTU1dPRkVMaFdCcTZMcjhRX0VfSnFlZFVENGowaUxJZUV2bkVtVDZtMGhOUEt4UEdWcFV0U3pJU0Z2cVYyUTM5cy1uX2tkS1FFR1lwd2JTdE5faVpFdUZ3?oc=5) |
 | Netanyahu accuses Starmer of ‘appeasing’ Hamas with Palestinian statehood vow - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOZm9uOW9zeEhFWVlaN2ZtUFZqUEJmcDBxUDhkVVV3TmlCNzJ2ejJDWnRfMjNLWjBxQ0ticFRrTjEyM2lMLUNhc09RVW9UV1BFOW12Q1VaNUtrdVllM3NuaGQ5QTdGQTZ2QXdPYjFFbzZYdXRtVW44T3VJUlBWYVJFZUg1Y1NWSUxXY3dmQjBYVWZ1SVFhZzA2bmVaeHF5d01BM0k1SW9yQlVKVnNoNnJQcHBMRlg?oc=5) |
 | 3 people unaccounted for following explosion at Nebraska plant: Mayor - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPQkhGam4tbmR1X3N1MHBOOUVNNmhXYjNONFdDWEU5MVZpWW9SNEhIeVphMklfOFFLbnNtS0JsUGptVEx2NmpVeEtrZVNPTVdkUDFYRHpGTFZwRWV6YndKWmQzUl8xTFl2aUN4NUxDUEYwbWdPS0FJUGtKb3FvV1hoOElQQdIBiAFBVV95cUxOS2U5bHBSR1dvZmR4Szh1ZUllTW1HMVBSRi1INFQwaG5nNVhuV1BNQU15ejZUTVE4VTFvQVowUjdtVGpwR3dOaEh0ejZUVzVXeUtBSUFDX0NhV0NRd2tXa3BWd1lJbnh6NHZUYVFEQ09YWTExZFFyWWU1TEFYNm9JM2RTd2s4T3px?oc=5) |
