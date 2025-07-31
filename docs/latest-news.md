@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月31日 17:22:42（北京时间）**
+🕒 更新时间：**2025年07月31日 17:43:33（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | British 999 call handler's voice cloned by Russian network using AI | [阅读全文](https://www.bbc.com/news/videos/c3dpeyrx1kyo?at_medium=RSS&at_campaign=rss) |
 | Hotel tycoon reveals Heathrow expansion proposal | [阅读全文](https://www.bbc.com/news/articles/cd6nvzjvwgqo?at_medium=RSS&at_campaign=rss) |
 | Russian strikes kill six and hit apartment block, Ukrainian officials say | [阅读全文](https://www.bbc.com/news/articles/ce930z8g9mvo?at_medium=RSS&at_campaign=rss) |
-| 'Communities' of strange, extreme life seen for first time in deep ocean | [阅读全文](https://www.bbc.com/news/articles/c3wnqe5j99do?at_medium=RSS&at_campaign=rss) |
+| Auction house Sotheby's returns Buddha jewels to India after uproar | [阅读全文](https://www.bbc.com/news/articles/c0kz8r6gxrro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -27,8 +27,8 @@
 | Trump says he has trade deal with South Korea as Friday deadline nears - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPZ0hZVkhKcnVBZXNoWE16NXh0dGFkcG1yNUw5akFHWGhFRzhlaU11ckswaFJjeHk5RGpURW9tV09ZbXowZzZlZzhYcDBVUjNnVjFXOTVSQU1hbmJCYnBuTllFNUM5YUcyVXQ2OGZ6MS1EUkF0RF95U1ROMGZGaFVMZjhrb2hpaFJ4UzR6N3NSb0ljWjc1MEkybnJWWi1neGdhZ3hlTnhKRm1oeFZ2eWN5dktsaw?oc=5) |
 | Nancy Pelosi appears to endorse a candidate for California governor after Kamala Harris bows out - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPd3lLYnBreE9JM1g5VmZxcTFRNG9tOHJ1Z3lpOU1PSDVQZDladG5CNlh5emNmY1R4MzR1MHF5NVhvZmxNaENLUzVWY2VMQ0M3anp5Q3dCRlhIZ2I3OXlBWEdfX0xKb0MxdWFIZ2pJYkRYa0pYdE9mNEgxcVE5ZFNqbg?oc=5) |
 | Trump: Canada backing Palestinian statehood makes any trade deal "very hard" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1kdF9HbFRzQWNtbXR5Vlg2ZWhuNGplRXRoMk9jR21Dd09DaVdxRHFOOTBzOUhPT2d4eUw5MnY2dGJRdzl6czhDcHNxRGpRTWkydXdZaUNtR3c5MzVWTlRPNHRGc3gyczlzcDVYcC1xZFZxRnIyWDBPaQ?oc=5) |
-| Trump hits Brazil with 50% tariffs, excludes aircraft, OJ, energy - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQRHlkY05la09JR1dmcDNRcWtQR0M0STdmcjFtMTg1eUFKYW1uUHJ6LW1SeWxnbjZRVU5oTjdRSjEwdEhIQW1JMU03ZE9TSFpSR1RCd2hpa1RtTGZkQ1RXMFNwNWxOcTY0cmxuMTlGdlc3VmxucUh5V3V1NWxiMVBaVnRVdkhFcFdSRnQ4cEwweXY1QU5rREl6UldnbG0wR0U0RmxZUElwbWF0d0JlQzdSaHFR?oc=5) |
 | 'Senseless': Suspect arrested in killing of married couple slain on hiking trail - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOdEEzTzlkc19CS3ZjeWctUGhKRldONDBHYmY4UGtmQXZ2aFJCRG5VMVBuQXNEcUtweDBKb1ZKaXQ3ME9MM0hjTUdsSk02U3FyMFh0RzREN0VhRnh0MUx6OTdOaUVpaUpnNzNhamNSTW0zS29LY25nVThXSWxiSFN6MmtxbDRLeGJsd01vQWNiZ2NsV25IaTk4WVMzTE1tNVVkci1FaNIBqgFBVV95cUxNOG1BWGhMQy1iRDQyYWd5ZjZqcTNMMDdTY1BjWDVnLU04UlNHS21NUC0ycm03akhQa1pHQW1MeTdYNG1LVTZsY3EyR0lnc2tyZjFrcVVIOTNqQVBkaS1tNjJuVGZpZ3NDVDNseFR0bXJDOWowOHo3TU1OZWZzc3k5M2FTUGhpajNkWkRvYm9uMmEzS3NiaFpmNlZLMmRsbDdPZXZuenZCU0ZjZw?oc=5) |
+| Trump hits Brazil with 50% tariffs, excludes aircraft, OJ, energy - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQRHlkY05la09JR1dmcDNRcWtQR0M0STdmcjFtMTg1eUFKYW1uUHJ6LW1SeWxnbjZRVU5oTjdRSjEwdEhIQW1JMU03ZE9TSFpSR1RCd2hpa1RtTGZkQ1RXMFNwNWxOcTY0cmxuMTlGdlc3VmxucUh5V3V1NWxiMVBaVnRVdkhFcFdSRnQ4cEwweXY1QU5rREl6UldnbG0wR0U0RmxZUElwbWF0d0JlQzdSaHFR?oc=5) |
 | US trading partners rush to sign deals before Donald Trump’s tariffs hit - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1tVFY5QmZOdXRvbGdJYlB4UllSVW0tczFkdHpsXzdWWTFOR1N0MUgwVGs1dFVsdExsajUyN05wcTJILTZtMWpVWVBzYnd3RGpSbnhKT3UxWC1qVjM3Y2pSUndsVHE3M0lVeVo3MWNHRmU?oc=5) |
 | Virginia horror: City councilman Lee Vogler dies after being set on fire; attack linked to personal dispu - Times of India | [阅读全文](https://news.google.com/rss/articles/CBMihwJBVV95cUxPV0J6aE9iT0pRUFlMbGdOcjllU3YyRlpEMW9hdUhiU1N0NHpIUXRuSlB3YjhqZlpjZGxFR0wzR0g4UEdBNlVnTnBEY0FLazZsbWFpcjgyc2hTeDhfTXpRV1RBZzRXMFN6b3ZCamRWeHlDTk1fc0lpbU9adDBWdkQtX3N5ck5WdUUxODZ5TV9tc0FCWXMxUVN6Ti1faGFCdGo4OUtsdXJZZTkwOE15dllUWkZ5MDZNTFdyTTl6aDRqNzFXWUp0eU10a3VocUtTZWpST1NTY05CX2xTYk0xUm5XVjhxX05sTl9jOXFIcUR0Z0xUaVhRbTBqc0J4NDd0OHRUcGJJS1pGb9IBjAJBVV95cUxQVnJja0Rxempmc1hMYTdGYWtuWWN6b0s2aVhBNFN6Mm1pV1pwMW5KU3h3YzV2UE5jUUFXMFpwOHhhUWhqZDJtaDRGNVNuR3I1Y1VpbldWT1F2WFRsamJUdFlvVnpjMTl3QTFoMXBIU0lsM2NLcnV4cm1TN3pMMTF4ZzViNW9velNUc0pYVDd1X1UwbjFqUGhuUW9YX3N2SE5uamZ1NXNKenJmN0kxelBSc2ZNLTJYY2s1ZFBLeGNsQUc2cHJSbjNZMHBwSnE0NnAwUVBuVzVDT24yOUVBTHdnWHk2YU9iWUxiSEhLQnd4M2tLMGZFeUtER1U4UGxSNTJ0Y01vMUVhcW1KQzM2?oc=5) |
 | Mamdani backs away from ‘out of step’ defund the police posts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPSWpZb3ZHUExzS09ad3hESW1XUXF1dW90cEZxc0Z2anpCX21IQjZodkZTZTBqQk1SRGlhcDZCeDNfeEdaM193ZHpVTTZHQXR1VDVlb2llWHVHT1ZZR1JraEw0RGJSd2JNdjREeF9JdkNGdXBUY1doM3B2TUhfS1psWkRicVpUMjBveHJfelBYU284QnRkdTJqYkRKX1lkank4VFRkOTZoa2huR0l5Tmc?oc=5) |
