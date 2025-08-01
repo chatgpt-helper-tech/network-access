@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月01日 14:22:00（北京时间）**
+🕒 更新时间：**2025年08月01日 14:43:09（北京时间）**
 
 ---
 
@@ -17,22 +17,22 @@
 | Tech giants blocking some Ukraine and Gaza posts under new online rules | [阅读全文](https://www.bbc.com/news/articles/cj3l0e4vr0ko?at_medium=RSS&at_campaign=rss) |
 | University tuition fees in England and Wales rise to £9,535 | [阅读全文](https://www.bbc.com/news/articles/cwyegp0dnq9o?at_medium=RSS&at_campaign=rss) |
 | White House unveils plans for new $200m ballroom | [阅读全文](https://www.bbc.com/news/articles/c2l7dey54zjo?at_medium=RSS&at_campaign=rss) |
-| Kyiv toll rises to 26 after wave of Russian strikes defies Trump ceasefire demand | [阅读全文](https://www.bbc.com/news/articles/ce930z8g9mvo?at_medium=RSS&at_campaign=rss) |
+| At least 28 killed in Kyiv as wave of Russian strikes defies Trump ceasefire demand | [阅读全文](https://www.bbc.com/news/articles/ce930z8g9mvo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump issues order imposing new global tariff rates effective Aug. 7 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOSkR1aUZHdGVUYWZVeE93MXBVempOSDVWTUxVTzVCc1h6dXlHUFNHcnlONXl3Z28yMG5NRnhTRHBkRnJyMGJkWnA4NWphd3N0OU45R3JzbUJFRzduNkc4eExfVFJCalNwenZiUEktaXhQdHNMUlN6X2syNXUxVGlFUHc1cWIwNUNqaXBiM0NaaWo4UzF0a2c?oc=5) |
+| Trump tariffs live: new rates on 92 countries released; Canada faces 35% levy on Friday - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPaDE0TVpzandSYkNFbmZDQUF6S1dPNTYyZzJibS1wbG92N2o4UjZKZGdQZHl6cGxCWXVKeEhmckxINkVFQzdYOUNOX3paUTRoT2pYaFkxQ1NBbkJTOS12cXpldG5jcGJvTzBXVWhEQmV4VF85REw2YU95TmpZV0VQLVVOcUFzQVJ6RzVLTzRvNlVwQWxYTHlzb2U1aENzTG9QRnZhenFUZEdTVjA5VFhmeWpfeXdKSFc1aE9xaDBDRVNlVUZw?oc=5) |
 | Trump plans $200M ballroom he’s long sought in East Wing expansion - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQRXdoRlBfSmtSYjlQZHRXMUlMclMtU2N5VDBIc3RvSEtPbjhyWG0xWGJVM3oxVzhjVWpERGdlU1JJMFdJRmpUVlNjYnJJb21IbzBqX3VlcWhZMl9yRmlXb0x4blJLRVVaN2F6UVNiTUxCVHlKQklBR19YTXRwRTN1dXpzR3pVaXRCTVh4cmtR?oc=5) |
-| The California Governor’s Race Was in Limbo. Now It’s Wide Open. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxORjZUbzhIeERKU2Q0TktMYkpGVHUtdmtHaWo0dkhkWlJnLXVMdUZHWC0tRUNteFpDRHZTcmFoYllMYUZ0d3hTMTJfTjlLMllTNEJEZDRjVmtfaHFIYS01QUJQUVZqZ0RGcmhnTG9CNEdtYzA5dFN2UV90Q0xMenBfaw?oc=5) |
-| Scoop: Top Biden aide was promised $8 million for 2024 win - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQYVljbzF1VTRZVlBwNzV5aEE5cnZKRDE0YlByZHR2QUFnYU9rZjBRY0xMT3JZSjFxQmFNWmptTS1uUjJIUVJNRnBlT0J0ZDJ6OWJnYmk2SHZnRl9JLXJNN1VQdVFqRjB6Q1RsVmlkM2x3eEdDWWRHTjYwT1hYd1g4UlJlUkNERkRJ?oc=5) |
-| Young Ukrainians get their way as Zelensky overturns law to defuse crisis - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBhay10T1ZsNmtfeVdDNHRIWGd5R2hYTVNxN08wRVlmSDc3NmFWOHlsNWVlelE2d21MLW1aREREaWFFNWFhcXBMYUNZTXpwSXRoT1RKNVJkTm53QdIBX0FVX3lxTFA0QWZ0VERHOFNXRGltM1h2aHZWNDgzTnBpN1pLVGFfb3VrS3p4WjJ4N01rYzEzeTZqNDdUZ0E5cEcwaEk4WlRnQkVoMUpabmNJTExfVDV1OEM0OEpCRnpF?oc=5) |
+| Kamala Harris, In Colbert Interview, Laments D.C. “Capitulation” To Donald Trump; Says She Refused To Participate In The “Piling On” Of Joe Biden — Update - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQMHppS09XNVFVc2xnRnd0QmZmMzZ4eTBoVnVvX20zVzZ6Yjd5cWxPYnZrQS10TWtmXzEzSnZZbWlxaklPS1RrOU1VSE9OYlJlVlpISEhoNEQ5M0VYd3NwYmY5bTRORXFlbFZJWWZPSmVGUEZqQ0U5WXAyUW9RUWhkNWxSb08zS3M?oc=5) |
 | Tower failed to warn plane of Black Hawk’s path before D.C. crash, FAA says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPRG04ZHZaN212LTRVLTRHQTE4UlF3TWgtWVMyRmtsWi0tTGNKdElBYjduVmFxS0JWelg0OFpvMHAxUExjRnNGOFlkRl9XTFZFS1BXcWdQTjJxMkdQZUxQMDA1YUtseHh4NEVfODJxRXpGMkNxdGRJYUxOVzZMc29MUGc4MUN5SDZ5UkZfUnNsejNQTnlJMmlJZWVFa1pPQTlCNHdnTEV3?oc=5) |
+| Young Ukrainians get their way as Zelensky overturns law to defuse crisis - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBhay10T1ZsNmtfeVdDNHRIWGd5R2hYTVNxN08wRVlmSDc3NmFWOHlsNWVlelE2d21MLW1aREREaWFFNWFhcXBMYUNZTXpwSXRoT1RKNVJkTm53QdIBX0FVX3lxTFA0QWZ0VERHOFNXRGltM1h2aHZWNDgzTnBpN1pLVGFfb3VrS3p4WjJ4N01rYzEzeTZqNDdUZ0E5cEcwaEk4WlRnQkVoMUpabmNJTExfVDV1OEM0OEpCRnpF?oc=5) |
+| Judge blocks Trump administration from ending protections for 60,000 from Central America and Nepal - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOdl8ySzZXV3puMktJdHFKY0pyZlI4ai1zMVkweU95dUJuREc2WVhCUzM0WXZYTlkzNUMwNWUtZ2dSUENXUmgyWGdNN3lYNlRaeFBXaElFNXJ0c0d3TUktQm5fYVo2NkR3emFDdDBJb0VxSEtUOWdkdGVzd1ItbmE0UFZNM1ZtVk16WUc1VWZEQ3I4TVNlT1VULWxoekxUbUhu?oc=5) |
 | Devil's Den murder suspect James Andrew McGann was North Texas elementary teacher - KDFW | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQcU1sVUJIWjBybk9EYVJ0eWloMTdZTjdjM29TX2dsSXFiMWVZeVFTV0tKU0pCWHhzSWZvUWJCUmtUMTFhNjBGSG11dVRNTkYzWThfWG1FdWdua1g4cmFNMEhRV2hybXdiUGl6d3A5Z0lzbmFVSE5BRTh3Nk10eW8zdG00YzNtellPWEHSAY8BQVVfeXFMT25oclptSHBUeFd3cllxYmVrSDZFbTZMZWsxOEJKRkZkbENMTzNpcVVvQTZUeUNISlNRZjdGMW9aN1FjRjNZTVRFYzdBRmpTODAwZVFvOHFzdnEyUFVtTnI5VVY0cml5RW1TNmpxSGdqcVNDb0JwYWhfY0RyRXlNeGlENmdVOU1UY0lxUjZFRzQ?oc=5) |
-| Trump tariffs live: new rates on 92 countries released; Canada PM ‘disappointed’ at 35% levy - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPaDE0TVpzandSYkNFbmZDQUF6S1dPNTYyZzJibS1wbG92N2o4UjZKZGdQZHl6cGxCWXVKeEhmckxINkVFQzdYOUNOX3paUTRoT2pYaFkxQ1NBbkJTOS12cXpldG5jcGJvTzBXVWhEQmV4VF85REw2YU95TmpZV0VQLVVOcUFzQVJ6RzVLTzRvNlVwQWxYTHlzb2U1aENzTG9QRnZhenFUZEdTVjA5VFhmeWpfeXdKSFc1aE9xaDBDRVNlVUZw?oc=5) |
 | In an emotional hearing, Texas lawmakers hear from flood survivors, local officials - NPR | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPdnBBdDd2S0VJemcwZXByWXlneHVCZnU3dVk0aHg4R0VXOHZlTUhIR2lZV1dCbnNqNGlCal9KTGFiNmtqMXBSZE02UzZpc2RqVVBydUd3TlhrN0ltc3otOWtZUWQ3SWFweW01NzdNUEVfMXBIdExzVlVJS3hzYTM5N2Qxdk5sUHR3Q1dXOHJQMnd5WGRNRnVQdm5fMHpzcndnX3czWjM0Nm01ZVdRQURKWldWS1Y2c3UyX3BmZUI3Ti1lbG1m?oc=5) |
 | Trump, Term-Limited, Amasses $200 Million War Chest for Political Ambitions - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPdm84VlByWk9rdllkWmdfVm1ybTdhVGcxYVdmTmVBT294VTFsQUk4TXkzaUh5dFpRdno3ZkRobkxsWEZaWHJGUnZlekQ0RVZSQy10ZzZ0RDBjeTlzaGZzbUVQTEVEdFc3cTR4WXl3V2pyY0x6aGFrXzFnYWxlS3JGdVR1eW0?oc=5) |
+| Escaped slave who became lawmaker will be first individual African American honored with statue at South Carolina State House - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFA2MzUxc1NNTk1xdm5TQVFjUUFUNjQ0OW44R0pBQXJ5UWhfS3RVWnRKY0hhdnR3YVlHOERlNDdlNkxWX3ZNVG1VOE9XaDZFRWxqX2NnXzRvWTBGcTdMRVZsQkliYVVGVXFYb1BtUk5VZEpnSW_SAXhBVV95cUxPdmxPSWFDeWZvLS1iUDNWbHVKM3dXeVVMaThWcGwyTWFUT01OTWJCNlRCYzBZTmwyRDJDcEU4ZW9GS0lsZ3hzaDg5d2UtbEFPNWRCc1lJMDhVQnVLMjUwSGp2NVp3R3BlYTJ0bXB3VHZIQkZlaW5jc1M?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
