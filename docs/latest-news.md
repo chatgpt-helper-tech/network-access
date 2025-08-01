@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月02日 07:21:07（北京时间）**
+🕒 更新时间：**2025年08月02日 07:43:16（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Trump fires lead official on economic data as tariffs cause market drop | [阅读全文](https://www.bbc.com/news/articles/cvg3xrrzdr0o?at_medium=RSS&at_campaign=rss) |
 | Millions denied car finance payouts after Supreme Court ruling | [阅读全文](https://www.bbc.com/news/articles/cj9w0dj0yjyo?at_medium=RSS&at_campaign=rss) |
 | Car finance payouts have been limited, but lenders aren't off the hook | [阅读全文](https://www.bbc.com/news/articles/c9qy7wy4ey1o?at_medium=RSS&at_campaign=rss) |
-| Trump fires lead official on economic data as tariffs cause market drop | [阅读全文](https://www.bbc.com/news/articles/cvg3xrrzdr0o?at_medium=RSS&at_campaign=rss) |
+| Jeremy Bowen: 'Thank you, but it's too late': Why some Palestinians aren't convinced by Starmer's promise | [阅读全文](https://www.bbc.com/news/articles/cd6n0eeqp54o?at_medium=RSS&at_campaign=rss) |
 | US moves nuclear submarines after ex-Russian president's comments | [阅读全文](https://www.bbc.com/news/articles/c93dgr2dd53o?at_medium=RSS&at_campaign=rss) |
 | Man, 76, charged after children fell ill at Leicestershire summer camp | [阅读全文](https://www.bbc.com/news/articles/c4gz32kp0d0o?at_medium=RSS&at_campaign=rss) |
 | Ghislaine Maxwell moved to women's prison in Texas | [阅读全文](https://www.bbc.com/news/articles/czd049y2qymo?at_medium=RSS&at_campaign=rss) |
 | Love Island finale, and Wednesday returns: What’s coming up this week? | [阅读全文](https://www.bbc.com/news/articles/c15l4kv45v5o?at_medium=RSS&at_campaign=rss) |
 | Top MoD civil servant to leave in wake of Afghan data breach | [阅读全文](https://www.bbc.com/news/articles/cvgprxzggz4o?at_medium=RSS&at_campaign=rss) |
 | Wounded soldier escapes battlefield using e-bike delivered by drone | [阅读全文](https://www.bbc.com/news/videos/czd0lp6d009o?at_medium=RSS&at_campaign=rss) |
-| King's nephew Peter Phillips engaged to NHS nurse | [阅读全文](https://www.bbc.com/news/articles/cly6kj7k97po?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
