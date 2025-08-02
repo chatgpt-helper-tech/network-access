@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月03日 06:01:08（北京时间）**
+🕒 更新时间：**2025年08月03日 06:21:51（北京时间）**
 
 ---
 
@@ -8,15 +8,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Man, 76, in court over sweets allegedly laced with sedatives at children's camp | [阅读全文](https://www.bbc.com/news/articles/cwyep6j7z0zo?at_medium=RSS&at_campaign=rss) |
 | Hamas refuses to disarm until Palestinian state established | [阅读全文](https://www.bbc.com/news/articles/ce35nx49reko?at_medium=RSS&at_campaign=rss) |
 | Family condemns Hamas video showing emaciated Israeli hostage | [阅读全文](https://www.bbc.com/news/articles/cpwyxv9nv2vo?at_medium=RSS&at_campaign=rss) |
+| Man, 76, in court over sweets allegedly laced with sedatives at children's camp | [阅读全文](https://www.bbc.com/news/articles/cwyep6j7z0zo?at_medium=RSS&at_campaign=rss) |
 | Steve Rosenberg: Russia is staying quiet on Trump's nuclear move | [阅读全文](https://www.bbc.com/news/articles/cly4kgv9238o?at_medium=RSS&at_campaign=rss) |
 | Arrests after asylum hotel protests in England | [阅读全文](https://www.bbc.com/news/articles/c6276rlwdqko?at_medium=RSS&at_campaign=rss) |
 | Rescuers race to save Chile miners after collapse kills at least one | [阅读全文](https://www.bbc.com/news/articles/crlzk4dnxe5o?at_medium=RSS&at_campaign=rss) |
 | Dua Lipa granted Kosovo citizenship | [阅读全文](https://www.bbc.com/news/articles/cwypepyzqego?at_medium=RSS&at_campaign=rss) |
+| The mystery of Winston Churchill's dead platypus was unsolved, until now | [阅读全文](https://www.bbc.com/news/articles/cglzl1ez283o?at_medium=RSS&at_campaign=rss) |
 | Jeremy Bowen: Why some Palestinians I spoke to aren’t convinced by Starmer’s promise | [阅读全文](https://www.bbc.com/news/articles/cd6n0eeqp54o?at_medium=RSS&at_campaign=rss) |
-| Car finance judgement 'a hard pill to swallow' for claimants | [阅读全文](https://www.bbc.com/news/articles/c7vle481ydno?at_medium=RSS&at_campaign=rss) |
 | They escaped Ukraine's front lines. The sound of drones followed them | [阅读全文](https://www.bbc.com/news/articles/c23gjk7dlvlo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
