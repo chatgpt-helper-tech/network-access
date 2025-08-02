@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月02日 18:01:10（北京时间）**
+🕒 更新时间：**2025年08月02日 18:22:16（北京时间）**
 
 ---
 
@@ -8,9 +8,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Man, 76, remanded in custody on child cruelty charges after children fell ill at summer camp | [阅读全文](https://www.bbc.com/news/articles/cwyep6j7z0zo?at_medium=RSS&at_campaign=rss) |
 | Trump moves nuclear submarines after Russian ex-president's comments | [阅读全文](https://www.bbc.com/news/articles/c93dgr2dd53o?at_medium=RSS&at_campaign=rss) |
 | Jeremy Bowen: Why some Palestinians I spoke to aren’t convinced by Starmer’s promise | [阅读全文](https://www.bbc.com/news/articles/cd6n0eeqp54o?at_medium=RSS&at_campaign=rss) |
-| Man in court after children fell ill at summer camp | [阅读全文](https://www.bbc.com/news/articles/cwyep6j7z0zo?at_medium=RSS&at_campaign=rss) |
 | Car finance judgement 'a hard pill to swallow' for claimants | [阅读全文](https://www.bbc.com/news/articles/c7vle481ydno?at_medium=RSS&at_campaign=rss) |
 | I no longer identify as Nigerian, Badenoch says | [阅读全文](https://www.bbc.com/news/articles/c24z77yg16eo?at_medium=RSS&at_campaign=rss) |
 | Star of Netflix hit KPop Demon Hunters says number one single doesn't feel real | [阅读全文](https://www.bbc.com/news/articles/c3dpxknjn07o?at_medium=RSS&at_campaign=rss) |
@@ -25,10 +25,10 @@
 |--------|-------------|
 | Trump says he will fire labor statistics chief after weak jobs report - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE8wNlZtY0YtMDkybGI0eEJtclV0dERjSlpNcTcyaDAwMVFrT3lZMnh1cUN6QWhOOE15WXdzSzAybU85MFNBWDBsSWdlSXlFNHZycC0zN2p5MjJyQk5STV9LWWsxVlhDVGYzd3EybA?oc=5) |
 | Trump's tariffs are (still) coming - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSFNxNGR1TERWcUI1bUtVQVowNTZwTzBPcktXZlgyT3o4SDRSakZyQno0V1ZDVGc4YnNXTktXSXA2VmNaOFpSZVF4TGJPejlVNFpEZTVzNjJXdHhadktIQ193blFVRndUenY0MWV4YWVwRkhwaEoyekRqYUFjQms2RnUyTklTNGFSV2xnaXpR?oc=5) |
-| Trump moves nuclear submarines after ex-Russia president’s menacing tweet - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPZWlTbWZnOTFqM3V3ZHpSNFpmRENDR1dWRmV2RTNfVnp0T1M3N043RFVsVmFXN2oyTFhSQVhGbXB3cWRpSngyeW5BZVdXbGFteFVFVHNSY2YyNEJrYUNMYnhDczczOWhpdnJnZVBxRFdTc2ZTaGM0OW1sQS1wd09ycEstN0cwTzI3QUxJS2V2OTI?oc=5) |
-| How a fragile aviation system led to disaster near Washington - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQMk1xZXhGSVpnVjB0OFZ6bWtSVXVHMGtOZWVCeDVNZndCMEplMUwyZmx1NUxRZU92V015NXNiTVVnNThGR2NrUmxJLWxqODJhMFlTYUxLYlJ4YUh5d3FPcGNNek1xQzRObGV4VkhSSGZ3cGhXdEplSC1rQ3ZmUWVaTFo0MlQ1X0JmT29aNi02YnZSYV9JM3o1d09Qd3VsUU9tSDQtLWtQbXJJdjA2UWlrNw?oc=5) |
+| Trump says he repositioned nuclear subs in veiled threat to Russia - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPNFA1THJNZnp1cGlpZDh1UWpBVFd1b1k2SzRiYy1aWFZ1YU80aTVaZm85SUk1Vkt6TUx3NzJRSGtTemVKVFlGbUpYVHRha2g5YXk4Tnl3RDJRTm1XaEtucGxkTHZWck82YS1qcHJSb1pyR1FUZ0diVkpXRU82NnBCQjZmU2VHZw?oc=5) |
 | Not just Big Bird: Things to know about the Center for Public Broadcasting and its funding cuts - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNb0MzY0t2clVfSzZ0QzdwSzcxQm9PT1NfdjNGd2lMVzBfS0FuS01vb2ZVTHVRZ1duTDdJcXY1ZWtrWFZRUEZFNnliZDF2ZzFCMFlxdGxBY3pNSGd5VEZoQ2pNaXZHZDFQaVU5VGlpVngzTW9LYWRQMTJudHJHMEYyb1VuOUZWcUttWTN6VW9RWnJtSVRIemRGQUxwSzdSRXJzeGRudllqZGQ1R2VmbzZ0S0xB?oc=5) |
 | Teacher accused in Arkansas double homicide resigned from Plano ISD after only 4 days in 2024, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQN29wdnZLVC1xUmdNcFcxcV9HLWZkYmxMcVlNaW1vbXFWSkZLaTdNSjhLZk5WNFE1WXUtVmtfdFdUWWFKYWxtRXhTSW1ueTZHVWdKb3VoSGpDOXRLTEFkRVViV0ItbUJmcVRIWHNkSWx0Mk55U3d2VGZTOHVLMThmby1QczFFclNrakIxaklobXBiOFNxWmxmYnR4TFJraV9qTE5CVjVn?oc=5) |
+| Ghislaine Maxwell moved from Florida to women's prison in Texas - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9tN0hXYXFWMDNZRmQ0NURvOFFyTVlyaDdzeFh3NWNSTTE5enlKa3JKMTVBRTQ5MUNmQjVPSmxheFBVdDM3MU5XX3BfNlVxUzNlRDdPN2dGLVVpZ9IBX0FVX3lxTE5PcjZmaHZ2b1VDUkFmVWVQd2V0bUJFTC1ZMHVOalVwNEtHNHJ1dTk4MkVLdzJ0MllHZ3ZlNFVSSndST2hRb1dHQnpOM3MwaldyaFo0bFUwMUhnOWI0TW9F?oc=5) |
 | Montana shooting kills 4 at Anaconda bar as search for suspect underway - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNNXNwSy0yZ09uODllLXV6d3dodGtPZmJzbDhWdzdKVXBzcERKZGpSVmg0aVMxMWYtUmVWa2JkLXZpTVMxSWQ0c0d5a19Mcml2Rkt6UVk1LUtEc21IQkVtU0czMGVvbFJVeEdSY1NwUVljdTNneWlQdEktcG1vRWN6RDE4RW9SeDZaanFGVkpUOW0?oc=5) |
 | The Supreme Court just dropped a hint about its next big Voting Rights Act case - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOMmZyRU5fT3FmdjVWTlRrT1dZYTMyMkdFMW13WWQ5VG1Ydkp2Wm5FWXVnNWVzbU9LeDZYTV9OMzB3SGdlVkZoekNsYWJ5SlQ3QUlPcml1OVRJLXo3QlZELVpTTkhMMnl1ZVBCMGMyNUVDc25CdE1Jd2tQb0x2Y05IRnlGOGw0aFMycW54S2NqbmhMX0ZGajNKNw?oc=5) |
 | Judges Keep Restrictions on L.A. Immigration Arrests, in Setback for Trump Agenda - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOUVRFQnhFV3NqVnJqTGtpcE9LMlNNcFNYT0FGWldIYXVseVk1djMyM3Jlc1lpNXpTdzNJRi1DamgzeXZMRnBiMHdMQm9UZ1ctaTI2WUY2UXNPTUZRNUd5ZjZnN21Mcmh1ZWpvUDB5VUJ3NEI0d3VHeTItLVVVVEhkeVIwOXMwUQ?oc=5) |
