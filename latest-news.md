@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月03日 07:43:47（北京时间）**
+🕒 更新时间：**2025年08月03日 08:00:02（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Watchdog agency launches probe into former Trump prosecutor Jack Smith - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOb0tlMm1UOVNxaFk1WGhMSnFQUW5sRDV5SmhsOThmSlBIME9xOU5zWVZaSHlyelVrZnRDd0VFSUZpUllrZGRKTG9NRTJtc2Fnd3BpNGFlbldtY0lEM0FZWEwtQXU3TWtYdzI3ek5OTFlJNkNJUFowWTBOcEt4V1JidnBJN1REbkVVYWlDc2FRa9IBlAFBVV95cUxNc25MRGZsQ3ltcTNhbUZMcTU1MDVfMW95Mklfa3V3RU5DeHlyTzBJVVh3MWtPWV9lVUFFaEUtT0NJT3Y0c2ZncEhNSk5heEZ3aV9hSzJYenhfcjA2bzNvajNra2Z6X09aZUNOZEwyakljSU5jRm5SMGQzYUhadzRTNmRhaHBKZXljR1JpSmRONmF2SWRZ?oc=5) |
+| Former Trump prosecutor Jack Smith faces investigation by Office of Special Counsel - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQSnZxcmExM1NzT2s5akEwZHhzMFlnTkIyajB0UXdNVEpqT0k3Y3RtbERuRzI1VmdjRjhhdFN6aG9nYlVFcmZpcUtkYUpza2hjMkNRZUtKbnBXbjJRRTNqb0twMGszcFVieFRUNldWSTJuMS16LXp0VW4tQWlUc1dBOTVBanRmUG9IOHJMWURqZW9wSXZab0dmTWVPbldZemYxZHhvMVBPQWlUNWZFQWc?oc=5) |
 | From Laos to Brazil, Trump’s tariffs leave a lot of losers. But even the winners will pay a price - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPV19VZmxZYnV5RnBFWUVWdEt3QUd0U0tSNUlaeGZDakNTN2JGbnFIWTdwUnF0bk1JUHBCb1BITjNSY2cwSU9OLXdvN1BiN1VWQXBrNE5VTmlINE5vNU8wWTlfbFB5anltTldDLUhfMDBsLW90T1ZlaXZkNUk3OThYVDRVVEZkb1QxdDN0SnRVQy1nTzlsYmtnT05jVFZZTWlUM2c?oc=5) |
 | Senate GOP eyes recess appointments as stalemate drags on - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQQnJKTW1CbzBQakJtRTZyOU9sdE5BRlhfNEFJemRoQ2Zib09jcXo2MHJDYmZLbE9Ra3dVYkhETk9iTDBWSkRORnFIOF9DazlOOVJ6NG4wMDEtY3Bya0xBNkU2blpzWHNRYWtvdXVVWEEzZ1lmSWhwOXprZHQ2V0ZUN0dJWQ?oc=5) |
 | In Gaza, more Palestinians are killed while waiting for food aid - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQUktWQ0V5cDRySHM1dGJWTUdrYjhub216WGV2SGJyZEg1WjQtZTJ4OF9VZEpKTW1ycnRrQkxHZ291SGdBMGp1ZVFXVVJKcWNfZUc2U2pqLV9QcGFuNDZjT1lBeWxfVFZkUVBtOTNQOTIycW84TEtsOWtZQm9tM05jTkozaTM?oc=5) |
@@ -32,7 +32,7 @@
 | Montana bar shooting suspect still at large after four killed in Anaconda - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOZzI3cHN1LU5aM2pGMDgxSTFXZUdlU1hTc0NHcE5Nc2k1UUVGWGd3Z19xdG1LRXRmY01DNkcwV0RGcDBzamNMbmswMkM3VU5obndXSGVzb3NGNkNGZ1dpSUp1SFBSbFF1TF9PNUFsUDRCTlI4elFhSVBVclFKLWxzX3Rn0gFWQVVfeXFMT1Q5UW1OaHZ0UGR0VnA1cWk2Wk84dTg3T1RMUHdIM05PN1BEZ19rZl9ueU45aG1VNkl4OF9lc0lNdktOYVNOU1U2c0dIWTg5YWdHeEROcnc?oc=5) |
 | Appeals court largely keeps restrictions on immigration raids in Los Angeles area - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxORDlkR1pBZWluZ3lncTAxcDRoU1ZvZGVkSW9vNWdmeDZMVV80bFMwLXFTRHdCOFZ0cXFrMzVZWUpodkFrdlVyZ3d4QlB2b211V0VWNlZNY3lxbWJJWFEyYk41NVE1b0RhQVlZNjdOaUFXX2c2WkVGX21yUGFQYzM3NG94TThXRk9lUV9yQ1NfM1M5MXF0Q0xUVVlqRlA3cTc1RGpkRjM4MkZrREVEY3Vod0xn0gG3AUFVX3lxTFBEOE1QLXVkVUNmb0UxaDJrNFhXYmFxQzlQUGRvWUYzeGRtNEM0cXJ4aGxLX1dBR1pWRDFFZmVZM2VKR2ZBaE9JYkpoQk92djg2ZkVoemJqOXl4aTRjVDNfWk03enRValRhaXFqYTlRR2M3ZnlrM1BLcC1OcVNONGR1YklGQlZvWlVDQU5aYWx5XzdETDZodjRPc2dXN01LX3Z5OGxFM3pIVVgwbnZ1eDd5azNiNHAxZw?oc=5) |
 | Tennessee Man Charged in Attempt to Detonate Bombs During Arrest - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQenpNc24ycTVCbWJtWVJOVjVyNkIyZzZKdVpkR0gtZ3dRZGFyTkRXMWIyUUNUVFdHY3hnanBINEo5enhheC15clJMakhWMEhOVml5MENkYy1WdHVjYUhoYnF3Nmp0cHRJblA4V09HNmpHYURwZDhLZlk5WUdVZlgxWFJB?oc=5) |
-| Texas panel advances redrawn congressional map that could take 5 Democratic seats - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9tWDZSbXBNVnNyUDUwVG1jM1o4T0gwYkRMRGZJeVU3aHpYazRzeGlianVZRDgyREJ6dXV1LWRHY0xYalQybnBacUtzRTJCbFlSSkhDVFpWZVI0Vm8wVjNYYk5hbGROMU5RZTNfRzdFbGRETzFZMHNTOTdTVmfSAYIBQVVfeXFMT1p3ZUg0c1E5RTQ4RmtsNFFWRF9tUU82Q3hpVEpUTWxLQzBaX1ZTOWF3alY3MDBkQlhJZzJ0bTZfSjA4OWE4RXZqRXlsM1dkTTdySXJuZTZRTkR4T3J5MzlPbl9BbllINnJOcWFYbHJUaUpqZDFqUWl6Xy1aajJBOTBjUQ?oc=5) |
+| Wildfire smoke continues to blanket Midwest as flash flood threat heads to the South - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNa1JxZEZaS21ZWUZiVzItTXBkT1BRVDNWMmxhemlfYTlZUXhEOWpmQVRxQi1OTkVmblczcHA4U0RtblhzM3JFQWlYYkhIQThsZUhrdEprYVlXYVp0Y216MjM4RFFVSXZpZ1MwTDR0LVRjWU80NWxOSm1QaC0tcF82ZUlYOUV2akJEVGs2dVRfVDM0aHRQNV9vaU1VTXhFbTVWSGfSAacBQVVfeXFMTlJwYS02NllqLWthcGl1RzQtdkdTaTBvNFpGVzBQekZnZFZMZG5fRjgybFU5dHpfTXlFZm9sM2d3MzBES1pRdnh2ME95dnVBcnBHeHR4WDNwWGdveDB1dDJvbkJXWUVJVkdlYlhqRHBjU3lyNWU0cGsxbm0xZ2lUbUlYUncybHRWV09vN2tiV2FDVXdhcVZFRzdJaE12aXlrLXpoWHQwSHM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
