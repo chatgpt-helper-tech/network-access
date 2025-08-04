@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月04日 12:22:59（北京时间）**
+🕒 更新时间：**2025年08月04日 12:42:29（北京时间）**
 
 ---
 
@@ -9,14 +9,14 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Storm Floris expected to bring strong winds and disrupt travel | [阅读全文](https://www.bbc.com/news/articles/c4gq3n049jno?at_medium=RSS&at_campaign=rss) |
-| Victims of mis-sold car finance could get less than £950 per deal | [阅读全文](https://www.bbc.com/news/articles/cgjy29zql25o?at_medium=RSS&at_campaign=rss) |
 | Hackers, secret cables and security fears: The explosive fight over the UK's new Chinese embassy | [阅读全文](https://www.bbc.com/news/articles/c3v3rygdrryo?at_medium=RSS&at_campaign=rss) |
 | Leaders condemn videos of emaciated hostages as Red Cross calls for access | [阅读全文](https://www.bbc.com/news/articles/crr2dwn7q40o?at_medium=RSS&at_campaign=rss) |
+| Victims of mis-sold car finance could get less than £950 per deal | [阅读全文](https://www.bbc.com/news/articles/cgjy29zql25o?at_medium=RSS&at_campaign=rss) |
 | Man dies after fall at Oasis Wembley concert | [阅读全文](https://www.bbc.com/news/articles/cwy3j93xekmo?at_medium=RSS&at_campaign=rss) |
-| Government pledges extra £100m to tackle people smuggling | [阅读全文](https://www.bbc.com/news/articles/c99mnnj22ygo?at_medium=RSS&at_campaign=rss) |
 | BBC finds electrocuted, drowned and starved cats in online torture groups | [阅读全文](https://www.bbc.com/news/articles/c5yp9w5kyw7o?at_medium=RSS&at_campaign=rss) |
-| Chinese university students told to spy on classmates, report says | [阅读全文](https://www.bbc.com/news/articles/cyvn308789go?at_medium=RSS&at_campaign=rss) |
 | England set up tense finale in astonishing final Test | [阅读全文](https://www.bbc.com/sport/cricket/articles/cn92vgq2x9xo?at_medium=RSS&at_campaign=rss) |
+| Government pledges extra £100m to tackle people smuggling | [阅读全文](https://www.bbc.com/news/articles/c99mnnj22ygo?at_medium=RSS&at_campaign=rss) |
+| Chinese university students told to spy on classmates, report says | [阅读全文](https://www.bbc.com/news/articles/cyvn308789go?at_medium=RSS&at_campaign=rss) |
 | 'I'm in control of my sexual health' - UK gonorrhoea vaccine rollout begins | [阅读全文](https://www.bbc.com/news/articles/cgkrx6dnkkeo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -32,7 +32,7 @@
 | Montana shooting victims named as manhunt for suspect continues - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQY08wZFgzbS1qNFpoNUl6RVp5cUVrb1Byckk1YVFFYjNCV0k0VURIVHdIR0NiaHh0SDQtZzViRHRTVFEwYnNlV01BVnpnUFBRSVdBb20tQThvSkMzX1Ayemd2Z19XWmw1MEFORHRPZFpoMW5EQy10THR2amdpZFdnbVc0MEgwYU0?oc=5) |
 | Canada wildfires cause poor air quality in the midwest and northeast U.S. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPcmxhNElBRVBmM0J2WUNBaW5TSzkxVlBOMU0tVUtfMG9POGJjSV9nUWE2VXR6VUxCTC00bkJJMWFSNWZYR0ZCVnQxOG9VVUUzaFg4ZlZOVG40TlFIclQ2ZFVldXdUdjRPOWpUQkZnOThlZm1qTFBXUnBtV0ZIc20zRmpWZjRTSl9YU1Y4QXAyX01NVWxnLUwwWUQxcktBdzdHMFVoODNCTTczY29Da0o0MXFwYw?oc=5) |
 | Sen. Chuck Schumer Trolls Trump’s Nominee Tirade With Jet2 Holiday Meme - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNRUp6dFFaQVM4Y3dOSm4wWmFCaTMxYWREZkI5a2h0aGlHdG5DUjdUN3V6UV9qYlpTS3VzNWlSS0xSMmFNYnNjVFNvQWtxdS1DLThUR3Y5ZFpFZm9sdEZXYXN2eDU2aFl4aERBOVJzTlV0bkg0amc1Z2JZN0ItWm5ISERzR3pQa0taTkpvX1R0ZUNPbE9NWkJ1OXNvc042c0loZkE?oc=5) |
-| Tennessee authorities arrest 2 linked to suspect in the killings of 4 relatives of an abandoned infant - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOUEYzc0NIeGdqZ2gwNzJxMEk2SVBwM2xPbDUxSUlnMUdMemxoM2Zva0tud0ZRRVFNR0pQUElySVBTOUp3NDdCbmZJbUt2SFNDZGRJQTdtSjNxR29RUkFoTWI5RjdmVzZLTlNuekxMNEVONUxFZlA5dWNWbTltTzNPbEtWRXB0amtNR1dEeVVIOE5KQdIBlwFBVV95cUxPdEs4dE51VzJLeDR0dDBLTVBKSHI2RThPVUpGazYtUTlCY1JhS25fbzBYdkVQQk1JcFB5SFVLbWxtdFJuUmtaUTdydFlZaEV3Mk1XZktjaldCbHUzUXJuc3ZtVUFsM0RnMDFNWXpmXzNqckZHYjVQdUY4SGNsSmNlaE1BRjNPRUlseXUzMkRPRU9yV2N4ZDFv?oc=5) |
+| Trump Is Killing Climate Action. Even Big Business Is Confused. - The Bulwark | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQZkhiVFF0WlRPRXhOV05KQ1BYOWJ0UWMtR2JSU3FjSXVaeEd4Mm5UNDJqTG54ZFJ2YkJ3a05VZmlnVUU0MVlDajNGWVN6cTVfLTBiUGc3cDVFQ0pvbGVqeFptdUNxS1pmZFhMUEd2dGxKU0hFYW5jeUwtZmpMTEp5czhySmZoSFBDVkVZ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
