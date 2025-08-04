@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月04日 13:00:59（北京时间）**
+🕒 更新时间：**2025年08月04日 13:21:10（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Storm Floris expected to bring strong winds and disrupt travel | [阅读全文](https://www.bbc.com/news/articles/c4gq3n049jno?at_medium=RSS&at_campaign=rss) |
 | Hackers, secret cables and security fears: The explosive fight over the UK's new Chinese embassy | [阅读全文](https://www.bbc.com/news/articles/c3v3rygdrryo?at_medium=RSS&at_campaign=rss) |
 | Leaders condemn videos of emaciated hostages as Red Cross calls for access | [阅读全文](https://www.bbc.com/news/articles/crr2dwn7q40o?at_medium=RSS&at_campaign=rss) |
+| I regret taking my son to a riot following Southport attack, says stepmother | [阅读全文](https://www.bbc.com/news/articles/c201e9qq9g6o?at_medium=RSS&at_campaign=rss) |
 | Victims of mis-sold car finance could get less than £950 per deal | [阅读全文](https://www.bbc.com/news/articles/cgjy29zql25o?at_medium=RSS&at_campaign=rss) |
 | Man dies after fall at Oasis Wembley concert | [阅读全文](https://www.bbc.com/news/articles/cwy3j93xekmo?at_medium=RSS&at_campaign=rss) |
 | BBC finds electrocuted, drowned and starved cats in online torture groups | [阅读全文](https://www.bbc.com/news/articles/c5yp9w5kyw7o?at_medium=RSS&at_campaign=rss) |
 | England set up tense finale in astonishing final Test | [阅读全文](https://www.bbc.com/sport/cricket/articles/cn92vgq2x9xo?at_medium=RSS&at_campaign=rss) |
 | Government pledges extra £100m to tackle people smuggling | [阅读全文](https://www.bbc.com/news/articles/c99mnnj22ygo?at_medium=RSS&at_campaign=rss) |
 | Chinese university students told to spy on classmates, report says | [阅读全文](https://www.bbc.com/news/articles/cyvn308789go?at_medium=RSS&at_campaign=rss) |
-| 'I'm in control of my sexual health' - UK gonorrhoea vaccine rollout begins | [阅读全文](https://www.bbc.com/news/articles/cgkrx6dnkkeo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
