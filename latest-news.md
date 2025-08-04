@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月05日 07:01:04（北京时间）**
+🕒 更新时间：**2025年08月05日 07:22:47（北京时间）**
 
 ---
 
@@ -11,22 +11,22 @@
 | He is a human skeleton, Gaza hostage's brother tells BBC | [阅读全文](https://www.bbc.com/news/articles/cewyk4ezeedo?at_medium=RSS&at_campaign=rss) |
 | UK-French small boats pilot plan comes into force | [阅读全文](https://www.bbc.com/news/articles/cewykzegy4qo?at_medium=RSS&at_campaign=rss) |
 | Storm Floris batters UK with winds over 80mph | [阅读全文](https://www.bbc.com/news/articles/c4gq3n049jno?at_medium=RSS&at_campaign=rss) |
+| Obesity jab patients need a plan to stop weight coming back, health experts say | [阅读全文](https://www.bbc.com/news/articles/cwy3jg20j1ro?at_medium=RSS&at_campaign=rss) |
 | Disfigured, shamed and forgotten: The BBC visits the Korean survivors of the Hiroshima bomb | [阅读全文](https://www.bbc.com/news/articles/cp8zlwd3e42o?at_medium=RSS&at_campaign=rss) |
 | Tommy Robinson arrested in connection with assault at St Pancras station | [阅读全文](https://www.bbc.com/news/articles/crr2dpxxzz1o?at_medium=RSS&at_campaign=rss) |
 | Four-year-old girl dies following incident at water park | [阅读全文](https://www.bbc.com/news/articles/c627kxkdkzno?at_medium=RSS&at_campaign=rss) |
 | Trump threatens India with 'substantial' tariff hike for buying Russian oil | [阅读全文](https://www.bbc.com/news/articles/cly647wx9l3o?at_medium=RSS&at_campaign=rss) |
 | Love Island 2025 winners revealed after drama-filled series | [阅读全文](https://www.bbc.com/news/articles/cewykzvj4glo?at_medium=RSS&at_campaign=rss) |
 | Danish zoo asks for unwanted pets to feed its predators | [阅读全文](https://www.bbc.com/news/articles/c0r7z2ynd2lo?at_medium=RSS&at_campaign=rss) |
-| Eurostar passengers face delays and cancellations due to French rail issue | [阅读全文](https://www.bbc.com/news/articles/cq58z7w00vqo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| With Democrats Gone, a Texas Gerrymander Is Stymied for Now - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPblRpSVZiS0VJQkZueDVSTGlVdDJDQVNjZlJybWVVOWJVMDFuYzFSdjkyNV9CU2x6dWl4aFB5Zk1iMEdJTmdDdVNCNTcwQnMwb3ZnaXR3VFotbElXT2ttdS04MU1id1ZkUFlFZDIwYVIzNnNvZmFnaC1zWkxwS3ZldVo0eHI?oc=5) |
+| Texas Democrats block GOP redistricting plan by fleeing the state - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNLUhGOEVkZ0w5c0oxN2JVRGFyM1RtMzRfY2hVQWtGOGxlNGVFZEtUZWJael83aGFBWFMwbU90WS11TDZfWi1NaUZncVVORXM3UTVwR3h3RUVKYU5xSUd6QXJETFVwZlRyN21vdEdMeXZWUE9pdEVRLUtTdWpkRks5dkh3?oc=5) |
 | Why were US job numbers which riled Trump revised down by so much? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5DU1hHZDFhZHlCLTJLbzFlbWYyb21vczJERElRRE15enBtNmlnM0VpMVZ2bG95WmdSTmljT2VNT1pNaE15bkxWVDk5TEo4TDFRRDBDNzIxd0lrQdIBX0FVX3lxTE5PZnFUbnFYWloxM3JUdnRDdlg0eHpIbFk2aExPY0hEaFVWX1NNWDRic1ZESlVhVURSZW1kVU5pdkcwVGhmMkJoN1ktdnhmRGJ6TTZSdDFPMnp1RjhseWlZ?oc=5) |
 | Israel's PM Benjamin Netanyahu says decision made for full occupation of Gaza - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQOHVKZkxmZnh3ZVM2YlV2MHFpZHFReGh5aThpV1Y1UzJ1M2kxOEpQQllHSlF6VUpxR0RjTEwwUExnYlBKamNsN1RFV3I5VjV5WWpydUVhQURySmFia2kxTHdfNjhvdVBLRWdObmpBMnlCNUl2dXhRcXF5MUZZV2pieEItcEFLd0xHSGkxR2thaW1iV3FucUFz?oc=5) |
-| Trump again threatens India with harsh tariffs over Russian oil purchases - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQM21RX0JrWlRzWTV4a0ZCU2txYk9kTy0xX3JLOXA5djJQNUg1R3Z6SW1TZkNWd1B2Y1JlQms2OU5fd0R5VnhTQl9CcFh3TmNaQWdFdl9yaU14WkJtSERrT0tiRi1iZkdobWtacmlpNEJXckIzVmlpaHhOVldQaWwzQ1NJQWRKS1hOMkthdzVlMnJ1dGVGQ1FKMzNQMnA4QmxMT09GR3VXc1BLYTk2dS1xaEdzd3hvZ2ozS1BfQ09B?oc=5) |
+| 2 dead, 6 wounded in 'senseless' mass shooting at music festival after-party in downtown L.A. - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOQS1EMHdkRkFPcDFWbHd2OGhVU2loYUZ2QUJIN2NUamU2RjhyT2RRQXc0cUYxSzJLZWNGYVFkWVZjaEZoUFlnWTFkUmhkemZieVA4MWRGYmNMRUhwYTVZOGpFRExNckh1OWhnLTYyS2xUOUgwNTBQTGNDbHhnM2tRVzM0Wmd3RGNVUl9fSkJzYmRiT241X2JLeg?oc=5) |
 | State Department may require some travelers to post $15,000 bond for business or tourism visas - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE51cS1Bd090VkI5bTdVUjd6NmVJRW8wY1U4Wk1jMzhYVWkxWF9iem5SVVJTZ3pSUFhYMy1reVZpX2VSNGxVUmxMa1lUWTBKT2Qxb3BzN2o1dDNvUTU5dnl6aWpRYjBUQUZEZXVIZ3UwcEp5c2E5NTVYaTJn0gF_QVVfeXFMTnZSdXVhZC1hRHVlNUpyN3Q1ODAyaXdsTmpncUViMGRYR2w2blM3Q3h3MWZXbnJfZ2NCbjNBQUd2ajhtaFM3dUYzSGdsbV82b010WWdfU2RLM2dqcEJmRGlCcHl5aWo3ajJtb0ZmSlFGLUt0eWtndTE4UDJ3SThzdw?oc=5) |
 | GOP effort forms to stop redistricting war between California's Newsom and Texas' Abbott - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZlgwMnhRM2VpcmxmWVg3VGZkd2hjellsajFqMXVSNWdvRjROZmdvNFVLQzFsZWhOUHlESU5tTFEweFZvS001SzZaR1hoaENtb2lqc0tIOThvMkZQT0dhMzRfUjhIZXdFTWkwb2dBNTJPcFE0OTBjbnMzZmRWMUtVdVNCRQ?oc=5) |
 | Rep. Nancy Mace, Trump critic-turned-ally, to run for South Carolina governor - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNNmdyWTVNcnJmM2FRNEttdzRqZzVDOU5FOUZUOHNYanBHa1dwa2k1ZU9TNDV5bGFuaXA5VFBmVGI5UjFFaG5iVC05QnJNazMxcl81U1lJeVBXMzNGT2ViUFVkRTRnU19QVXBOZTVXZ3dKamdYVmdPQWhxUzlaWENMMmU1NEM0UERxM0NzTFQ1aw?oc=5) |
