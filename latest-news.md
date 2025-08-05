@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月05日 15:21:24（北京时间）**
+🕒 更新时间：**2025年08月05日 15:42:07（北京时间）**
 
 ---
 
@@ -8,6 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| First migrants could be detained within days under UK-France small boats deal | [阅读全文](https://www.bbc.com/news/articles/cewykzegy4qo?at_medium=RSS&at_campaign=rss) |
+| Repair Shop's Jay Blades charged with two counts of  rape | [阅读全文](https://www.bbc.com/news/articles/c5yl63965q0o?at_medium=RSS&at_campaign=rss) |
+| Obesity jab patients need a plan to stop weight coming back, health experts say | [阅读全文](https://www.bbc.com/news/articles/cwy3jg20j1ro?at_medium=RSS&at_campaign=rss) |
+| Storm Floris clear-up under way after power cuts and travel disruption | [阅读全文](https://www.bbc.com/news/articles/c0j9g25q5eyo?at_medium=RSS&at_campaign=rss) |
+| Disfigured, shamed and forgotten: BBC visits the Korean survivors of the Hiroshima bomb | [阅读全文](https://www.bbc.com/news/articles/cp8zlwd3e42o?at_medium=RSS&at_campaign=rss) |
+| £100m of premium bond prizes remain unclaimed | [阅读全文](https://www.bbc.com/news/articles/ce3791ep6gko?at_medium=RSS&at_campaign=rss) |
+| He is a human skeleton, Gaza hostage's brother tells BBC | [阅读全文](https://www.bbc.com/news/articles/cewyk4ezeedo?at_medium=RSS&at_campaign=rss) |
+| Texas Republicans vote to arrest Democrats who fled state over redistricting map vote | [阅读全文](https://www.bbc.com/news/articles/c93dkwnx94ro?at_medium=RSS&at_campaign=rss) |
+| Tommy Robinson arrested in connection with assault at St Pancras station | [阅读全文](https://www.bbc.com/news/articles/crr2dpxxzz1o?at_medium=RSS&at_campaign=rss) |
+| Love Island 2025 winners revealed after drama-filled series | [阅读全文](https://www.bbc.com/news/articles/cewykzvj4glo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -22,7 +32,7 @@
 | How Is the Montana Shooting Suspect Still at Large? Check Out the Terrain. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE45VDVxcW1PdjVGM19hNmF2ZTBQbkYzNEhLNEZkcEtPaVVvRm92RTIxUS1fU3dtdUdZVjcwU1NKc0FiWkp6bnQ2Ukl5QjBEOXFwcHB5cWZfcGFKcEo0VWM3SzQ4UzBwLUhaSnNIa1JuclFwalVI?oc=5) |
 | UVA appoints Paul G. Mahoney as interim president - UVA Today | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQWkx0VmRVc19ZVGlaLU45Zk91Z003UGo4cVl6ZDlMVms4dWZBTVJ6bFEtby1Kb3VQRmdRVzNzcHB6a1dhb3ptM19OQ1ZseWxvd1BGMmo0ZXVwcTNDc2d3blRXVExLMTlmaHVrNUEtdkRENXNHZ1VwQjZXcDZ4dUh6dkkwYVRkZw?oc=5) |
 | US DOJ to open grand jury to investigate Obama officials, source says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPMFpTV2JuSE1QSkh1bnBoWmdKMlpRbTJnY1RRQkJvY2wyT0NZZHJDUVpaZEJHaEY1MXdNbVppVVNSZU9DMFhBRUUtajZPeVJZNjdOSW5iNDU4YUlSdEk4NTF5d0lPU1A2eVo3ak10Q3R2RWk4QWdpMS15RVVycGJUc2lpd3JMSkVrQnBweHZOVGtSWm1BeEhuRFA5Sk5HUVNLZXVuVVBFbGVnZmdRS3FDSVVPMUk4Zw?oc=5) |
-| Nebraska Republican booed over Medicaid cuts during town hall - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQVVVKWkFVVG1TZm5PUi11aE5ncDhEWkI4Y3FySWg2M3BMajVjQldDZDJvWmZFZkpYYXRBckd6eUl2alNXMnhxbFN6dTU0YklKc1UybnhzZk10ODZ5UEVjNVZtbjNobllWbERSYU1aX2x3WDBPdm4teFlkY0tRUk9qQkNTUURCLXdhbENTUNIBkgFBVV95cUxQTVpNaU5GMnlyMnJKaDV4UDY3bUlZeEpQYTh0b0ptZDR5Qk5SdjJuY284S0FvYXJtQmJnTUFwTjc4czJISzlMelBOZXh2S2FQNkpadjJ5Um85djkyTnkxdG5PbU9DeC1XQURsMFNLdXUwTTZWb2Q2eTg2dFZYOGRWQkptd2NnRDg5aWliZkwtbG9lQQ?oc=5) |
+| Brazil Supreme Court orders house arrest of ex-president Bolsonaro - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQWUROdWllUHZYQ25IR2RkcWFSc01CRG9WSTNzT0tydS1zWmNHN3htajVMTGR5R3BMbTVHR21nM2xtVDJyMlJzdzJLTVp3NkpiMi01TWVja0JuV3dmRE80dWtTbnJ4YkJPVkozRWZuaXh4am5pN09qdWkwU2d2N0NBOUl3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
