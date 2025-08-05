@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月05日 10:43:00（北京时间）**
+🕒 更新时间：**2025年08月05日 11:00:57（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Wildfire smoke is like smoking 'half a pack a day.' Here's how to protect yourself - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQZU5aRkhuSEVQN1NmTEhOZzh6eVB6NjhOTnVVTHlTdWEzcFVPTGJ3c1dqT1FzdjdMcE9SYkpIc1llYWhveDBPM2FOdmFsVWdIYThpdHZ4d1FvMVk0U2M0ODJlV3haNlpzcE9leHJadGRhREU1VVhNNG1BQmVOTlpnbWhIQmFNYmtaSWpSMGJQSXJiUkFRdGFHVFJ6VXVmRGVodENSV0Zodw?oc=5) |
 | How Is the Montana Shooting Suspect Still at Large? Check Out the Terrain. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE45VDVxcW1PdjVGM19hNmF2ZTBQbkYzNEhLNEZkcEtPaVVvRm92RTIxUS1fU3dtdUdZVjcwU1NKc0FiWkp6bnQ2Ukl5QjBEOXFwcHB5cWZfcGFKcEo0VWM3SzQ4UzBwLUhaSnNIa1JuclFwalVI?oc=5) |
 | US Rep. Nancy Mace officially launches bid for governor of South Carolina - Post and Courier | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPRTVBTm5YeWlCb0lmbm5WYVl4WDdVM0tRNTh6Tnh1UG5nTWQtQ3JMdDhYLVlTWjNwTzk1YW9uY3Y3SV9Mc0VUZFB1NnRST0JiT2pLLV9VaUljRE84RXowTmhMbm9sM0JjWnIwUl9leVZIR2VDNjVGdGhFLUxMWU5GaEoxai01bUw3aUJZMkpSbkdMOHhhaks3eHMwbVpHNlo4Q09HS1hYQmNQYW01b2FHaDU4aDJFYTNCUzljektB?oc=5) |
+| Trump moves to bar nearly all abortions at Veterans Affairs hospitals - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQNnVwTFBsRUZXekk1VlZFd0hLN29kSnpvM0xuOWxZWEZMZXMtRks0Q2N1V0VTdmtIa0xPcnBPM1VLNUp4N0RDeDJpSjk3WUphempFTW40MnRReGtGcS1HUEp0ek5yX3lhUGhzZDRNb19sQXlpZ210cTVHT1pMQk16NGtB?oc=5) |
 | All to know about the quadruple killing manhunt in Tennessee after family found dead - The Independent | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPV1ZHMVdZNXNHdlVqSm9GVV9wU1pDczF3ZVlfclJkUUFCQ2VvWlE2S1REdHBCWjJ5M1ZoVmpyYXg0MXY0YjBrSjF2SGdDS2dieVlOcmVPbkozdEZMMFBtcUdadzZrRXNOeXFQMHFBOTJ4RXZuN3MxOVlrNXZnbXRMVHc1Y3BWNDIzbTVEZ0Y2R0xWd013YlNpbDEtWjYyYUpSOXVGaGNndEdKLUhSMkZUbi1R?oc=5) |
-| Attorney General Bondi orders prosecutors to start grand jury probe into Obama officials over Russia investigation - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQNkdUbEhQMTkyLXVGRmpmenRCSHk4QVRiLWlsbDYweVdpN2d4UXFGaFNDVjh0UlpQd2N2UU04R09UajRWeUtVRVBWNlM0d29kenpMdnVsVUV0TVlJSDRRdmVaM09FeHBkNnBCYThyM2lWTEN1VnNadTFfTVRWSDZ2dVRR0gGHAUFVX3lxTE1QM3Z3ZDRTdC1zblo2UXJxQlFLNlNQOXc0YXMyd3AwMHotWnBpcWl6aGNxYk5MYjhuR1pVZFh6M3l5aUVPanFrNEZZc2hCaUNZV0NWUFpTM3g5QmtlT2F4bXZ1cXd2RnJYa0I5R3A5YmhIa0FVRXpoSGozcDNxWGtVWE43NFRiZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
