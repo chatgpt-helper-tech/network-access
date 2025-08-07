@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月08日 01:00:03（北京时间）**
+🕒 更新时间：**2025年08月08日 01:22:08（北京时间）**
 
 ---
 
@@ -17,12 +17,22 @@
 | Pair arrested after water sprayed at Orthodox Jews | [阅读全文](https://www.bbc.com/news/articles/c4gj6e23l0po?at_medium=RSS&at_campaign=rss) |
 | Housing minister faces calls to resign over rent hike 'hypocrisy' | [阅读全文](https://www.bbc.com/news/articles/czerl5dy0kgo?at_medium=RSS&at_campaign=rss) |
 | Ex-Superman actor says he's becoming US immigration agent | [阅读全文](https://www.bbc.com/news/articles/c5yp8l3z0g5o?at_medium=RSS&at_campaign=rss) |
-| First episode of new MasterChef with sacked hosts sees fall in viewers | [阅读全文](https://www.bbc.com/news/articles/c1w83e44e21o?at_medium=RSS&at_campaign=rss) |
+| David Lammy to host JD Vance at country residence | [阅读全文](https://www.bbc.com/news/articles/cgjylqlvq5xo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Trump’s trade onslaught escalates as global tariffs kick in - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNOU1HbUJVTG4zUmYydHppUkNLbFRzX29ZVEcweDVlcGVQNHFxeXFBakZMeW9TeW9lRWpwT0F0R2xmYUQ1MVdoSUtiamxReldMQTRlSnJkd3hRaHdaVjZqSDZ0MG1MX0toU1pkNDlmd0RxQVFZcTZfTkhwM1BqalVUbVJfdEswdTZ0bldpNjhTaEdKR1lZT3M0Wm9RMA?oc=5) |
+| Israel to proceed with plan to occupy entire Gaza Strip, Netanyahu says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE16eTRhdkVXOERhakZjWlQ4WkV3dW9iOUhSdHIxWUNQYXRydlowV0VNY3F1aXpiN0Rpb25yOERzaUFfcmxPTDJrQm1MbGx0OGV5U3QzYkF2cm1sMF9ZMGcwSGs3TUw4d0NwV1NRQTJGVGl1X01CN1BKdWZ1Qkttdw?oc=5) |
+| Sen. John Cornyn says the FBI granted his request to help find absent Texas Democrats - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQQlAxRldoamNhZkswWXpsVnoyMGdVekIwbGdYbVUzRTVuaTVNYWZpd096eF9TamM5aHAxWGoyUS00OUVIY3RWN0FCZ0szOWdITWRzc2RlLU1rUWtOZ1VJaWxLckhHOHlaUG5iX2RwWXpaN25NbXlNTllIWDdaLTBGaE40b2s0VGhfWTR6RDZta3hubmRVa0JwVUxiOXpGSzJlYzNSUGJlZlR0WGhQUUtrNm41NzMtTWQ0UG5z0gFWQVVfeXFMTkQ4X3VYeE42LVItREZfMzF0b2dUaURnQXdNMEhleUU1MEpZdFV4TTNuRHc2OGxRODZiakhqSHhCbnlVQ3M3VnF5ZlJqcUQxNUZTZENpNFE?oc=5) |
+| White House pushes back on Kremlin claims Trump and Putin agreed to meeting - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNSEd2OGF1bGpORVh0TlE3cUVkUk5fRHFPYVphUTJwSW4xMFFrbll2QlRQbGlNVlJHYTFuakRvQ2dfaDVGX0RFMzllWU5yc1htT0RSOTlOVXMwMWo1MnNTWU56N1k5YnVWLVB6MXlYNzV5dGVSejJsdnZBbFpOUUpVLXEwUnpOVVdwR2NaLXozSXVZSllZdThxTWl4OF82VU1FcXNHM9IBqgFBVV95cUxNUk1SU1hISHgyZVBvdU1DZ3FCM3JIalp4eGxmblBIeHdkS3pxMXZpdGdCc3RXbDZ1YVZhXzhkRmlnZWZ6NVVQak9YOWptWHNRZFlCQnphRjZDVm5sQmFYeTJ6VWxDT3FvTngtVktrenkzQVdBdU1uNXdOXzhXV0Yxc2M5R0l3c3lMSkNIZ2dDMFdjdHdKTjFKemJfaXphVzloeE9zdnYzTnk1dw?oc=5) |
+| As Trump Administration Plans to Burn Contraceptives, Europeans Are Alarmed - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPUThuWHRnN0ZhWm0xUkJmRG45MFBGOGlxYkphSGVCdERHaHZwMVhQZ3BtQk1vRTVXYm9tTjZGQTg0MFhNQ1YyUElNZGgwMW1CSVE4d3g2TlZRM2dFSzkyZmlkWk1CWTVUeU12Zy1SZ0h6bWZYVWVkaC01TmxWcFlsSENDQ3BlQQ?oc=5) |
+| The trade war isn't over. It's just beginning - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBfMk5yS3VNTFVGVGQ2YlFrcldyalRsdmEwdWxqeFg4RW53T0FlVlB3QThkdWpkMkQ3M1BYODFlUjNncmp2UmJFTVBzWUVmbVp5SnFwdmpXaWlVRnFIcWU4V2NHeURkbmVXZDlUQ0hSZFNpdVBnN2JpbWhERkRDUQ?oc=5) |
+| Soldier shoots five troops at Georgia’s Fort Stewart before being subdued - AJC.com | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPV0VkbHJNUklraVdlMU55VUZPU0FSRklTbFZ6R2JNRUI5X0hnVkdqMG9SUnd3RDFJQTc1S1JtWS1URV9EMEd5UTliVDNHXzJITWx2RzNvMHhXOTJYcUlnbkVZdzdWWlNkNElqaHVldWRydlpYbS1EWGJvN08zZ0JRbEpRektfcjJuZWl0ZEJOZmhKY3FDWlhJVzlfbUd1UXl1aVJoZEN5a2ZhUQ?oc=5) |
+| Trump calls for new US census that excludes undocumented immigrants - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNc0ZwUnFXRXhHczhpR0c5ZDNwZkJTVVllMXA3Z3pUWFg3RlFBbW1TZUlkb2lwV2RfSDMxY0xTUlVHeHZtXzBHOVptUEJXYXlkb1Nwd3ZRZlNyck9VMG9ONkVBUmEybFhpRU5sRzVtN1RWMEc3WVpoZl9aQVpkdUJGUllfaTdGT1YtV0hURVlsRWdDV1dUdUdRVTExX3U?oc=5) |
+| 'I don't see the point': Mitch Daniels on Trump's redistricting push in Indiana - Politico | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9CSDRxZjVNRTV1ZF9hRi1JcFNXb2prYUo1SjJuNzZOMzhSSFMxc1pyaGg4VGZWVUNORTdjNkpjNGZ0cGMtN2FCR3hLQXdDQTBNZTdCOFFiaFBiMmtBdUdzNjBjeTM1Y2lsUzZvWGUwWDVuM3lpSHc?oc=5) |
+| Senior FBI official who resisted Trump demands is ousted - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPeU9rQ0QyN2FWeU5EUmhodmEzVkd1NlpEUk1vaU83b3dPWE1hUE1lTXhHTFliV2xweUs2b2ZfTEE0cGhWTnAxT0VPZkpOS0RxNmpzbnA3aHpCUGI2TExYQm9LUHY1WmRsdC1sVDhpd3FSdDdBZ3RNNWg3YWotdURZaDhDaDA4M2I3V3dfQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
