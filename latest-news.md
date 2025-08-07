@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月07日 07:43:07（北京时间）**
+🕒 更新时间：**2025年08月07日 08:01:52（北京时间）**
 
 ---
 
@@ -23,16 +23,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Army sergeant shot 5 soldiers before he was tackled at Fort Stewart, officials say - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPUDNkN3hpM1J5eGd2ZUpmYTR6RTcxZVJtV3Y5b19qc09fbmRIUlctMjBsemlRR2RRWGJrQ0hDWmd3dXpsWDMzTUUtQWVicHhORml2c1pRbmJwMy1iODY4VjVVcHFWR3NkZHhoNC1rMHhfaHpINUxYc0c0VFhQUEZvZ1pR?oc=5) |
-| Trump to Double India’s Tariff as Punishment for Buying Russian Oil - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPZHJjY3RWc0tFcjRnSmxkM2xDWjdhcy1YRnY0RF9FR25iNlktRXNjT2NKakh0MnM5XzVZbjdlRzhDdExUZFVzbFc2bHlmc2xRT3FSQVlzN0ExWnliM0ZEaUR3eTdvY1ltVi1VQjRZTzVYNnZmOFRjdXU4WnZSd252eUl0dndhNkp0dEE?oc=5) |
-| A Trump-Putin meeting could happen as soon as next week, White House official says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOYkhQWXRrU1l1Tm0wc2FGLUdLZWZnRXF2YXlrc1k2VTJpV2sxeHNnUUNlRmo0Y3pqWjlWcklidUFfYmFYZkJWREJZV2dNRFpyamtCdFJ3OHM1cHMweEI0R0c2UmtkUXBXUDB3UGlPYzJQekloVEZ1S3oxajVvOUxhTVpaaG0tdEZEM0Y3bHI4UWhTazVwUDlRSURZVFJkZWs3ZGtGOVpR0gGrAUFVX3lxTE9KV2h4NU9xd0VGU05UTWRUX2syS2dPSkhBOHV4eHVlbWRseWlGMWlndVhDRDI5WHZGdWpLZHN2THhqanhvekJMdlhKQWZyZk0wMWdnSTRVY3lMV3RQSzZGRGFDY2JQQUVST1dDMWZSbkNMN2dmaVpDaVJZQnRRSk1Kc1NNSzZKNGpleTlURDVUUnliT1k2UVBUN1l1RUFMeHFVZVZNY3pkQ21KSQ?oc=5) |
-| Bomb threat prompts evacuation at Chicago hotel where some Texas Democrats are staying - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPUTZnODdIWmM3X1MyNk14aEVvRjAyd3NNcnl4VDJKQ2JHa1Mxckk4X2dPWlA5a1E2SlhZenFlYnNjWmNzTm9WRXBIcXlXdWVoQUtKb0U0OVJFN3JnLVl4THBoYXhvVy1rdHRwV0JOMWtLdy1sMi01R3hpbHFaYzVwd255TFZ6NHVtRG1pNjh5QWdlYWc4YlUzSFgyUnZkMXNsQU4zeVFR?oc=5) |
-| Trump threatens federal takeover of DC after attack on former DOGE worker - PBS | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQZmlQWW8wVkp1TU85azViMWU5SFBQUjZiMGZiNC0xVC1WUVV1LWVQZ01qSm5uUHBBOHI4d2lteU52aHJTMW1veTRJUWlKVWRMM0U1cGVCX0IzekM0SGFpQjE2Q0FHWFRKdkJyR0xYdFdQWjg3NGlsWHVLMHJlaU1ZbTRKbXRfLWZjMVV1RkQ0QWlVVzhEZmhGTzJpVDg2VmlVVTJ4cGlKNldILWxvZEVFcdIBtgFBVV95cUxOSFhzMU1qSnJmS3loUHRKcDI3RGgxeVV5ODBLM2RjU1hFV3JUVzRITzBOVlJ5TTFJLTFrbFNPeEdqczdfYk5QRk9fanpSMkNDVC1FUUM2X25MUkZpNGpmbWktX0g2Z3owSE50MHR3a1NTN3h6N0IyMnlRM1hFVld6MnpadWdOZW5ONVJZMTJtMEUzTHNwYTREcFJQQjBNUzI5c1BVSWtrY2xJaGhsOHFrUnhrY2pRZw?oc=5) |
-| Mass. takes center stage in Texas redistricting fight - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9rY29NVXdBLS1kYjBTZlYxRjdwV0IzU1JvOEExeWZpOEc1SzFoSXdiN2oySExuUXd0dmZoV09xeEtVWWlXRWxjYWdaVTIzQXF2bnFqLWNMWjhzeWk5Mmc5cFNDZWt1aUpmY1NjdVJSd3ZMUDNtUm80NkE0NkU?oc=5) |
-| US Rep. Cory Mills accused of threatening to release intimate videos after breakup - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOZjVaUGU5ZENiVUNSVk9vcWdHNWJBOWZqWWJIVllmTXBEMmhZeWE1TVE3bnctT3puQ1gtOHZseGRaVHhYX3JKZFhSbGpFTVFRenlaM3FjZjR4Uzh1SEZtR0FKV1VhT01LSjdjVG9rRzBsejRrVmlCUzdacnZDVWlzY3VrTmhiOExYTWYtSG50ZkM3VXRKV296ZF9iR25EWkVDdG1oZmxqdWtOV3hjY19hZF9MM3FxeWpKX0E?oc=5) |
-| Senator Marsha Blackburn Will Run for Governor of Tennessee - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOZWJkZ09wcnNnQ2dYVURBLUZ0anM3VXZZWnlDMjlwQnZjV2NYOHZnckpwRDloVG9XVEhreTZTNkE4dXNrejhiVGllSWlQeTIySmRPZy10UUx1cjQxbHlVVkdhbXNHRmdVWlYwYUJaQkhZTER4czFvcExkR2lTTklaT3hMWldTMVlqVmRQaGJHZUE?oc=5) |
-| Trump Spending Bill Means Big Cuts for New Mexico - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE45RllXWlAxTUNiTFc3UWFXM24yVENqcldTMFozXzlYUWpERENSOWZUVG9UODBndkxiOVJGRFBmSXdid1pCeW5PTl9xU25Ramkxc2U4VGFKSHY3VTJtR1Z1RTI5bmppY0liRkNReEk3bmtfdlRER1phSXpScFFYZw?oc=5) |
-| ‘If this fails, he'll have egg on his face’: Gavin Newsom bets political future on redistricting power play - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNdUdBV0xhQUlLeEdHdFhrczY4Q1VVc25uV3BwN01CZXUteHRncW9CWUlXYnFPWlBDOHA5elVHZk1RWHBSd0ZrZTRKcjJOSW1ZTVpEeHZjZlB3NEpjbVhSMkFFb3BhdFlfZXp1VlN0WWVqanA3aTVldnIyNFR0TmhYcTNwT3pFNThjSnV5VGRtRQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
