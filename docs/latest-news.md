@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月08日 22:42:44（北京时间）**
+🕒 更新时间：**2025年08月08日 23:01:00（北京时间）**
 
 ---
 
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Netanyahu Broadly Criticized at Home and Abroad After New Gaza Plan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOTTNYZGE0WTBybVB5eWVaSHZ2dTNzek5ZWHdqbmVHTGM4VXpTRlJjamNFdGZKLUthNV9HUkRLT2I1UkhSOEVIelZqQWJTLW42c0pnX0haUWV1Q1FxREU4VXhuWllreFY3bVJqeThIODZhX2tUUEJJVGphdjJ0bW1ibnhCRUw?oc=5) |
-| Texas Democrats know they may lose redistricting protest, but hope to spark a national fight - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPZHBQRW50dEdJRURrdWlOQ21wRHVzRGsxd0ViVVRZRUNUekxJbjBaSWc0QzF6UEo5aFZ4YjBHMWxueVBiX2JVVHY4ZWNnYVpxYWlmV0V2RXNiUFFIRlp6Z3VzdHQwdER1dDJjbTlneXpjSGdwWHRzN0YzMk5VZXFwa054Um5Sek4xZW9qTXJzejNaT2QxYWd3QlNaQzFhVnNXRHM4?oc=5) |
+| ‘Special session after special session’: Abbott says he’ll continue until redrawn maps are passed - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQOG5RUkpyN3hoT1lVWG5IN1B6TVVJaVhTUDBhRTd4cWFhQnpLVk9DNXJnR2pzVTNzN3lndkpzd3NCT2FGNWNfWHZmaThzbHJ1TzdNTUxTY1RUNWdKbkV6bDkwakpTTWNndnZoZVU4LW92Ym9MRHZPMzRHcEZNeGZTSVNiVDduR3Z2emVMTDBhbGdNSUdMRm9kTERrT0xnclE?oc=5) |
 | Rapidly spreading brush fire prompts evacuations for thousands in California - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBjMUpYUHVndGNDTG1QRGpuVGM5RGt5ZUZWWDhjQUJDSDJaYjYzUllxS1hkdGc1cy1Cc2E4U0FoMVVBVzZMb1FyTUNkSUdqc1JPMllFNkhEcGszcElSVlcxa3RmOVNvM2Fxc2hGQ0Uwc1dSeTR0TjNLNER3?oc=5) |
 | Germany stops military exports that could be used in Gaza - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxONlBXVDFxR25Jb0ZNTjdxVmJxRHRCZzF3YXFoa0U2TjBPbDR6cmZRLTUyU1p1eGJaalVhVXZvUzdOYkJsUnJRMzU1enNORkJFMENPdWFYWndfamdRS3pnaXFBd3pQbFdnV2ZUMTlqcmZCWW9BOGpFMmNOMENtUERlLWlaRXRLZlJNSWo0?oc=5) |
-| ‘He is completely upset’: Why Trump scrapped an India trade deal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE8xVi1FMGZPMHRvSzJrb1ZORTlERWItbXdZa1JVSkdWWm9IX0p4WUdPSmF5Y0trMnhMa0V0WVVQa1NhWnBUd3NuS3RraHhpX1hpSmJzZTVuNnhtT0s5emU3cGVxMHItcXh3bXNJWTBKQXRKWVZzYi1CWEpONzA?oc=5) |
+| India's Modi vows no compromise on farmers' interests after Trump's higher tariff announcement - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxON1BfSWVRLW1NZ3VWellBRU9hX00ySTRIdXh5dWFGUm5YM1RmREZnd1RsRDVoS2g1WGZnbDhfbUE1a3ZKQThMc29zaHFwNEVzNmRWaTZsYjRScVVWNUszSkxLcmRWZ3dGWVpzZU16eWgwY2ctNzZ1Z0RvTnJCSUNyRGZMYno1WkRLN3pnZ2I3QTVkdGZRT1pKMkxWNjRsUzBfQXZmTU9BYWtVYjRDM1pqMEtLXzgtYV91c2NyNmQ4XzU?oc=5) |
 | NASA plans to put a nuclear reactor on the moon. Here's what that means - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQR2NwWGVHam51SmpMR0h6V3NIQXdNVG9Mc09kakhzNXd5d2FEQTBkNDVVUllMSmNvcHdKV25GckQ0azN5ZjhaRU1UMmtRSllVOVRnWU5ReWgtc3FFb0JPRUtDVnY2N050WmRYYjNxRUpObGQ5YlJSZGlLZ3NKTEowVlNIMDBkdVFnbENGaXplM2o?oc=5) |
 | Trump Escalates a Fight Over How to Measure Merit in American Education - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOUTk4M1AyUzVMX1o3M3pTSmJPMGZmS3NKNC1kUGlzcDc3UWU2NWd3SlFrNUVTN0swc3pMalRralR2WlhoWnU0eFVhM0UxNnRTdkJxSEpKeUdnUDlJemZFVUxIMGxZeUVuTHJ5SG5ZNHluSnVFWFhJRUtMTFBrV0F5c3g2eXFnVE4zSFE?oc=5) |
 | MAGA world swallows a difficult truth: Arresting Trump’s opponents is easier said than done - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOMEhkREdKTm9RaW1DWXg2TWY5UTFfWnZ1REVHa0s4TlAyNjlNRUJwQlNLakNvRG52TEtlZjRVUTE2X0dVYl9TVWpLeTJWeE1BRlJxWU5DVnRVZzl2SGN6VTVMb2d1T2JTaEZaa3N3SmpucEFUdWpmTEJfYlhVUVhtV2xMdm4tSjRzc2RB?oc=5) |
