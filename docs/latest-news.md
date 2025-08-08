@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月09日 02:43:45（北京时间）**
+🕒 更新时间：**2025年08月09日 03:01:03（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | US-Russia plan truce deal that would cement Putin's gains in Ukraine, Bloomberg reports - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQZlJVbGtMRlVWWWh1Y2UweXVIVUItMTRXOTNLbmJ2Y2pKYjMyYVVqMVRyelFRTTdFdTQ3X1otbDk0QkR4czJuUkxoYWFEdTJXN0J0N0pYWmZFZnhPU0RKaGI5bUxuZ2d3VnMyWlR5U1lXLUlkZU9kSGlUeGhJWTh1dm1sZUtqVW84Z1RGWmFDb1RoLVlsejlkOEtGWF9Hd3Vmc0NNWUtRY3lwWWdtR24xeEp2ckNSUkFpS1REZ21lRng?oc=5) |
 | ‘He is completely upset’: Why Trump scrapped an India trade deal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE8xVi1FMGZPMHRvSzJrb1ZORTlERWItbXdZa1JVSkdWWm9IX0p4WUdPSmF5Y0trMnhMa0V0WVVQa1NhWnBUd3NuS3RraHhpX1hpSmJzZTVuNnhtT0s5emU3cGVxMHItcXh3bXNJWTBKQXRKWVZzYi1CWEpONzA?oc=5) |
 | Marred by grief and riddled with fear, a quiet city worries where a mass shooter might be - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBvTVFCcGIwTmR0WERaWEJoU0pSM3FDYnRDbDRwS1RxYTdvWi1MN0NoS0l3U3VhXzdta1JfSnJGWkpDbHRjU0V2VkRzWS02ejMxOWpMbXdia2VjTFNnWUxJZ3hNbEFvYlRGOWpXVUMzNFBCSGlpUkJicGZfTdIBgAFBVV95cUxOTXhrT3NMMDFQVWR6dkFYc21aQi1EVlo3SEpwRjQ3QXAzOC0tejBMYm1SMi1TTU5sSFVqSS0tMjhHMWJQZzlpWFBkNXg1MW9FMllNRk13MGxEYmVjUl9hRURQTHBVTGl4NV9icXdORzhQTm44R2lKRnM1N2RjT1VNMA?oc=5) |
-| Three more victims of 9/11 identified by New York coroner's office - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQdTV0ZE44Tnp0aDNKRnBweVk1N2VwNDk3bXRVbnJsNkZ4ZW1jdjdTOHc4WHo1aEVZRkNNZVpvSlFadkNoWWRtM3dKYVVVWmRtYlJKQVRmejBoYmdSaXZZWTJ4cWNQUFEwWjIxc0J0ZWVIMjJrRkZFbDFFbE5yWFZyZEJPMkFlTHlmUDVHNFBjM1lzQmwxSGNheG5VYXNObGZFUGpqV2pjYlRiUdIBVkFVX3lxTE5UYzNxYnBIa3hrMFp2Z283bVgxMHdHbExtb2tmS3BJLW9qWmN4eC1vakpEYmRxNXRyQ3FSeGhOd0FmWjk4V2lxSklQcWZhZlZfWWIxbXdB?oc=5) |
-| Federal judge issues temporary restraining order on "Alligator Alcatraz," pausing construction for 14 days - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQbFNRSkJ4Z0I3YzhvcmJYT1N2M0thM0w5Z25nM1JCQU1xU3VPX0dwRi1qVnR4Ni1ka3FEY3o0WXpkMW5aUDk5NDFqaGdGYUhpMkljX0RIVHBGcldIRjJ4eGlRRmZxNVR4cGZRNGdaVW15a2JaaWNLMXd4LWs2NG00Z3NVMlItQ04zc2ZBLWtNX3ViZURjLTlsRUxvVV82aGM4WGNfcW9iQk9Idw?oc=5) |
+| NYC medical examiner identified 3 new 9/11 victims - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPWkZLeHE3VGJKeUlVY21WLWk0OG44UnJDYmFwdHhINkphbmUxZzRUSGRRenBKak1yQmNIV0w1VDZEaUl1WFFCcFZYTFVZcERiWmk1dGZhSTVOTXg5NHNmNWJhWHZDWnZUdTBUQ25IOEZMQVE1ZmpJYUJKQnJ6VXdDTGR3?oc=5) |
+| Trump Escalates a Fight Over How to Measure Merit in American Education - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOUTk4M1AyUzVMX1o3M3pTSmJPMGZmS3NKNC1kUGlzcDc3UWU2NWd3SlFrNUVTN0swc3pMalRralR2WlhoWnU0eFVhM0UxNnRTdkJxSEpKeUdnUDlJemZFVUxIMGxZeUVuTHJ5SG5ZNHluSnVFWFhJRUtMTFBrV0F5c3g2eXFnVE4zSFE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
