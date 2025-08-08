@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月09日 01:01:40（北京时间）**
+🕒 更新时间：**2025年08月09日 01:22:46（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Even some Republicans are questioning Netanyahu's plan to have Israel occupy Gaza City - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPZHBiclZ1UE5kSktPVTU5aDNmRHk3UFRYdWw1R2xiVmExS2ZVYS01Q1haSWRteGZMZ0xMVFRpbWxtbUZNN3EwS21hOWctVVdBb3VucWhxc19JUldYTkVMaGVYbHJqZVFLcEVjQUVPTUQ0Sm92V0FWY2JwVk5JMDUyRUFDam56VjQ?oc=5) |
 | DOJ opens investigation into New York AG's office that brought fraud case against Trump - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxPNVRLZ0xINGtKWDktcWJjRTB0RFhpZWZ6SDEyVkFFdGpDT2txeWpBam1NOHVKelFNU2hrY2Q2cWN4MlRrakVxckd4akVXeTZnSFRJd1VzanZ2TUUwSVpkODRDemtROXFiN2QtQ2g4SDZkWWt3WTU3T3FGTnIweC02eEFRM3ppZjV2bkM1V25vVU05Ulk0c1hXdnJzcFRkLXJnU3NVUXNNenIzZGpsNndDZC1nZm9uSkpnZk5BSmMzaFpDdFV0bTFqa3BJa9IBVkFVX3lxTE9BMWV4YWFTaXU2Uk4tYnprWVBPdG1SMzFVQWRXZUpQWEJPQV9GN3YxLVF2UElyQ0w2NFdLY3hpU1FrbmlHaFdORDRoS0lxaU95R0t0akNB?oc=5) |
-| Netanyahu Broadly Criticized at Home and Abroad After New Gaza Plan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOTTNYZGE0WTBybVB5eWVaSHZ2dTNzek5ZWHdqbmVHTGM4VXpTRlJjamNFdGZKLUthNV9HUkRLT2I1UkhSOEVIelZqQWJTLW42c0pnX0haUWV1Q1FxREU4VXhuWllreFY3bVJqeThIODZhX2tUUEJJVGphdjJ0bW1ibnhCRUw?oc=5) |
 | ‘Special session after special session’: Abbott says he’ll continue until redrawn maps are passed - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQOG5RUkpyN3hoT1lVWG5IN1B6TVVJaVhTUDBhRTd4cWFhQnpLVk9DNXJnR2pzVTNzN3lndkpzd3NCT2FGNWNfWHZmaThzbHJ1TzdNTUxTY1RUNWdKbkV6bDkwakpTTWNndnZoZVU4LW92Ym9MRHZPMzRHcEZNeGZTSVNiVDduR3Z2emVMTDBhbGdNSUdMRm9kTERrT0xnclE?oc=5) |
 | Rapidly spreading brush fire prompts evacuations for thousands in California - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBjMUpYUHVndGNDTG1QRGpuVGM5RGt5ZUZWWDhjQUJDSDJaYjYzUllxS1hkdGc1cy1Cc2E4U0FoMVVBVzZMb1FyTUNkSUdqc1JPMllFNkhEcGszcElSVlcxa3RmOVNvM2Fxc2hGQ0Uwc1dSeTR0TjNLNER3?oc=5) |
 | Appeals court tosses judge's contempt order in case over Venezuelans sent to El Salvador - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOWmxUNmxiTnZ5M3FGTEdhMmlGQU9neVFmelpwbW4xaUJ4MEprclNEMVNjUzJKc3E0VFFwaFhCQlRnc2Y5dFIxdjc5M0kwRFQwQ0RYbzE2Y3h3NllRZ0ZsdEhYNVp1MnhrWjU3YUQxTG9uNXFaNGlaWkd6UEhFdUprNm1qNDVFVVlPUWfSAY8BQVVfeXFMT21ad09wckNEc2NhbXF1eU9xNlQ3bmVLZ1FYdFRDU1VOX2k2Y1BBdVVnRTQ4MV9MelFEZkl0MlRzbFFLNnVwZExNV0Y2R1lHclVLRFZRRmNMTkFWU0ZmLUtzdjQ5ekdFQUk5b2hOS0U5d0VLRFB5QzRsaGZtclc3YkQxVHBXQ0JFanJyeXFSbVk?oc=5) |
