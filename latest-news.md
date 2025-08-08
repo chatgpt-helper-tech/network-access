@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月08日 23:21:50（北京时间）**
+🕒 更新时间：**2025年08月08日 23:42:11（北京时间）**
 
 ---
 
@@ -8,21 +8,31 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Teenager found guilty of murdering fellow pupil during lunch break | [阅读全文](https://www.bbc.com/news/articles/cn5e4yw9pr2o?at_medium=RSS&at_campaign=rss) |
+| NCA to investigate police officer sex abuse claims after BBC report | [阅读全文](https://www.bbc.com/news/articles/cjw6qj990lno?at_medium=RSS&at_campaign=rss) |
+| New signs found of giant gas planet in 'Earth's neighbourhood' | [阅读全文](https://www.bbc.com/news/articles/cx2xezw3dkpo?at_medium=RSS&at_campaign=rss) |
+| Boy, 4, dies after being hit by bus as he walked out of hospital | [阅读全文](https://www.bbc.com/news/articles/c5ylxv7wd33o?at_medium=RSS&at_campaign=rss) |
+| Fourth heatwave of summer set to bring temperatures above 30C next week | [阅读全文](https://www.bbc.com/weather/articles/czjm4zl20wzo?at_medium=RSS&at_campaign=rss) |
+| MP Rupert Lowe mistakes charity rowers for 'illegal migrants' | [阅读全文](https://www.bbc.com/news/articles/cdd32lnq445o?at_medium=RSS&at_campaign=rss) |
+| Is Perrier as pure as it claims? The bottled water scandal gripping France | [阅读全文](https://www.bbc.com/news/articles/cyvn3qe0jpgo?at_medium=RSS&at_campaign=rss) |
+| Later, closer, shorter - the holidays Britons are booking this summer | [阅读全文](https://www.bbc.com/news/articles/c939gx4gqwpo?at_medium=RSS&at_campaign=rss) |
+| Gary Lineker to host new ITV game show The Box | [阅读全文](https://www.bbc.com/news/articles/cwy53zynp1wo?at_medium=RSS&at_campaign=rss) |
+| Courts service 'covered up' IT bug that caused evidence to go missing | [阅读全文](https://www.bbc.com/news/articles/cwye2q00k51o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Netanyahu Broadly Criticized at Home and Abroad After New Gaza Plan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOTTNYZGE0WTBybVB5eWVaSHZ2dTNzek5ZWHdqbmVHTGM4VXpTRlJjamNFdGZKLUthNV9HUkRLT2I1UkhSOEVIelZqQWJTLW42c0pnX0haUWV1Q1FxREU4VXhuWllreFY3bVJqeThIODZhX2tUUEJJVGphdjJ0bW1ibnhCRUw?oc=5) |
+| Keir Starmer condemns Israel's plan to take over Gaza City - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5mQXRFVnoyRDFDMzdMQ0Y3NnF3NWpXY1hqSldpZGtNNWtZNGo4X0pVaDNEbXhKcmJOeC1MOHp0NEhFRlZySzdfbTJKWlI4amVVNFdFWmpFeENRd9IBX0FVX3lxTFB6VF85VFJhalp2dmlmWTFYb0NCMUxqUWg0TVhKVldhLW5qYkloWk1ELTNLeWdpd0ZvR0dpNUVjcXBiZE13WnRWbER3NmZINV91V0RuRUhwVUVGNGl1ZWxN?oc=5) |
 | ‘Special session after special session’: Abbott says he’ll continue until redrawn maps are passed - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQOG5RUkpyN3hoT1lVWG5IN1B6TVVJaVhTUDBhRTd4cWFhQnpLVk9DNXJnR2pzVTNzN3lndkpzd3NCT2FGNWNfWHZmaThzbHJ1TzdNTUxTY1RUNWdKbkV6bDkwakpTTWNndnZoZVU4LW92Ym9MRHZPMzRHcEZNeGZTSVNiVDduR3Z2emVMTDBhbGdNSUdMRm9kTERrT0xnclE?oc=5) |
+| Germany Says It Will Suspend Military Exports to Israel for Use in Gaza - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOSmcxVnExd0JJRFZ1MHJncmRBWVVaQjE3SjVFMndwbC1NSmtwNFB3Vmo3bG1LVHloVHFBNzE4akdjclpiSkZiaV82UXd6R3hLU2FpeE9JdllpcmM4RmFwQW52dmg0dHpyWS1IMV9SOXlwUzJzeDFfaHNiUlQxV1E2WHVHQTZmWXc?oc=5) |
 | Rapidly spreading brush fire prompts evacuations for thousands in California - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBjMUpYUHVndGNDTG1QRGpuVGM5RGt5ZUZWWDhjQUJDSDJaYjYzUllxS1hkdGc1cy1Cc2E4U0FoMVVBVzZMb1FyTUNkSUdqc1JPMllFNkhEcGszcElSVlcxa3RmOVNvM2Fxc2hGQ0Uwc1dSeTR0TjNLNER3?oc=5) |
-| Germany stops military exports that could be used in Gaza - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxONlBXVDFxR25Jb0ZNTjdxVmJxRHRCZzF3YXFoa0U2TjBPbDR6cmZRLTUyU1p1eGJaalVhVXZvUzdOYkJsUnJRMzU1enNORkJFMENPdWFYWndfamdRS3pnaXFBd3pQbFdnV2ZUMTlqcmZCWW9BOGpFMmNOMENtUERlLWlaRXRLZlJNSWo0?oc=5) |
 | ‘He is completely upset’: Why Trump scrapped an India trade deal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE8xVi1FMGZPMHRvSzJrb1ZORTlERWItbXdZa1JVSkdWWm9IX0p4WUdPSmF5Y0trMnhMa0V0WVVQa1NhWnBUd3NuS3RraHhpX1hpSmJzZTVuNnhtT0s5emU3cGVxMHItcXh3bXNJWTBKQXRKWVZzYi1CWEpONzA?oc=5) |
-| NASA plans to put a nuclear reactor on the moon. Here's what that means - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQR2NwWGVHam51SmpMR0h6V3NIQXdNVG9Mc09kakhzNXd5d2FEQTBkNDVVUllMSmNvcHdKV25GckQ0azN5ZjhaRU1UMmtRSllVOVRnWU5ReWgtc3FFb0JPRUtDVnY2N050WmRYYjNxRUpObGQ5YlJSZGlLZ3NKTEowVlNIMDBkdVFnbENGaXplM2o?oc=5) |
-| Trump Escalates a Fight Over How to Measure Merit in American Education - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOUTk4M1AyUzVMX1o3M3pTSmJPMGZmS3NKNC1kUGlzcDc3UWU2NWd3SlFrNUVTN0swc3pMalRralR2WlhoWnU0eFVhM0UxNnRTdkJxSEpKeUdnUDlJemZFVUxIMGxZeUVuTHJ5SG5ZNHluSnVFWFhJRUtMTFBrV0F5c3g2eXFnVE4zSFE?oc=5) |
-| Federal appeals court halts criminal contempt proceedings against Trump officials in immigration case - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPZUVwVVhxM2ZsTXh1ZzJDcG5QSTJKeW90Q1p4eXgwYzVuRnV1TDd5Q0lJWlM4TmNacy1ZNXlha3ZQRmM0cmh1ZEJuWVZfRU9qRVZxTEo1cDE2TDhEUjlGdG1NRFplNTVKSlo5WEFTXzRqc1FtTFhhTDVHSFl5b09wWEN0T08yYXc0SGl3Ug?oc=5) |
 | DOJ opens investigation into New York AG's office that brought fraud case against Trump - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxPNVRLZ0xINGtKWDktcWJjRTB0RFhpZWZ6SDEyVkFFdGpDT2txeWpBam1NOHVKelFNU2hrY2Q2cWN4MlRrakVxckd4akVXeTZnSFRJd1VzanZ2TUUwSVpkODRDemtROXFiN2QtQ2g4SDZkWWt3WTU3T3FGTnIweC02eEFRM3ppZjV2bkM1V25vVU05Ulk0c1hXdnJzcFRkLXJnU3NVUXNNenIzZGpsNndDZC1nZm9uSkpnZk5BSmMzaFpDdFV0bTFqa3BJa9IBVkFVX3lxTE9BMWV4YWFTaXU2Uk4tYnprWVBPdG1SMzFVQWRXZUpQWEJPQV9GN3YxLVF2UElyQ0w2NFdLY3hpU1FrbmlHaFdORDRoS0lxaU95R0t0akNB?oc=5) |
-| Trump orders increased federal law enforcement presence in Washington to 'make DC safe again' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOLWh0TnNPcnFWOEIzSjhhMEhQWTdXM0l5R2FJZGpMSjNyNE1UTTBwZHhnOTc0WlhpRXFzLXhjWWlfUlJYc1VDMXJLT0lVdWRfX3d1by1XM3g2eHBLdGFLVFk2VFltUzU2ODdGYzM4bUZrVkxTel92SWR1ODZhdXRiZDR4TnBUOHY2VDVKYXdrMHhscTE2M0xSRVV0YjZmT040U2dlTXpSWXNxUWJxOFVxdGExU1dfQUlaOEdB?oc=5) |
+| Appeals court tosses judge's contempt finding against Trump administration in prison deportations - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPSTNwQkVLUURuMlRjZ2NfMmN1dFdUbnFJV2YwMVNsTjVXZ2s1Ukw5Q1BhX1NXVFN4eXEzY0FvYWE0QTlpa2RqMWVfd2JiRVd1X3RQQnlISlJaMlV2MktqeHoyb3c3WlZfY1F5ZlpkSV95bzlpcFV3NjJwRUlidWd6b1YtZ05DdmRoZ0x5aW5LUVpzWXhtenMyMkhaZ2xjV01zZVpIaWtZd0s?oc=5) |
+| Trump orders increased federal law enforcement presence in DC over crime rate - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNUUtQa01vYVluN3V6c1c3ZjZtUmh2WVh5a0VvZlotQ2d6cFlacVg0dmNXUG44Ymx6dktIZFhHX0FIQzVmeEVlRHFFZmtJdm9iRHhLb3JidGdXc2hDMDZ2RE9PLS1qOUxlMTlDREN2cGh4SnN3ZmVnQWh5VDdPN1QtNGVxaGFiVGZ1MWtucUh2allNR0lMT0dTVjBXYWpRTzA0TVAwelNlZ2hLY2ZGdFFJa2xsTmZzQ25DYXpaVXZEbmMxU3g5b1FB0gFWQVVfeXFMUHNmb18yV1dCWG82Q25NdTdZaHpQbU9ISTdfbXFZbWtXemVURjdmUGJ1QlR2b20zVWVVVTA2c0U1UVRnUDNUMUg1V0pNUm12VExRVmZoZ0E?oc=5) |
+| Remains of 3 more 9/11 victims identified nearly 24 years after the attack - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1oS0ZCZU82VTFvV3dkRG1hejJOanJ4dFk4blBHNXdoM3BnM2tMU2xuaDBQYzcySjZ1X25wZ2MwNjZVT3lJRE1ZZUJidjl5RFhZaUV6RTJndmQyWDJGYjIyX3gwc2dtaGdQeWJ2d0hFS01nbFlhQnc?oc=5) |
+| Why the stock market shrugged off weak data, recession fears - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxObDU3WHRCUV9XY1R1OTl4Y2l4VUR1Nkplc29ISU5Cdlo5N1l0Zmlxc0JCU0g0SEhMMDVIYnRacHU0QW84NVFyMmZ5SHkxa0JaMkg4Ny03aEpwM1hIQmJKYzR0bEhaalI2M0Y0a19kMzM1MU93bzlJZG1PYkhNT3JoY3Z3R2NfUDNjQ2V5ak5WUk5HYjRmTHl2Wms0YXF2ampnN0s4RtIBqgFBVV95cUxNdW5MUU9qeVpEOFgtSkNhZmJnVkx3Zkd2YUhNOW5JbmVKYmFBVjRCZnhPYTdqN0NodnhVUzY0dW9mRUVpbGpvX2N1RTdxNF9YUVlPZUJNMDVhcGVjUFN2amlpUlprS0VZUzRBdTRqS3FoUmtKRm5zdk1qR210c21fdXd1aUh5aE9wblRNbE1DTHpKYmdWUjVoVUtmNHJVZnFNZ0wteEY5SnBHdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
