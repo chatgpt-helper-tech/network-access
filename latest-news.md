@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月08日 13:21:06（北京时间）**
+🕒 更新时间：**2025年08月08日 13:43:33（北京时间）**
 
 ---
 
@@ -12,11 +12,11 @@
 | Courts service 'covered up' IT bug that caused evidence to go missing | [阅读全文](https://www.bbc.com/news/articles/cwye2q00k51o?at_medium=RSS&at_campaign=rss) |
 | Homelessness Minister Rushanara Ali quits over rent hike claims | [阅读全文](https://www.bbc.com/news/articles/clyd3l2x2n8o?at_medium=RSS&at_campaign=rss) |
 | How a port clinic stopped my leg turning septic and could be the future of NHS care | [阅读全文](https://www.bbc.com/news/articles/cm21z711g59o?at_medium=RSS&at_campaign=rss) |
-| Is Perrier as pure as it claims? The bottled water scandal gripping France | [阅读全文](https://www.bbc.com/news/articles/cyvn3qe0jpgo?at_medium=RSS&at_campaign=rss) |
-| Mushroom murderer's alleged attempts to kill husband revealed | [阅读全文](https://www.bbc.com/news/articles/cwy3ngr2n3vo?at_medium=RSS&at_campaign=rss) |
 | Later, closer, shorter - the holidays Britons are booking this summer | [阅读全文](https://www.bbc.com/news/articles/c939gx4gqwpo?at_medium=RSS&at_campaign=rss) |
-| Waterstones apologises after readers brand event 'utter chaos' | [阅读全文](https://www.bbc.com/news/articles/ckg47k4zelyo?at_medium=RSS&at_campaign=rss) |
-| Serious offenders to be kept in restricted zones under plans | [阅读全文](https://www.bbc.com/news/articles/ce832zyg1vlo?at_medium=RSS&at_campaign=rss) |
+| Mushroom murderer's alleged attempts to kill husband revealed | [阅读全文](https://www.bbc.com/news/articles/cwy3ngr2n3vo?at_medium=RSS&at_campaign=rss) |
+| Is Perrier as pure as it claims? The bottled water scandal gripping France | [阅读全文](https://www.bbc.com/news/articles/cyvn3qe0jpgo?at_medium=RSS&at_campaign=rss) |
+| Waterstones apologises after readers brand annual Bookfest event 'utter chaos' | [阅读全文](https://www.bbc.com/news/articles/ckg47k4zelyo?at_medium=RSS&at_campaign=rss) |
+| Serious offenders to be kept in restricted zones under government plans | [阅读全文](https://www.bbc.com/news/articles/ce832zyg1vlo?at_medium=RSS&at_campaign=rss) |
 | Mandalorian actress settles lawsuit with Disney over firing | [阅读全文](https://www.bbc.com/news/articles/c5ylqvl4p3yo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Satellite images show Israel building up forces for a possible ground invasion of Gaza, sources say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxOSG45Nm9lZU84ZGl5RjIxWVQ5OFpvbzFfUDQ0ZXpOWHV1cmhGWWt1YVRfZWFkZFJzd1k3Zkthc1BKUC16OHE4WEpkVVNxUXlNeGx5akJ5RHRIdWIwTnZEbjRSN0Jpa1k1ZDZsRW54R3N1R2Y3U0VsMGlxaTRsbm1YSTI5UE5nUVJvN0k3bnFXT3V6S180VUJJUVhZR2dwWVA5bU9PRW9WNENUQ2pma3V6UXNqdFhDd2xXNG5od2F0d0tVS1RraVlXVEV1SdIBVkFVX3lxTE5fcTBfX1FEVTVoSVpUdWFCbUs2WmlJdmtUUXpHcGVycEt3WFdwNDgycHVQYWhtRnBUekEyNGR6STVoRC1PLVV0NjZZZlhDTEVKWkM0V1Nn?oc=5) |
-| Fast-Spreading Canyon Fire Near Magic Mountain Prompts Emergency Proclamation – Updated - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNSzUxbS1mQ2dIUVAtTHZrclR3VjRoa1dHZHVCcDAxN1c0NkNwQW9RZmdtNDU2U2ZqMDZ5a29heVBNMFFxak92QnM4ZUV3NmM3b1JvZ2g5NlVWWXZDRGFJNzNYMmR1STdCRUVyX3E2VWdkdnA5ZTlMdkg3eHBsaGNKMHNyeHJJX3ZPd3lN?oc=5) |
+| Photos: Fast-moving Canyon Fire forces thousands to evacuate in LA, Ventura counties - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNS2lKSUdqbTlHSVdsWVVRVVFsbFhtVFhiTkk5ZnFESFAxMkQwNk50RFJjOFA2Mmk4d0dGVE96VGxsWGVpR2RDdlhTdjJNR0JiV1E3cHNGMUVWcU1VMjhhRnY1OE42TmVrS0RhS3FFNUQ4dWpCZVhTc21USk5RM2dBX3V1ZGhLN1h4QUtEUC1R?oc=5) |
 | Judge orders temporary halt to new construction at Alligator Alcatraz - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNbmJ0RVExZnVvZXFiQmJVVXROb1hOX3hQbHNVV1F6b05MU3l3U292SjZHVTZkUk45M2d6aGlxcm43RThZenoxTkZTa2Nqa3RfQmtzUTZ3WWVFNjdVa1p6ZTh3N0RsSDdmTWdNRVM2SmswdTI0MkRQcldvLXp6enEtN3pSeTZ0OXhpd3NhV3dzY1o1Ujh1eVRn?oc=5) |
 | Trump plans to force new disclosure of college admissions data - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQOUlsU3ZvMnJTcUttSkpKM09FdXJEUzZ6MWlOamwzMGY0MElQZjFGdk1aLXQ5TV9zUTRDMDQ5RWkxTFR2dm5Dbk4ybVhZM25LVFJQbW1raXNJSXA3bzBFTUhrSlNnSmdsbUw0azdfMnU5NnRaQTdDWDkwWlhqZjRkMDB0bDk2bTBoQ0VzRFhucWhOb2lFRnV3YkNkd3E?oc=5) |
 | Trump orders new census excluding undocumented immigrants amid redistricting battles - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOTU94T2ExSnZ3WGlzekdFNzFJNmQ5WHNQbzlpTnRJZEItU0dkam44VHFud0N6bGVsTWNPZHAxTHhMakROMkFzeGpkVG81QmhGUTVkS1RPS3ZMZUVTSjBRSWhfa19wSThvTUxOX2xUWEdJN2U4ekdJZ2NrUXZ6MGN5dU9Td3h5RkFudlJ4REZhMEszTWRtQVFRdWMtd0pPa1Jxa2FRRVlYM0dqeVFxSGVQeUtYY9IBuAFBVV95cUxPNnZlamZmaTNWLVhuQUQ4dzdaSGFqRUFhYjFTLU5rX3dEbHRvLXhveDNLMlZRaHpvTzNOMnE5eUs3dzlHYjVGWllEZHRpLUdtaTBhOUtLVkZRS2VGYkxBZXNoeGhuZWliSXU4NUIzbFhxZ3Buc05HdUE2TkZRUFdNQ2lDblpkQ1FGd3VSeER4c2xld0hmdW4wdnlPWURFa2dzUkJWRXJrRVFsM054N0NOYy1iX01pRFBP?oc=5) |
