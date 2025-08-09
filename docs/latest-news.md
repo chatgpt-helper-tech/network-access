@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月09日 19:42:05（北京时间）**
+🕒 更新时间：**2025年08月09日 20:01:52（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Prince Andrew book seals his fate for any return | [阅读全文](https://www.bbc.com/news/articles/c24z1l090dqo?at_medium=RSS&at_campaign=rss) |
 | Elon Musk's AI accused of making explicit Taylor Swift videos | [阅读全文](https://www.bbc.com/news/articles/cwye62e1ndjo?at_medium=RSS&at_campaign=rss) |
 | Faith, family and fishing - the unlikely bond between JD Vance and David Lammy | [阅读全文](https://www.bbc.com/news/articles/czr68vde7nvo?at_medium=RSS&at_campaign=rss) |
-| Watch: Royal Albert Hall hosts first overnight Prom in decades | [阅读全文](https://www.bbc.com/news/videos/cx2747j72g6o?at_medium=RSS&at_campaign=rss) |
+| 'It's crazy': Royal Albert Hall hosts first overnight Prom in decades | [阅读全文](https://www.bbc.com/news/videos/cx2747j72g6o?at_medium=RSS&at_campaign=rss) |
 | 'Are we not working class enough?' Students divided on civil service internship reform | [阅读全文](https://www.bbc.com/news/articles/cm213gd5gjpo?at_medium=RSS&at_campaign=rss) |
 | I made an AI clone of my dead son - and let a journalist interview him | [阅读全文](https://www.bbc.com/news/videos/cly628xx6e9o?at_medium=RSS&at_campaign=rss) |
 | Is super skinny back? UK sees rise in complaints over thin models in adverts | [阅读全文](https://www.bbc.com/news/articles/c4gm9rygdymo?at_medium=RSS&at_campaign=rss) |
@@ -23,16 +23,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Putin Tells U.S. He’ll Halt War in Exchange for Eastern Ukraine - WSJ - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBZUnhhMVpHLUMtcFl2TU05VVRQZlRqWUtmM0hLUXRmbG1tWmloeHZYSVlROGhfdFh5M0VBd3p5ZllxQjBKdWFpUjVqbkNZdHZRMXM4UWJRSllWa1RjYXk0bTF6X2F4aTRmZmpKUF9uenpPNnNvUFo5NWRvSUMzY1E?oc=5) |
-| Officer dies after active shooter shuts down Emory University, CDC - AJC.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQSWZqd25TaGdjSHVQRExqSXktcTVSbEYxcHVsX3VCRFhiVWppQmxpRm5vUXhZMFJpU0p2dnB1by1ZeHdYVEpqWW9xUnBpdzRjSktEZnlRRXI4QVZzZlRkelZUaTZTaThqX3ZvYmlrallEZmlaVjFRcDIzenhZS3Vlc1EyVUVydUprVTB2QS1KVWtnZk5PX1FSMDZ6aThFRDFtWlhrVHBHdkV6NjNs?oc=5) |
-| With summit looming, Ukraine's Zelenskyy says he won't give land to Russia - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOcWxLbUNUWWNTbE5vblNSb3pubUwtRnQ5OW02QXBmaTlDN2lYUkFfd3BEUHd1cGEwMEFtTnZDNkRobEp4VG1RNnI1TEpaV1U5Z2NRQ0xKVC1pUG5yZnkwNU5KUXpCenVGRFNSV21GLWItVzZZWDlrem1GZlZTZzZuTDA5TU5qYTBZNEhqaHROdw?oc=5) |
-| Judge bars Beto O'Rourke's PAC from funding Texas Democrats in redistricting standoff - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQZHNockZXUlVjbWU1RElkcEx0NVVEUEhqSzlIcktlMzc1M0tDM1NKeF93N0gwSjRCb0FZWlB0Mk5jb2NDUmpheFFrSXVYVHZTclZJM3kxZ29wcFNIUmJ1NEt2bDhTOEhIX3k2OGgyVk5zNGlnMlZvem9mMExPMmlqZnlvQm5XRzhOV09aSkYwd1BKODFieW13MS1Xb0dGSW1YcW5TWHNsaVdCeTE3aF9YVnh3?oc=5) |
-| Mexico rejects Trump's reported military plan against Latin American drug cartels - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE11X25RRkwzZjRHT3llY3pPeERDajZxaFRwbV9zcGIzQTBrYmJsV3RiS1pQeTFqTXdMTDB0VGdyS0txZlpIR1RuTUxhSG10RFZMNXkzaDJoOU1ud9IBX0FVX3lxTE5Tb3dEdllDV2N5WXExTUdQWTFSRDJhdFd4ZlRSaG12eFNSTUxJNktuckd1MUExOU9yQjN1QmN2YUNkbHM3RlJZcGtsSGVBUmZEbVpqa2VDSUhqUlB2T3N3?oc=5) |
-| 17-year-old arrested after 3 people shot in Times Square - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNRXl5Y2dJOHpTLUZ6Mm0zc3hKXzh2S0xBTGpxdlVnbTZWQ2FKY3VSNi1IU3VaRThObk5CNmVpUVBWNkMydDVVTWhZcFRRNFdybVMxbzJMbnp3OTZRTnljb1AzYkE1TGY0UU5QbVkwTHhBRUxJMTkzakJsMnUwNy1fbk4zeE9iTVZ2Sk9peUNVdHrSAZYBQVVfeXFMTWZrZEp3V0dfdS1CWEJScFlJVVVFSURsRVpWNHMySTgzQldfRnBBanp5TEJ1a2FoQlRRbFNpcVc2LTJqZmE1UzZweDV0YlRFV01OdER4OHNQOFVXUHhNR1c3SHJJYmdyVllpY2lFOHdkMmhLVG01M0VpRHUwVU1Yb0VCZ3JtRDlUV1NCLTJZWmRXV2phNHVB?oc=5) |
-| Canyon Fire containment grows to 28% as brush fire burns near Lake Piru - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQU29GTXBnTjcxMkV2UnpZNmRCeHZsdHFndl9sWi1qTWlYbVNrNGdsRE5XZDhzT1dPRWpaNHUwanA0SGEwNm5WT1VuNExwTXQ2TS1ucXZLTFBoODJvUGE5amxac05hQXFiSDBTcDliODdEb3ZEYmNsVFVhNjhxdlNRMktHLVZIRVk2SHhrVmVZSlNIWGlCXzUwZ1p5QjkxbzYwUDJJcnZNZlg3X0U0YmZXclpHWkF5Zw?oc=5) |
-| A grassroots effort is underway to monitor ICE operations in Southern California - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPbDZVSkJYZDFza3pkVnpoOTgxc1ptNzFPVnY4Q0UtajFqUGRuNExObGwtUWJZdTY4U2FoQzljanpDWXZOMW9HS01UUUU3QWpOSjBpTmREWFROMDkzYV83RDh6cHhZTzFsU1cxM0trdXlnMi1rVFZ6bnZBTDVPaFlaNzdOdmdNSmYtSlp1SDFFY2RHMFlnSXdkZGJETFhQLUdhXzVsddIBqgFBVV95cUxPMXhOcGRXbGtGU2l0bmdYWTF6Q0x2c2tkRHJmV2ZEWXBKLXFhS2E1eWU5NjZ0Ni1felJBc21IdG9tZlZjTDYtb1FMbi1peHJyQmV1b1NnSHU3NzkxQ2FDMWV0MjVoNXhhQ3lpUGNwanh4V0c2MTBlZTRfbjE1RTFoYlR4anBob19tbGdFSVZ5REFKMHp6NV9IeDFoS0NpMDJNWnlWWEZJZmxyUQ?oc=5) |
-| William H. Webster, Who Ran Both the F.B.I. and the C.I.A., Dies at 101 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1MS2k5MUl2ZXhhSXV4NzRzOWFSV21vOVUzY3ZtYk9QOXZXUUVadVlBZlYzYm5fZE5SX3VPOHZta2xmSURGb3Vldy1xUFZJMmh4QzdVY2I5cGhpdkZfa3d1Z2VpQjZ5S2ZoSGlJcTY1ajZTYnc?oc=5) |
-| Trump's federal crackdown on D.C. causes confusion: What to know - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNMzNfcXhqeVdNZ0JUalRsRU9XaHM5bnNJbGtRUnBPbTkwSVJma1U4Z2dlODBqMGluTlNHai14dXdDQ1QyMlg3QTNjSTZySzBTd2ZibHEwWjdyNlpZNUNXeG1uYkJLY0pSVVVfLXVEdGhJY09ULUZPR2pldlJtQ3MtSUo5LUUyZlpFN1hkVUF0RTNvVWMtRk1MeXphZ1ZISzlLeFZpdmNaeWRYZlVOLTd1cm9DTQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
