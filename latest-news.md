@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月10日 12:42:06（北京时间）**
+🕒 更新时间：**2025年08月10日 13:01:47（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Europe allies say Ukraine peace talks must include Kyiv | [阅读全文](https://www.bbc.com/news/articles/c0e9py7e28xo?at_medium=RSS&at_campaign=rss) |
+| Ukraine's European allies say peace talks must include Kyiv | [阅读全文](https://www.bbc.com/news/articles/c0e9py7e28xo?at_medium=RSS&at_campaign=rss) |
 | Vance and Lammy host Ukraine talks ahead of US-Russia summit | [阅读全文](https://www.bbc.com/news/articles/c3dp119lk5xo?at_medium=RSS&at_campaign=rss) |
 | Police arrest 474 people at Palestine Action ban protest | [阅读全文](https://www.bbc.com/news/articles/c8de6rq37v5o?at_medium=RSS&at_campaign=rss) |
 | Thousands protest in Jerusalem over Israel's Gaza City occupation plan | [阅读全文](https://www.bbc.com/news/videos/c5ylprlr3dzo?at_medium=RSS&at_campaign=rss) |
