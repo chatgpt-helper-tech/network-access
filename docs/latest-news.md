@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月10日 09:43:27（北京时间）**
+🕒 更新时间：**2025年08月10日 10:00:27（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | These Are Drug Cartels Designated as Terrorists by the U.S. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPcllLUTktRS0xMWJPbEFWeUNBellSa2htaTUyNDREQ2NIOTdycVNEVVhuS1VBdFFXV2RzdmRMNmJDUTZOeEg1d0ZRTVdoenVLZ0xMX29aM2Rja21Pbzhta2Q3VW5DRlVhNGtPeFYwRHdBT2t2UVREdzRHUW5aM0I3S1BHZ2F3NnhYXzZ3dmxvRzE0SGtGVGJz?oc=5) |
 | IRS, White House clashed over immigrants’ data before tax chief was ousted - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQWkJtT0Y0VS10bkdHeUhKbWNnMURnVnp0dTROQ2REOGx1VGpsY3FNLUFvd25adTR2bDJPNi03WHRaNzdrNVNucGxrT3E2WnpNYWpQN0RrT1RRT3UwSjRUVWtxeXo2T0RCUGNIUkZaY20tcWExcVo3dzZsUWt4cFVETkFBTUMybDNHLUdUNFZyOW1xd28?oc=5) |
 | Cuomo Opens Line of Attack Over Mamdani’s Rent-Stabilized Apartment - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNMWtxdkl2NHl3X1hOYWRXQTlWYks5ajNmU1czdV9iQkVnc3VYbDhWNUx4aTRYa2NQbVZpazZTWlAyQzFReEpqa3B0aFVSMmZUeXFxd05WSnhrU3hlZTl2R2NUaEtUajY2U3FlVDk0ZXdldHM0WVRlQ1M2YzgyNTI0V3llMXdLbXBvbmtJRjV3?oc=5) |
-| ‘Disproportionate’ and ‘extreme’: DC officials protest Trump’s policing incursion - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPN0FCSGRyVlBuRjlKTEZsazZvRXNVRjFENU1lM1NfU2g3T3hKc0c1UHZEQzdUMmtyVV9tVThvYUlYMTR3QjJvalNHQ0hZX1d3SjBIM1dXNjVzc25WdDdmUFY4Wnk3VHpESno5cWJHdXZDRVhkWlBqMkVEY3dhY3M0cWpyWFNJbFItLXR4cWRuNTdkVEthbWhRUzZwLTVWWXZla19IMmpqdHdsQzdITUhuU2s5NmtJaXpLbWt2b2ZQRDUxa2M?oc=5) |
 | Tammy Bruce, State Department spokesperson, tapped for UN role - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPaTBaY292blNlRUFDRnVqOV9WS2lZYXBtVHFMbnRwb1JaSHBJeXVKUEhBcW44MS1JNExUal84cWkxTjdtV182Rm1wTWdxSmVLMWd3c0lsZ0F3QXFCLWp6NmpaWXNsbGIwT0FBblZyUXV4NWFlTUUxU1hBVmppd0s2UnpR?oc=5) |
 | Times Square shooting leaves 3 hurt, suspect in custody, NYPD says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9iQ2pmQVpHNXp0S3hCWm52VUNLLTNoc1pfQlNrcWJtYjlQUGFUQm94eEZMSVdXNFdHZWFkZ2tLRFdrSk0zREVLeHMyOHhaaDhOVmlZdl9EeGE2RExUaHRxWEVpeXA0Vkh3T1pacGVLZDlVQTRUaG52ZGgyZVhkX0k?oc=5) |
 | Texas Democrats embrace Newsom’s redistricting rebuttal as California draws new map - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxONXFNV0tSVlJJSHhERy0yUUtyS0FGdW1DR0NzbzVSNTAzb2V0aTNJeWEwU0Z4eC1ZSmx5bldwd2JxeHhCMGJiTlhPdHNPZTNYTmRSekhBSjFGMEVlakh1LTUyczVCd1BJMk9SZGFPcUVSX3p0RUxfaVFoZi1tU2FmcHRYUQ?oc=5) |
 | Shots fired near prison where Ghislaine Maxwell is being held - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNNlN4Yy1qckU5NnRBaU1MTy11azJLM0hGeXl5YXFPLWNMcnVDTDFFdHk5SHVkckpCdnNaN3BUNzZIOHdJbTFFeXdOVkhFU0JHMXZFM2dMTWhmMjN6NTI3bXpjMmtkSGxIdUVjYXh6VGVPMGFMdmJ3Y1BpSXhjWXRSRHRPSFA3VzBNMUZvQWJ2clJ3WFF0ekROUDJYS2NpVUtGS1HSAVZBVV95cUxOU1ZiVi1FQUhOWkZBVlQ1SzZpVkdOZ011UXZVVDVHNDJWZkJBbXZ2ajU1cGZVZWVQaGtxV0owd21NXzhucVQwLUdTNVAzWlRTLVBtV3JzZw?oc=5) |
+| ‘We are at war – bring it on’: Democrats ready to fight dirty to stop Trump - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOVmhWQ2kzNVFkV2ZEaEFtQlFlY295ODQweEtkc3BMY2hNSWFKcWRuVmJzd3BMd0JRVnN4YlA5VFNkZjh2TDhnRU0tb1k5NGU1ejdyZVhUMnE5OUk4Vl8yV3FIVHVUNlNQVGQ5MHEyVWZxNUJ0Y2N0V21JWXItaHFjT2lReTAzakd6dm50TTNwcw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
