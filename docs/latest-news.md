@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月11日 16:21:53（北京时间）**
+🕒 更新时间：**2025年08月11日 16:43:29（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Trump demands homeless people 'immediately' move out of Washington DC | [阅读全文](https://www.bbc.com/news/articles/c1kzz4m3ll1o?at_medium=RSS&at_campaign=rss) |
 | Entertainer founder gives toy shop chain to staff | [阅读全文](https://www.bbc.com/news/articles/cgm2jjwmw9jo?at_medium=RSS&at_campaign=rss) |
 | More foreign criminals to be deported before appeals heard | [阅读全文](https://www.bbc.com/news/articles/cyvnnj301l3o?at_medium=RSS&at_campaign=rss) |
-| Chip giants Nvidia and AMD to pay 15% of China revenue to US | [阅读全文](https://www.bbc.com/news/articles/cvgvvnx8y19o?at_medium=RSS&at_campaign=rss) |
+| Chip giants Nvidia and AMD to pay 15% of China revenues to US | [阅读全文](https://www.bbc.com/news/articles/cvgvvnx8y19o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
