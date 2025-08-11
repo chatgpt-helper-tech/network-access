@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月11日 20:43:19（北京时间）**
+🕒 更新时间：**2025年08月11日 21:01:57（北京时间）**
 
 ---
 
@@ -8,24 +8,24 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Bowen: Israeli settlers intensify campaign to drive out West Bank Palestinians | [阅读全文](https://www.bbc.com/news/articles/cj4wwxz12jko?at_medium=RSS&at_campaign=rss) |
 | Three children arrested on suspicion of murder of man in Kent | [阅读全文](https://www.bbc.com/news/articles/cn855zj319yo?at_medium=RSS&at_campaign=rss) |
 | Over-70s face driving ban for failing eye tests | [阅读全文](https://www.bbc.com/news/articles/c5yllgezjk3o?at_medium=RSS&at_campaign=rss) |
+| Amber health alerts as heatwave temperatures set to hit 34C | [阅读全文](https://www.bbc.com/weather/articles/cz60081dpyxo?at_medium=RSS&at_campaign=rss) |
 | Lucy Letby's new expert supporters claim no babies were deliberately harmed. Who should we believe? | [阅读全文](https://www.bbc.com/news/articles/cj0y9673rjno?at_medium=RSS&at_campaign=rss) |
 | FA Cup winners Crystal Palace lose appeal against demotion from Europa League | [阅读全文](https://www.bbc.com/sport/football/articles/c1kzzpp04kgo?at_medium=RSS&at_campaign=rss) |
-| Amber health alerts as heatwave temperatures set to hit 34C | [阅读全文](https://www.bbc.com/weather/articles/cz60081dpyxo?at_medium=RSS&at_campaign=rss) |
 | UK's biggest toy shop chain The Entertainer handed to staff | [阅读全文](https://www.bbc.com/news/articles/cgm2jjwmw9jo?at_medium=RSS&at_campaign=rss) |
 | Record warm seas help to bring extraordinary new species to UK waters | [阅读全文](https://www.bbc.com/news/articles/c05enyryqvmo?at_medium=RSS&at_campaign=rss) |
 | British man who perished in Antarctic glacier found 65 years later | [阅读全文](https://www.bbc.com/news/articles/c4g034yx4gjo?at_medium=RSS&at_campaign=rss) |
 | EasyJet pilot suspended after being seen 'drunk and naked' | [阅读全文](https://www.bbc.com/news/articles/c80dd15378eo?at_medium=RSS&at_campaign=rss) |
+| British backpacker pleads guilty to killing man while drunk on e-scooter | [阅读全文](https://www.bbc.com/news/articles/c0e999y7vq2o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump demands homeless people 'immediately' move out of Washington DC - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9VN1liNTEweDRLX0VmZXY1ci0xZXBoRS1YeU9TVXd4RkVMNHdnNmhqaW1Udnh0Rl9sTGQwa0x3QlBFMk5kWTljbHBVLTFRM2lfWkF4NWR1WmdxUdIBX0FVX3lxTE5UOVVvTU40T0VUTHJOVGtJczVNZkw3RTEtZnBmcnhfVXVsX1RTUm5aRjJXYi1VbXBnMkh1TW5XZnVtT0dtUnF2WkhBUDUtUm5ETmNSSWVFWXVrYVFpTUhz?oc=5) |
-| Israel assassinates 5 Al Jazeera staff: Scenes of carnage in Gaza City - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPVnJKX3JWUG1RVEdUd1ZmazRudmZlVmE4SkdDZ0UxRmd3ZXRNdmxLd0NneU5mV0x2STR4c1BNNGZMYkYyclBkOWx5UUNjOS15dnRNZjdicjJpaHZPenZCNDU2SHdfcmo1c0xtaWlLMVZaQlNBTjJGRDFjSnpUOXlyMk1jOG43SEl3MExqeW53WlN2Z1Zma3UzSkxJVXUycXRFYWNWWnR1U2I5WWJuVWQ5NWdlONIBuAFBVV95cUxNLUFnMTRZYzFqX0xZbVBVZnFvQnJvVUJrZExka0lGWUVSTF9hQ202dDVjNkstNnZ3WG5jbHZFbjQ0U2JiY1lidWUtVkhmMExEYUxVemRQQXEtNHhoU1YtMk02cmx0RWtoV2tqbi1ZUnhzVkM4eXNxTVZfaF85a2czNkJfdlhzaW5lNnotTEtQSmo1cmFjaFFkODNRR045WkpKZjZ2NU9nUjhIbnJUSE4zeFFhaVMyVUFX?oc=5) |
-| Miguel Uribe, Colombian Senator Shot at Campaign Event, Dies at 39 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNRmhidHE1M1JETVJxMXNnd0FrUTJYMkpwcFJoRDVDVWZGWjlZbVFOMjZpaXh5VFQ3UVdMS3Q0d09VRVpKSUZsX3pJTmhaMmNCdWFiMHZGaW50NjlqOEtpUVphOExzTDJwa284RW90N3F3aXFkR0EwWG5nbkFIeWFwSmNyaFRIZURWRUx5cWNrQ1h6aHNLWW84eDVBR3pYSGFFRkRTNw?oc=5) |
+| Israel targets and kills Al Jazeera correspondent Anas al-Sharif as toll worsens on Gaza journalists - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQU3RRZS1VOUhZd1RWbkIxd216LUpuTXI1N0R1YV9xYmp3bkQwci1TQ2d0aGMwUm1nVmI0UGEtLUgtUVVUNHZhNmJURUxsZlFWc0RnTEdncFJILUZnTy1Sc0Y3dUY1TkpwUlNCeDJFMUJlUVhGeWNLcnJZc3pBNTlMdXRPX2kwc1VQa3g4MERtM0tjaEZhQmxqRzlEbTQ?oc=5) |
+| Colombia presidential hopeful Miguel Uribe Turbay dies weeks after campaign rally shooting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQY212Z0VYVTdmUkFsdUlIU050Z1hEXzVzaTRHSC11TTZ0NThsQ3Q2aFFaVm1oVTNmTmxmR19waWczVVMtR1hLcDE4RUVlVlRUZHo5QlRWVXh4WVRIZFRZal9VX3FuMVFQUDdWaGVXY0NjMzhFNmYtUDZUR2M5MGd5OFIwa2dNNEdaR2Uwc20xMkRuMWtSN3fSAZsBQVVfeXFMT1A4QllGcE5HcEFTd2FndThZV3NNdERnR196NGVvbW5mWjVxMTNmV0RJUzktSnBHa3pRMlNMTlRhWmJYR3RGZTROSUNjTWhvY0trRFp2dG53UGd6YmdfRWZ2LWc0SEp1Z3c1bkR1Qy1OTm5RMmE4RGQwM2NpY2RodWFzeDNyb1FlT04xeGk5bkRtRXVYV3I1MW9leHM?oc=5) |
 | Photos: Historic flash floods hit Milwaukee as Midwest faces heavy rains threat - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQbHVNc0lpZ2lWLTlZeTZRYXQ2dXdxbHJzbW50MDdjZTJVMktLOGZNWm94R1k3d2QwQ3hyQ2pqMy02SG9JcFd6YXljSlZVU3JYd2pPWUt3WVpHLXRZczJvVEk0SkxtSjdkRGhxX1hRcW93dG84bUIwNFZ0MTlPRGs2cmlOUzQwdDFZZFo2dlNLX3k0dw?oc=5) |
 | Australia Joins Growing Effort to Recognize Palestinian Statehood - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOMF9MVVBBVlZZdUphcXpGTFZuWmxEM1lDSlh6bHBQLUhRSlZiWFVxNmR1eEVMUjNiVzgtc3ZXVllnX0NDdXJXUTQtWHRzOHZFTkZaRG5hTTBpVmJ2ejRPV09yRmxaSjREQ0h3VjIzc0N6Rm5nXzVJV3U1SkZRb0dIVVpOcm1KdFhDTnFKTUlB?oc=5) |
 | Factories are losing immigrant workers, stressing those who remain - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNVUVCSnhVd2d5QThsRmNJSUl0VzRlZ0k3LURONDFLWEprOUdXeGRQUXN5aXV6LWMxT0hHUnlyeEttMWFVMWxQVGtWN2ppSkhuN2w1S0FxeTVkOXA3Tk1TelJLWldXd2owN09YaFhNakdoWnFLZDJJSmNVSkowUW1KOEtoSmpoYWFz?oc=5) |
