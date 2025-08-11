@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月11日 10:43:09（北京时间）**
+🕒 更新时间：**2025年08月11日 11:00:45（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Flooding cancels last day of Wisconsin State Fair as severe storms knock out power and close roads - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPQjdFS3lZemllcVVoSVgtQlJSYWhRaWFNMWNZMnlNRzhId3p6S29JSUVnWjBrYlV1Q0J5QWFKdW11NGlQcDIzWkFtWXdyWXpfdXVGT3pzYTVRQm5RR3ZyN2lLNmxFTjVJbXdrSi1JcFRQd3VncmZpQ1EzR0xIcjhWTXo2eW9rZlBGb29RUS1hQ3VabFFNN2c?oc=5) |
 | Netanyahu defends Gaza City plan as UN warns of ‘calamity’ and starvation - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPdHd5OEk5LWRLdTh2MW15OFBvazhsRTFEbmxQOXdHUEhlUmxHYU1IZ2hIRUZNUFc3VmRxUzZLdWp6U0xqMUU0c0RwZE8wRUtoVnZYUVN5dGxEMERnSjBOaEp0ZDlYWGtGeVlkQ0RLZERUYnJXYzlrR01Lc2RDVGM4b0RGRGFBcnl4MGpMWG80VFowSFF3RTlTUmVkU2hjMUI0MFZ5aGkxNllJcVhJOGdJeHZXbWdBMmgx?oc=5) |
 | Vance calls out Democrats over Epstein files, reignites push for transparency - CNN | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE4zWWpuc3BQd3IyemFaVmZrOFhLUy0tNElha2Z3TDlsRkx0RnY2UlkwSTN3V2JoTWRIaC1XUFdHSEFVTEFPOHlZV2UydlZsbVRFVGVySGVxRVh0Y2hHcFZoMm5YWkJjeFRlSzZOeUQ2dGPSAXZBVV95cUxQWDE0SmxPbS13VnZGTzRyZTN2UlNYYzctRGE4aFBwaUpUX3NyRzN0RHVwMUtQbl8tMmQ5amxiT3lLZWZYalhMR2ZxMEZaUW5VOHJ5QnlYQ3pWQWs3NllRR29DMmNJTEJxYlZzSFd3NVhjb3NvMFB3?oc=5) |
-| NATO Chief Sees Ukrainian Land on the Table as Trump Meets Putin - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQREE0SFdad3dkVlJuZEVGeGpRS0w4SkVIYi1sb3YwWDFZSm5JRk12ZVFmMlNhMFRzX3RSNkxhZEhIWFhsTGVISWp1WEtCV3Q1Uzczby1vOGtFX3ZCaHdFUzZYeGxxU1BCTlREc2lNSmJRVjhMOXo5UHFJVEgwRlB2RU9hZTNZYjJWdDRreVlpbExpM2kxdzJSVnJiOVdNeXYtdFFTRUhlZlRUczBoQ0FCYjMtWWZiQQ?oc=5) |
+| Trump and Putin May Get a Cold Reception From Some Alaskans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQSmM1Z2pZUzhJZXNoRnNJVzFLbjB3dm1WSnFJbTgwTUozQ1ZyWXhtQWRoQVViNV9sbWtNRFRBSDlKNWEtNEM5OTFQRXoyODNhMXl6TXpLY2llRWRGSm1zSnQtNmV5YTg0VXJwaU0tWmYxd2JfalVmcFppMmcycktmcDI2aG9yQQ?oc=5) |
 | Trump’s Cartel Order Revives ‘Bitter’ Memories in Latin America - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOOE1kQTkybGotNE9MYjNETzBRYzVySG14ODZyWGtwMDhUb25vemRyNi1YanJxZmFTaXVJUGZ1LWNLekdsem42YkFId3FFRVFnOXFVcm1Eazc3SG1CMVBlcFZXTTJDNW41cERnck9xSDlpZHJfSkk0WU50NnNwRHhCZi1WZHE3MjRNSzVxcE10X0VqOUFaV3JmZzlYblNPNGM5cmQ0TGxB?oc=5) |
 | Colorado wildfires burn more than 120,000 acres as firefighters await better weather - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPaGlIV2NoT0YyV1p3VjRQSFJMa3kxanFvVEdYN1JrakxYZ240QTZSS3RNZmYzZWV0Z2pxeFo4UjVrZnVSa01LQTFiWjhxMklRNzZPV0FmVmUya0Zyb3hLZkZZaUprZ0Y4aE1GamtpOGxQV18wdVVpU01GekI2ek5Ua2hPRjNQQUNkdE1ReTlGRFVHUlN2?oc=5) |
 
