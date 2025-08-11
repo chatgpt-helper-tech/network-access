@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月11日 17:21:23（北京时间）**
+🕒 更新时间：**2025年08月11日 17:43:59（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump vows to evict homeless from Washington, official says National Guard may be deployed - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQeWF0OEVSaWM5YlpnZzgwLVNOS3Nia2N2U3lNalIxV2k3bWFRZ3RlZnhsaGZFbmswSUFLQ2tsM2NqNFE3MXFPX0dPMktTNlU4U1FWVGhrYnJXaUVzVldnOThVb19HbjlqWHVQbnQ2SmY1RHkzOWFHcEluZTRrSzVhZWVNT0hrTnJvVFpWUWVKVHhCSVE3cHhCaTNwWTM3OTFJMEtZT3dWTlNpSEs3a3pQQ0Z6WGhlaTZf?oc=5) |
+| Federal agents spread out across D.C. streets amid Trump vow to crackdown on crime - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5BWk9xbVhBTjFXQnFtcjZtTXg2c0hpZVBFWEZNdU9sbk1uWEVVS0J5Z1VTZ0pTNm1BLXI4MnpYVEFrZXNYc2VpMVkwdzZzSmcxMXFBNkEzc25QV1BYUEVsX2tFVGZBaExPUWVrNFJTTDVQSTlodXRWMQ?oc=5) |
 | Anas al-Sharif, prominent Al Jazeera correspondent, among five journalists killed in Israeli airstrike on Gaza - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxObHh0UDhzWjV6cHBveDdDQmlxRXBEUFVad1F0aU4yNl9OR2kzalJ4c3I1c2pSU0k4OVlOV3pFZ0RKWVh5bjRORzdyNEVRV3hJZnEyTnpMd0xPckYzZEVwSVRSWVBrbEdaZzczRGNZalZpeGMzbTNyNnpMOFpjYUxJQmtkTHBXekRKa2ZzSzdhSkI5SnlGYUllWUFRdnA5ekdhVW5ieHJBM25RR0Z2dUdlWU1ndw?oc=5) |
 | Russia and Ukraine stick to their demands ahead of planned Putin-Trump summit in Alaska - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxONTIwSmVYUVFLbGtMWFBaRjY3VG9mTXFCUnNmVkhhNXVVWXNTNkJ2MGhPQnBlbl9nVmRaMUJ4czhJZ1pZSEZZYW1ObjFtTThaa2lNblZORFRPbTQzaGE0eG5ITDNJYWxGNGh4TEJCblBBWGUteWw5Nl9UTVRqT0pEWU5BUFQzTnd4UWVnVkdRZERNN24wMVhEU1J6QkFPR3R4dExLa2xsTVRVXzZoWTNKRnc3SUxDM3FCQWhRSEMwONIBxAFBVV95cUxPZ0Rza3FhODBhOXQ4Ni1Gamcwckx0M0I2c2RCMWlTTXExb2U0WXBRSkpUSnRPa3hEcUhpZXNPTXVWYUJjR2pjOVZSd2JUVGlhcjdLTDJsUXZPRFAweVJkZTR6V0sxb0ZjaTR5Wng3VTVNV3VXU2Fkdy1uVkxfOVZLVVpxemtUaDUwZXJEdzhJa2Vod0s1Ni1PaXdXa090Zzl0RFUyemd1WC1wS0xNN0pTM1RFWWNSNERrc0VDOGhJZGFXRkdT?oc=5) |
 | Photos: Historic flash floods hit Milwaukee as Midwest faces heavy rains threat - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQbHVNc0lpZ2lWLTlZeTZRYXQ2dXdxbHJzbW50MDdjZTJVMktLOGZNWm94R1k3d2QwQ3hyQ2pqMy02SG9JcFd6YXljSlZVU3JYd2pPWUt3WVpHLXRZczJvVEk0SkxtSjdkRGhxX1hRcW93dG84bUIwNFZ0MTlPRGs2cmlOUzQwdDFZZFo2dlNLX3k0dw?oc=5) |
@@ -32,7 +32,7 @@
 | Colorado prison evacuated as growing wildfire becomes one of the largest in state history - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFAwX3RzR2wwRnozVE1vQ0Y3UlJoWmdWRkNoLWdjMVJRMUUzMnhZNGlUamQ4VGxNeU04eVJ3bFRLbGtGWjZITFFuUXhJMDBmMnhEYzJYVW5wSXVWZnFFLUt5aGdvSFNxd2c2ZkhIdVVEdmlraG1GOFh5WNIBfkFVX3lxTE9xRElKNGdWdzlVXzhDMXViQUl1YnhsbEVNaExVSmJlU2FPZzVULURtc3JubHNxUVJ2VjJMYmhXNGJGR18yX0JYc0NKcHVlTDdLZWF6TVNLa1BiVUx2ZTM3a1kwdHV3M2NwMUVRc1ZWLTYyRmR6Ylc0ajgtRk4yQQ?oc=5) |
 | Trump’s Cartel Order Revives ‘Bitter’ Memories in Latin America - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOOE1kQTkybGotNE9MYjNETzBRYzVySG14ODZyWGtwMDhUb25vemRyNi1YanJxZmFTaXVJUGZ1LWNLekdsem42YkFId3FFRVFnOXFVcm1Eazc3SG1CMVBlcFZXTTJDNW41cERnck9xSDlpZHJfSkk0WU50NnNwRHhCZi1WZHE3MjRNSzVxcE10X0VqOUFaV3JmZzlYblNPNGM5cmQ0TGxB?oc=5) |
 | Texas governor promises to keep redistricting fight going for years - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPSl9OMjkyTWhqNGhNYlVLRll2WHhDSjFuQ25QNENLSnNfT3ZrSEdmNGFkWktSU2x3M0gzc3ZvNmE4dU5TbXBQQUNBY3Y2RFU4SDlLWUVqVmpNOFZESms1VURhbUtVMUZ3UjVCV0wzSkM4MzRSWFhhSHQxbm1rZVA4OGM1Zw?oc=5) |
-| Trump Pits Vance Against Rubio in Battle For the MAGA Throne - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPX2Z4WGoxSEt2VEFZeW5mbC1VX2pZVzJFUWUzQjczUGU2d2locEZhb2piOTVaeFpMNkhKUnJaVXh1TjlPYVZFYTBkcHU4SFllbUtZTkVsbGM1WG5Cbi12bzByVmVEeGJnVXg0NVVlRzJqNEdPMi1xNUR6T0FnOWlFblNMNzRCTHg0bXg4ZE9mVVdkcGZoeWw1WDVKUUN1eENlaGJHRkU3OXZBZXVMYWJhS0tXOTZFUXJGSTJyTno2UVN4UDQydy0xTlpMS3Y?oc=5) |
+| Column ｜ The end of the Trump-Modi bromance - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNampRZndTaG5OUXFQaDlpVnRRcC1EZ1IwQmVhanpncVNZek5BWnhBRUg5UnhvQ0ZrUzF1V1o5NDhRLV9jS3p0UTl4R1MxRWlUdmdPQTgwa3JQQ0FGYS1ESDFGVVZBdExSMXA4WlVKWGxSbi16dzMzZzhzSUVOVWFLVEE5ZkRMdm5jLU5XY0VZaGEycTZWSzNGbmJCQWoweFU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
