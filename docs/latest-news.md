@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月12日 21:43:29（北京时间）**
+🕒 更新时间：**2025年08月12日 22:00:37（北京时间）**
 
 ---
 
@@ -9,21 +9,21 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | US woman convicted over failed assassination in UK | [阅读全文](https://www.bbc.com/news/articles/c4gj87jxg78o?at_medium=RSS&at_campaign=rss) |
+| A dating app, a niqab and a 9mm gun - how a US woman was hired to end a UK family feud | [阅读全文](https://www.bbc.com/news/articles/cn72x5p8801o?at_medium=RSS&at_campaign=rss) |
 | Small boat migrant crossings hit 50,000 under Labour | [阅读全文](https://www.bbc.com/news/articles/c8e1xkwd74wo?at_medium=RSS&at_campaign=rss) |
 | Ukraine's borders must not be redrawn by force, EU leaders warn ahead of Trump-Putin summit | [阅读全文](https://www.bbc.com/news/articles/clyrlvwx9rgo?at_medium=RSS&at_campaign=rss) |
 | Mum of murdered schoolboy Harvey Willgoose calls for killer to be named | [阅读全文](https://www.bbc.com/news/articles/cwy195xg8e4o?at_medium=RSS&at_campaign=rss) |
-| 'My staff feel unsafe': Pharmacies report surge in shoplifting and aggression | [阅读全文](https://www.bbc.com/news/articles/cj6yxkp2wx9o?at_medium=RSS&at_campaign=rss) |
 | North Koreans tell BBC they are being sent to work 'like slaves' in Russia | [阅读全文](https://www.bbc.com/news/articles/c2077gwjlvxo?at_medium=RSS&at_campaign=rss) |
+| 'My staff feel unsafe': Pharmacies report surge in shoplifting and aggression | [阅读全文](https://www.bbc.com/news/articles/cj6yxkp2wx9o?at_medium=RSS&at_campaign=rss) |
 | UK jobs market cools as vacancies fall | [阅读全文](https://www.bbc.com/news/articles/cpdjjp681p7o?at_medium=RSS&at_campaign=rss) |
 | Taylor Swift announces new album on boyfriend Travis Kelce's podcast | [阅读全文](https://www.bbc.com/news/articles/cqjyerlv8eyo?at_medium=RSS&at_campaign=rss) |
 | NHS is over-treating men for prostate cancer, says charity | [阅读全文](https://www.bbc.com/news/articles/cger2712j1yo?at_medium=RSS&at_campaign=rss) |
-| Italian athlete dies after collapse at World Games in China | [阅读全文](https://www.bbc.com/sport/articles/c24zr5590nvo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Consumer prices rise 2.7% annually in July, less than expected amid tariff worries - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFA4OW5SOXBndFZEYi16eE5mSWVCS1doVmZJMlZ1cXNtS2dFLTU1bFdkZ2xPeDJCY1lqWW1vMDZoWjBLaGRaSzlwYXlsU0VKWkloS3pTYVpqb0c5clRfcnYyb1haODJ5a3B2TTAzcFZiNmlKa2ZRUkHSAXtBVV95cUxQU29PU3dhaEtYajFYdmRGVzhzTU0wdDlYczlPRE9mUHY4bGV3N1AtMEdlcVF5NC1RVGxlVW1LV3VSbVREYWoydkNUWF92RzgxMTJWOExzaU1VWkhPV2R2N2g0bElYYlZrVFNsNGQ5dlZ0WFdqRk9RUE5lTE0?oc=5) |
+| CPI Report Live Updates: Inflation Data Shows Deepening Impact of Trump’s Tariffs - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBaaTduNUljMl9BRDhCbi1ZT0QyTW5FZDFGSWM4cDU5em9wbS1FcjJTa05nQjdfM0psdEd3cXhNNWNURWpDMlhBc2hmMk5ob3RFQWVXbEltMjhiemx2d0xYV1JldEhmcWRXbkRSLW1ZcnI5Vm95a1NzS1FCUm9XelU?oc=5) |
 | Trump to deploy National Guard to D.C. and federalize city police - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQakxHQVgzZ19lVkx0YVpKYVlud28zb0F0bmh3UGlRU1ZRenNzNmVKNXpFcmE3NE56RjNTRklVTktLU0RSR2dfaVY5UlZMZUlORWFwWWlsNWJ0SnpkQ1V5cUt6QzZ0LWN0UDZlVUNHX2xOWXlyUFBpYzhsNm8yMmdSeS1Tc2FpU2ExTlZv?oc=5) |
 | Alaska was once a full-fledged Russian colony. Now it's hosting a U.S.-Russia summit - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNdGxqM092SEJZMnQ3TlRPUC0yUW9Nb3pkcFo0S2hpNjlsMlZXRzhJdFRORDRlZjZNSkRtdGgxZmQwQUpBdUJXZUFDOGZ0dU53SDFCT2pwcFg5VjUzblJDRWt1SFNJVmcxUHBqN3B2N1RDelJNSHktcVRYT3J0dVVsZjByWQ?oc=5) |
 | US and China extend trade truce another 90 days, easing tension between world's largest economies - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOdzdvelFUanVncU9HbldfMXpqeTIyNVV1b253Z3JiMzBUNVdhTkNmQ1RINnhkcmNWRUppWFNkUHluSGxpbmFDQXBQWnMzdUsxVXdQTkJmbUU5eldUZGxPQkQ0RXFBYXBldldXUGU5Z1BRY0dLTy1qVHpPMS1idTlPdEx6S2lmdnhaaWZMTWM2bTAxdUdFeWNINnpR?oc=5) |
