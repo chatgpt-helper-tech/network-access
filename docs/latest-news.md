@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月12日 17:43:04（北京时间）**
+🕒 更新时间：**2025年08月12日 18:01:37（北京时间）**
 
 ---
 
@@ -8,15 +8,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Knee-replacement implant used on thousands of NHS patients was known to be faulty for years | [阅读全文](https://www.bbc.com/news/articles/cqxgen498ejo?at_medium=RSS&at_campaign=rss) |
+| Ukraine's borders must not be changed by force, EU leaders say | [阅读全文](https://www.bbc.com/news/articles/clyrlvwx9rgo?at_medium=RSS&at_campaign=rss) |
 | Mum of murdered schoolboy Harvey Willgoose calls for killer to be named | [阅读全文](https://www.bbc.com/news/articles/cwy195xg8e4o?at_medium=RSS&at_campaign=rss) |
 | North Koreans tell BBC they are being sent to work 'like slaves' in Russia | [阅读全文](https://www.bbc.com/news/articles/c2077gwjlvxo?at_medium=RSS&at_campaign=rss) |
+| Small boat crossings to hit 50,000 since Labour came to power | [阅读全文](https://www.bbc.com/news/articles/c8e1xkwd74wo?at_medium=RSS&at_campaign=rss) |
+| Knee-replacement implant used on thousands of NHS patients was known to be faulty for years | [阅读全文](https://www.bbc.com/news/articles/cqxgen498ejo?at_medium=RSS&at_campaign=rss) |
 | UK jobs market cools as vacancies fall | [阅读全文](https://www.bbc.com/news/articles/cpdjjp681p7o?at_medium=RSS&at_campaign=rss) |
 | Taylor Swift announces new album on boyfriend Travis Kelce's podcast | [阅读全文](https://www.bbc.com/news/articles/cqjyerlv8eyo?at_medium=RSS&at_campaign=rss) |
 | Staff fear UK's Turing AI Institute at risk of collapse | [阅读全文](https://www.bbc.com/news/articles/c24zz2vdv51o?at_medium=RSS&at_campaign=rss) |
 | Italian athlete dies after collapse at World Games in China | [阅读全文](https://www.bbc.com/sport/articles/c24zr5590nvo?at_medium=RSS&at_campaign=rss) |
-| What we learnt from Nicola Sturgeon's memoir | [阅读全文](https://www.bbc.com/news/articles/cn844n379y5o?at_medium=RSS&at_campaign=rss) |
-| Zelensky could still attend Trump-Putin meeting, but rest of Europe is shut out | [阅读全文](https://www.bbc.com/news/articles/cn5eedq7ldro?at_medium=RSS&at_campaign=rss) |
 | Nepal offers free climbs to 97 peaks as tourism to Everest surges | [阅读全文](https://www.bbc.com/news/articles/c0j99xxd1z1o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Who is Terry Cole, the DEA boss now tasked with overseeing D.C. police? - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPXzBpNDJNTEJFYl91NXFtenNFcFlLYnRZMG9Oc2FZQ3MyZDZEbHBwWEFOVHdLRFBsMGlFQmNvVWJZNXcwOWQyZHZWekN0YUI3V2hyUWlER3NNZVJFT2JLRTNCOXBVUWtaYVhtQUxBSXNrZU0wVjVFLTZkalZ4eVBXS3hPZlFPNGJvdjNnTUZCSm80a0lwNzE5dkJlcTlNQjA?oc=5) |
 | US and China extend trade truce another 90 days, easing tension between world's largest economies - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOdzdvelFUanVncU9HbldfMXpqeTIyNVV1b253Z3JiMzBUNVdhTkNmQ1RINnhkcmNWRUppWFNkUHluSGxpbmFDQXBQWnMzdUsxVXdQTkJmbUU5eldUZGxPQkQ0RXFBYXBldldXUGU5Z1BRY0dLTy1qVHpPMS1idTlPdEx6S2lmdnhaaWZMTWM2bTAxdUdFeWNINnpR?oc=5) |
-| Trump Says He’s Going to Alaska to See What Putin ‘Has in Mind’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOaTczX044U1pyZEpzUU5mM19pcDRFb21iczBINFQzM1RMRFJ4T18yU2w1T3hXaU1lSU15N1ljeWVXcm5iUWs5NlRNZzQ4Wjc4am1TN2dSSUpQTER4NUJwRjdZYUtiSlBvNi1taldUTUE3R0IwVVhxa09MTmU2WWM5VmtlZ0Q?oc=5) |
+| Vladimir Putin’s Coming to Alaska and Late Night Is Amused - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPQ0pPOTEyZzQ3azFiWVRNQUhyUFVlWURIMDh3S0Jkd2gtcDZhRjBpZnViZkVIS1BSb3BSU3hwTXJrZE03ZmppMW40Z0VpckZHSmhBeVFBMWFPZEt2aWthUXl4OWFjTGFNYmtiNl8xSHROYUdwZ2x3dGRteE96MHg5dlQyYUllUEpGMmJES1lja24?oc=5) |
 | Europe and Ukraine leaders seek talks with Trump to defend their interests ahead of US-Russia summit - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPb2FId2J4anZqVVViMnd5QlQ2ODU0ZExKTGpXSXlBa2NSMkdWUFFISzd5ZUpVRTJELUhVVmU2RE5wSi0yLUlZa25Jckc2aHBqUTMyQjhYMnEyWWlYbklUVGpra2huX091ZElJbV8ydzQtMzJiZFozWXIzOTl6U2gzSWlONFZEVUFTdmRmVkNzbU9saGF0UDJFT1VOdlE0WGNFbFp1MTdXWkVCZmczSHJj?oc=5) |
 | Video appears to show the moment a Palestinian activist is killed as an Israeli settler opens fire - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPWGxWc3J5OEZ5Y1h5c3lVa0o1ZHFOWXlQYk91N21ibTN3M1FDQU91RGl6ZzZhdmI2ek83X3J2ZXVHQVJHbUlFWnhySF9oNVYtUkZVR3gwRHZTUnVlTE9WQU54V1E4bWNGanU2MVVNZWJUMXd4VWJUSFppbDYtTFc5aG9VTWR2QUI5UXl3bi1rXzNRaXVKTk1rdXh6eFVaNEhZdFBnQWMxcENfMk8xM08ybWZ4eFQxMGxTRERCSGVmQdIBVkFVX3lxTFB2Yy1ZMFF0cm9rekRWZUxENWpDY1NjN3NLT2p1N19kdS1lZm5LUHlZWF95cTlrUjFfeU9jUjZmd2hjR0VqcnRNYVluaWxZckJGeVpydmxB?oc=5) |
 | At least 2 dead and 10 injured in explosions at U.S. Steel Clairton plant - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOQU5KNWZuU24yWHJjSGdnVFNOR2YyMFpTZ3BlRXc1cG8tRlZ5QkdXYU9ldW5yN0R4UFdTZHJ4Y0hQLU5MODhEaC1tMkl4WnVid05sSlVfbWZXeFQ3Z3dVZ1dYbjNRM196cVBzb0htOUdtSDBNMGxsbnh3VS13SzNwV0k3WElfVU9ZWW8tMV9JcVVHQQ?oc=5) |
