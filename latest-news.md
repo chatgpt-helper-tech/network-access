@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月13日 14:00:35（北京时间）**
+🕒 更新时间：**2025年08月13日 14:22:15（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Judge orders Trump administration to partially restore UCLA research funding - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNOTFhUHhCRFhJUTlhN0ZyVG9NdnNhUGpHdzJDNGZwZVd0Q0gzekg5REtaTmRWLWRDbmV6bXAtMzRtdVlvMmdZaE0yYURWSXVIckJjZDlNM2tIMy0tc2RrT0VHbUJKZUtqa2h4bmpTVDNmOEVmbVhoMUkwNnpBbzlSRHh4WF9TMnd2bTYyZmNHQ19kTnAxMnV6N1BRZTY0T0xqdWpCQzJfWlJyN3pyOExnTDE3RWhndUVUS0RWQnNxdWxYMDlk?oc=5) |
 | Mexico transfers 26 cartel figures wanted by US authorities in deal with Trump administration - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQMGJLYzQwYkF6d2JpYWp0R0RIeDM5VEZpMDVnWTVyRGZibWZ4SmNDdGNwMW55SmF4NF91Ym00dG9FT3RZSW9EeUdkZVE0djFyNUVKT0FOMGZTeUt5a3FRWDVZZF9xaENTdU9taktKcnhQeVZmUTMxdW8yd1lKTk1LSDRVcGh0Znl0bkp2R1RTbXRPV01KcWlLa0Y3bU0zcEhxdHB1T1VVTUowT09mb1VwQW1URQ?oc=5) |
 | After the shooting at CDC, RFK Jr. criticizes agency’s pandemic response - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNY2NUdUF6Ylp4YjRLaFZZazZwbm5FaTBPekltaUJYdUVXb0xQRFltNmR3MGt4NGRNSXRxY3FqTWFBMGs2Z1J0d0VLeTNYTkZOWnhDSkhvS2lRQXVFQmVXTWdrelRkSFJoR0xUTmwtalFnTzVZZmVIR0xoRDc1bzFLQUpxdUFtMFJSWlVMWjFJajBoZ0FVWmV5ai1GNjdfZzA5MHphMHUwSnDSAa4BQVVfeXFMT1g5V3BsUmxaN1p3TnRNSWpJQmVVdEZVclVSTkM1bVdreWVMRUZSRDBqd3J3Y2p0MmpVbHNXTmJTYzRTdkkzNmdVZ19vOUZBejZjcFI2VzJ1N2Q2QzdQTEdLa0c4bGdpS0JHajk0Y2NTRkRpM0YwT29TeXRiakZkX0tWTV9wUXl3cU1Ma19hdEZDUGlOZzVoTXdOSWNJOHQzMUVkTFU2YnByb1NkcVJR?oc=5) |
-| Austin police ID suspect, victims in Target shooting that left 3 dead - Austin American-Statesman | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPVmNDejdKSlJJWkpTU0hTeUZaZFRObm5xWDhDaTZJclBoZFFEUWRxeXFfWUxua0lmeG1QZXBiOFVYb3NneWxILU13a1VIOWVpb19BT1VKeU5BWFlMZ0h2VV9NRUZGLW96R3AtTERWS0xpc1liM1JGRGdxcGxtUHNaanJPODdXNTN6TG5jVHNIX3V6Zw?oc=5) |
 | Hack of federal court filing system exploited security flaws known since 2020 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQTnVuNXV2eG95VDdtVmFRaFd0ZnhtelF5VllURzk2QTBUOEllYkhxZnlfQkltT2g3c3VBa21PMFFnS2FxcGkwOG8xVms3Y1JPclh1cnZNY2h6VXFHVENLV1hBOG05anJTOERWTk5oOW5MSlc4NjNzQmlvV0VnMHBSUVZNTWt3ZE5BUnIw?oc=5) |
+| Austin police ID suspect, victims in Target shooting that left 3 dead - Austin American-Statesman | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPVmNDejdKSlJJWkpTU0hTeUZaZFRObm5xWDhDaTZJclBoZFFEUWRxeXFfWUxua0lmeG1QZXBiOFVYb3NneWxILU13a1VIOWVpb19BT1VKeU5BWFlMZ0h2VV9NRUZGLW96R3AtTERWS0xpc1liM1JGRGdxcGxtUHNaanJPODdXNTN6TG5jVHNIX3V6Zw?oc=5) |
 | Documents released on Uvalde massacre show police chief did not follow training on active shooters - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQci1aRzRVN2JiQUFVNjBHM3JiWDE5NzI3QU4xT1JaaUhKN0s0V183VERmNTJxMGNCeXpfX3dwVnkzOGlURF9JQjRDMExqOFVzMEIyZTR4X1JDVlRoTUdOeExFZTZJQ3U1b185WGZyel9veDlKMXpmNGhVVGhSZDNPcjZuZW16cUlFLUtPb290RWZxOUVzX0kxSm1ndXdFV01ZZzJYRFlGb9IBrAFBVV95cUxNZzdWblpSMm1qVXlOOFdMTDRUV3pCeVM1aXZpTllNSlI2MlpLN3VIQURHcXdIOG1OdkY0UE5SemR6TnZLMFJSUURtUXVya3BVdUpwSDlNOW9SamdvUFdNRFBWbnkyaGR3VVB2VTA1UzNRZGZoNEwzdkRub3UxOUR0NDItR0NFU1BHZ0VrVjBVbEQyS2daUC1TVWhqS0NuUGtteWY1NmJJRnFONmp6?oc=5) |
 
 ---
