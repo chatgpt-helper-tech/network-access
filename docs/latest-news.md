@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月14日 22:01:14（北京时间）**
+🕒 更新时间：**2025年08月14日 22:22:35（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | California Democrats prepare redistricting effort to counter Texas GOP - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPZG9RNWZjdDA1VXc0ZUluZTI2R2o5SGNNdk96enlQeGg2X3h4SDh1a1FDNERGZjJnZnZ6d05BUlU1VXE0dTJRYURMc0ttZWdoTWZ5NWVneGxxMWtlU2RtT0FhelZWUl9TVU16VXV1RHFmODJYdFBLa01IbU5yajgwWTlaVkxqWXJhQndzZ1k5aTjSAZYBQVVfeXFMT0tONUpJUTJtaDFkcnczNzlVc1BRU2xHWUkzNTNOSEo5YTVWbEMzaXlWTDNkUDM2QkpMRDhrdXlOcU1HYTc0WXJIM1FMRjVqRzFiN3R4QkJfNmltaGN5ZVVUZm5XWUZya3JjUXlxeEpUT3YtOFQ2czVYNm1ScGRRdkhlS0M3NlY0MDBZS2w3M0RJTHY4c013?oc=5) |
 | Man accused of faking death and fleeing U.S. convicted of rape - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNMGVabDZsSEhobG1HdWVWSm5teXNkbHdPcXU0UHRVNDRONkE5S3pxSG9BVkFRUFdseHV0RERnSVVnME56ZC1iNGlidTUzbWl0b3FPeHhRS1JKU0FSWW5hdE51a2F3bWNqY2lXZnk1UlZRZXdIdjBtcks1R2NWNVoxZ2VJRUhIZUpUMHI4eU13TER1M0d2eW1XQ2dTNTdxdDjSAVZBVV95cUxNZFhfRHNLRTNYWXZudG5FbEZUbGd5ZENEVmFtdTUyVGVrSHFzMWt3MnBZakZ4bnNvVF9fUm5OQXBUMzM2MW5EQTFRbnVoSXR1Ukpiekw4UQ?oc=5) |
 | The fight is on. How redistricting could unfold in 8 entangled states - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPcnV4TFotaWZ5a0J3MWhIWWJrRUZhYm1QRkZyMHdDSmpRQ0NoNFFoOE84YnZ6T0xNa0ozWm8xNmdkekNuNHJDb3RqNjI5dzZwaTZnVF9VQnllb0dkUHdXbUlnM2loMXZLRlpJMG1CRVRjYkN6MGNxRGFLMmZTSUxOS2JvZmszYTV1M1ZvRTYtUU9OMEdm?oc=5) |
+| FBI returns stolen document signed by conquistador to Mexico - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBBSGVMek1vWEVxVlFsSWZsX0N6N3BaUU9Dc18zUjFXblptYV9RSlA5TTE2SWhXbG9oMllCY09IcDFvZ3RFYk1nakpvaDJCNlRLa0dFWnJmVUpuZ9IBX0FVX3lxTE8wZkthdWJNWk9RclU0aTEtYmpxc3FITjByTUt5MGVaSjNvQzB4UGZWODdJX3k4UzdKTVpjRE5FUmFHcUR5VVFUb0VITkVZUk9DUmZmR1dyZl95bm43OE5V?oc=5) |
 | Man charged with felony for allegedly throwing sandwich at federal law enforcement officer in DC - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE02LW1lN1BoUVVJN0EyS2hqWnMwSmhIVklJWC0wRFM1TEFIUk5PSkh3eW1ldGJrLWF1czZNVGpPVGhqUEJobU0tdUxER3JKTEpRbEl2Q2pXaGRsT2c3clBUaURnX1JSZ1NMcmw3WEZuUG1PUkFZQTdkbDdn0gF_QVVfeXFMT3U0bDdqWHIwM0lVVmZ0TnM5bk9QRGJMaVNOSWdLY3BzaWYyS0QxMnF6Y3l2a2xRTjk4T3ItdE52b1pFVS1pRWt0VExzdmZQZ2RyUHJDc3p2TUVqVnNubjVPY25yeGh5ekFtZENkOXNlVzVuQ3BYbnFDNDBkbHpaWQ?oc=5) |
-| 'It would have been catastrophic': Juneau's temporary levee protects most homes from record flooding - KTOO | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxOTFA3ZEw1eU1xYWlmOEwwajJ2cVhBZHEtMDJDd2h0aUUwWXloNHhXemx6eFpsSUNOc0FEcWJIOUNocHQ4d0pkQmtLOWdDVTVOMWZUUllVX28tUWpPV2JTeFdVQklOMk9qRmdXNTFsQWtMZVZ1YkhQVEgxd0RkVTRhcURrVV9yUWxhcE1BSGk1cDlvZGMyTThRM29veVY1MFRXaF9fWXJvd2xpclRvNG5nM19zYURleWM5WnBFeElwWGlTZG5LekswUThJRVc1VkE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
