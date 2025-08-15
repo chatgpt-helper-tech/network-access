@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月15日 13:00:08（北京时间）**
+🕒 更新时间：**2025年08月15日 13:21:03（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Leaked chart reveals winners and losers in California’s Democratic gerrymander - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxNTV9CNjFmUUh3S1JBRG1DNmwzRVpNejFjNHpRSU9Pc2E0VFRLYndPd09KM3QtWlhyMDNUZkxGc1V0WXNoZ3FBaXI4UUJnMldtakR0MVNfNHhQcFB4ZENLeWI4OWR5SW9jZUJ3N09WVnRzUVd5VVNRYlBEYU9iZXpubGloU2UybzlwSkFwY3BKVWw4U0tGdHBuWGZqb2xxbFQ4eFFaV1hMdk1UWkxVaWpyazlaT0E1MGJrejQ5aXhKQlMyMXVHQnc?oc=5) |
 | Federal Raids Target D.C. Homeless Camps - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQbFJCSnZic2pOazYydFhMZS1oSHdzU0JYVXpLWjRKendYM2liTkV4YUwtOG5PcDMwcVhfQnZxNmJFNkc2MnZ6N2pHOHh5MmpwbW1KZzU0N0o4ZFRjd2ZUVnAzS1RvMGMwdC1GSjVMdlpaWjMwbDBlU0kyamE3NThFQg?oc=5) |
 | Judge strikes down Trump administration guidance against diversity programs at schools and colleges - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPZDJCTjFhd3JHenJBZ3pYcUxEZHFxRlFnMkJ0TFV2VlljRzJhZFRkdVdIVXVJRGVjTWFTemtxXy1uSWpKajJWVlA3ZGJCSDRoSm02cEhUZzNfNXJ2YnB5Mzd2WGN5UXdjQTA3dTVHdlJua2VZT1liZGE0UmwwbWZmb3JYbUExeGhzSHhVbkN4N29rVWpXLUtpMXdMMy1BSTFiRVU0Q1FxU0RNUTdPSFdkQU9BQQ?oc=5) |
-| Some parents miss drop-off in Los Angeles as immigration fears dampen excitement of first day of school - Yahoo News Singapore | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9VRUxGRkdnRnFHSTdpNTlHR3prbTRFdzEwVEZFVm5HX1Z1Wk9XMDIwWHF0V0FSS0drZ1VnM0hadTQxRk9Da3FKeFpya2NzVGRUQ0k0NUtyaElMRjRlU3ZEcXM5bDdjWGJoeHRWdFV0U0RMVzlK?oc=5) |
 | New details, charges emerge as Vance Boelter is indicted in state court for first-degree murder - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPaHBjLVlsU3pWX1dHRGNvN01wV3VDWWxrYVBQWWhud2oyZHlsaHJjY1ZFeFdNTER0dkx6Q2E0ME9jN3IzeHVFX3Bpby1BaVcwUGVQaWVEUUNJd1VSejRBaEZiM1BXRDBYazVmdDBmQ3R5TnhIbU4xYlFmWFNPTWhCLVNzV2RITGtSNks1QW1jbE5XQnIxNVkyb21TSU9Ud1NnWDBUanppdHI5elNZdk1JYlBjMEFVdjFadmRKUm5QbHN4S1VnNUcxejVZb0N3R3gzZnY0?oc=5) |
+| Bondi fires DOJ employee facing felony charge over throwing sandwich at federal agent - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOZDYzZkFvcnFvSUl6VTc2ZXNxSjA3R3RIZk16Nm1VcHFVM3plRlF3cURGSXBySW5JanRjUUlxZEFDMTRHWFRqNHNYbFdwWk9NZjZSQ2Fzb2R0c0p3Y2Rhc0w0WTdkZzlrSHV3eWktbDhtVWNvSDVadFVOVFgzbHppSVNxYWVUSXNsd3VXLUhTM1pNRjdpZE93NmZTSlhBMG1ZOVJDaThUbF9fSFNjR0JMd2N4LVRReVBBV1NMUjg0b3rSAcYBQVVfeXFMUDFGbmxISWw1aldkMFl0SGhiOTdQdDdQTlZfUzBSb09TbTB1cDU2NnEzN1M5NDBhZHBzaUxrX3Bpa1ZrczNXZ3ptd1MwUGctYXBPYVloR0twNEJzU3M3dHJLdjNqUGNlaWZmbHMweWpIczdzRzhtNGVhMThKRFI3NFJxYTNaUmR3YWFhZGVvZWdQYVg4U3d6OVE2czE1NzdDRGdNclA2cWZQWFFKem5LN3VfazVvNS1nWnUzd0ZXWDJRSkJkV2Z3?oc=5) |
 | Thousands Ask Harvard Not to ‘Give in’ and Pay Fine to Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE5NZzE5NjhjbElIVVZXUEVBajZNSmhKb2hDR0VydHJyTDJYeXE0c3RIdWdCTTZYcmlNbHZEUExGS19pOXJDMGxnTUt3WFhSaGNvYVNhakVacVNGallMTlFvNlFDQWctVWhOU2NUWTVPRDJXZXM?oc=5) |
 
 ---
