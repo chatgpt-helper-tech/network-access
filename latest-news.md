@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月16日 03:00:47（北京时间）**
+🕒 更新时间：**2025年08月16日 03:22:50（北京时间）**
 
 ---
 
@@ -9,7 +9,6 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | In maps: The war-ravaged Ukrainian territories at the heart of the summit | [阅读全文](https://www.bbc.com/news/articles/cgkrn433lk2o?at_medium=RSS&at_campaign=rss) |
-| What do Alaskans make of the geopolitical circus arriving? | [阅读全文](https://www.bbc.com/news/articles/c7541g6d191o?at_medium=RSS&at_campaign=rss) |
 | 'Putin is a master of persuasion' - BBC correspondents discuss summit strategy | [阅读全文](https://www.bbc.com/news/videos/c6205ezp6nlo?at_medium=RSS&at_campaign=rss) |
 | Sidelined Ukrainians look on with deep scepticism | [阅读全文](https://www.bbc.com/news/articles/cm21l237pkpo?at_medium=RSS&at_campaign=rss) |
 | How past meetings went - and what to expect this time | [阅读全文](https://www.bbc.com/news/articles/c86077zxdw2o?at_medium=RSS&at_campaign=rss) |
@@ -18,12 +17,13 @@
 | Epping hotel given temporary ban on taking new asylum seekers | [阅读全文](https://www.bbc.com/news/articles/cp8z537ngvno?at_medium=RSS&at_campaign=rss) |
 | Why did so many teens get into their first choice uni this year? | [阅读全文](https://www.bbc.com/news/articles/c62n9ygdqeno?at_medium=RSS&at_campaign=rss) |
 | Iceland offers £1 reward to customers for reporting shoplifters | [阅读全文](https://www.bbc.com/news/articles/c707rzen2zvo?at_medium=RSS&at_campaign=rss) |
+| Charity boss offers Jenrick 'olive branch' over BBC row | [阅读全文](https://www.bbc.com/news/articles/cwyex93wnd3o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump and Putin meet today in Anchorage. Here's what to know - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNQlFqOVJIb3gtYXVtZUIxNGdkZ0lMMUpwUEN5b3FNN0J3MHhoT0lpaEVsS3BrNlljNjZGeEY5LVN2TW5vLVJJMllUZ0JSVEkwMFloaGtpWmZNa2JYRkJjeUgyMkQ1dzJEN0hCRzdxZ0RXdlluQlNrQlREZHRNMTZtSUNRT1I?oc=5) |
+| B-2 stealth bombers flown into Alaska base ahead of Trump-Putin meeting: Officials - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPdTdGZkpwVE5jUmJweDVGNFc2bGZwN3R6QnFwYzdNSmZ4Z01yOHllS2NfOGMyeW8wYkpVMmRyenptTW5OdmVXWTR1NEs4Vk9oMHVKR01hamU1cUVHREQ2cVl3VVpIckIxYUlRd0pvcmNsbW5HRmpYQm1sOThONV9yaVRoV2xYNkhkSGc?oc=5) |
 | D.C. attorney general sues Trump administration over ‘hostile takeover’ of police - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOb3oySWphQkRsZ1RUWGwzMi1OeFVVaFpackZWcjlMS0N2VkwxN3pPMnRCXzhzUjg3T19rV1pNanlkZjdaVlBkMWt4ZHlIeVc3U1FpNVVxMVAxcDVCVW9BUmpLeUpDb25sTXVsc1Q2NHJJOEtmdXltbFZDWEx6azdfSmQwYXA?oc=5) |
 | Democrats introduce measure to terminate Trump's D.C. takeover - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPeG9IaE92MlZ1d29Jakt6UWVUVWVIeXM0Y1BHNmFyaFpfYzBZd1laWkg4LVFGejRvaG9uVjhZemR5ZDV0UXh4ZE5NMnoyVXd4S1R2YlFWMUJpNEJLOU43VzFyYUw1THB3cjdJcXc4dXFKQlNqZU9ta2kxZG5jSDBVbmVPaXBsZ3pO?oc=5) |
 | Hurricane Erin forms over Atlantic, the first of 2025 season. Maps show its path and forecast. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiZkFVX3lxTE5yN3RTRHRvZlNFVGNvOTBOcjBqU2c2THdBbkpwdzFuUDJiMmZwT3M2U2ZuMzN6LU13cHJhMDFPYjJCMnItZ1RjdFZLUFhha2xBcjF2WEhSRzlJU0UwY3ZRTktMZ2xyd9IBa0FVX3lxTFBVb2xDOVZURkZKQkE4d2llblF6QXFSaGFBaDQtb1VfWDBrSURoRzFyS0hMMzVoT2pTdDZwVXQ3b05Tc0xnNWpSUDZCdG1yMDRuNE5jTWhGMW1ieGpqbmVkRWdOVm40cGxRLXp3?oc=5) |
