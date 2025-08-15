@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月15日 10:42:59（北京时间）**
+🕒 更新时间：**2025年08月15日 11:00:34（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Bondi fires DOJ employee facing felony charge over throwing sandwich at federal agent - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOZDYzZkFvcnFvSUl6VTc2ZXNxSjA3R3RIZk16Nm1VcHFVM3plRlF3cURGSXBySW5JanRjUUlxZEFDMTRHWFRqNHNYbFdwWk9NZjZSQ2Fzb2R0c0p3Y2Rhc0w0WTdkZzlrSHV3eWktbDhtVWNvSDVadFVOVFgzbHppSVNxYWVUSXNsd3VXLUhTM1pNRjdpZE93NmZTSlhBMG1ZOVJDaThUbF9fSFNjR0JMd2N4LVRReVBBV1NMUjg0b3rSAcYBQVVfeXFMUDFGbmxISWw1aldkMFl0SGhiOTdQdDdQTlZfUzBSb09TbTB1cDU2NnEzN1M5NDBhZHBzaUxrX3Bpa1ZrczNXZ3ptd1MwUGctYXBPYVloR0twNEJzU3M3dHJLdjNqUGNlaWZmbHMweWpIczdzRzhtNGVhMThKRFI3NFJxYTNaUmR3YWFhZGVvZWdQYVg4U3d6OVE2czE1NzdDRGdNclA2cWZQWFFKem5LN3VfazVvNS1nWnUzd0ZXWDJRSkJkV2Z3?oc=5) |
 | In L.A., Fear of ICE Raids Created a Tense First Day of School - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOQTRQaXF5dkEyRmdBM1UwUmstSS00cU9QUzl3ZmtHUXZXamN1OG1LdnhjX3pSeTNqRGJyNHQyQ0xrR0t1UWJseGQ0b3JhOUw4SXVQTURqMXBLQmRSb01uVVl0Zm4zbU10NHZmV294Ql9vMzRFdWFFYjdyWXNBdHhFcQ?oc=5) |
 | Judge strikes down Trump administration guidance against diversity programs at schools and colleges - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPZDJCTjFhd3JHenJBZ3pYcUxEZHFxRlFnMkJ0TFV2VlljRzJhZFRkdVdIVXVJRGVjTWFTemtxXy1uSWpKajJWVlA3ZGJCSDRoSm02cEhUZzNfNXJ2YnB5Mzd2WGN5UXdjQTA3dTVHdlJua2VZT1liZGE0UmwwbWZmb3JYbUExeGhzSHhVbkN4N29rVWpXLUtpMXdMMy1BSTFiRVU0Q1FxU0RNUTdPSFdkQU9BQQ?oc=5) |
-| Minnesota Assassination Suspect Indicted on First-Degree Murder Charges - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9EcHAtSEFGZmlrYk52Q3BBMWwzU05aY1NlOWhxNXFHVkVoeW9FSnN0b0FZZ0lXSjI4MktsSGF1MDdzOVFpSVhiNFVkQm9rcURTRzYwOVRFbnc0ZlNvYnlKb2VuemxMV21uQ2NPaV9nR0h6ZkQ4MzlYcEllWjZnWlU?oc=5) |
-| Florida to use shuttered prison as 2nd immigration detention center after ‘Alligator Alcatraz’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxPN09rQVB1ak5jMGpIQURjZFluQm5WV3Rkd1lWSUUxeGhBNFV4RjlZb182RktVVE1wdU5LNzZXbHJQQkpJZGtHZVhrYVpjQzRWVFMwVTdRZ0FwSjN4MmstVlZNOWVVRW1YaVBiTVhFN2ZtWmphalltS09Nd0VCRW92Ml9xa2htbmJNRGRFTTdLQy01TkNmcnd2clVzWDhkanNfcF9Tb1c4QmEyMmthYWFZLWs2eW9XWjN6aGtNdjNvakV4bGpvWEU1VHUxeXRTbGR4bGFmdVozNTBJZw?oc=5) |
+| Man accused of killing Minnesota lawmaker faces new state charges - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNMHNaeUVhNWNmWWJSQllZeFliLUphX2RSM21zcFliaTZpU2JtdkFqRGhQdGczeG9odFFFUGhtd2p3bzFpQXJmYU41MUxlRE9iT09IWlYzdjlobkVkbEVJVG12MHZ6TWpkWmdGTVd3cUFqUW1SMC1vNThsbWpSYUtGaW9nVXM1ck5uVUt3VTRXakJKU0JmSzlJNTY5V0U0aDBLazlLMkJrcldXa3FCcEdNTdIBVkFVX3lxTE5fQUVZN1hfTW1PSm0wR016UjZ6WHM5REpvamRKMmt1SDg4dU4zQUNlRGxidWhTNVM5akREMXJsTUdNTmd2YmY3UjJxSnd4NXZEREJQNTJn?oc=5) |
+| Office of Public Affairs ｜ Seattle Woman Indicted for Murder of U.S. Border Patrol Agent in Vermont - Department of Justice (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOallDM01rVTdkVUMyWXYxak9fXzNtUVdjd0N3ZXFXZTVsV096YW9ueTlDbVZsVWpkU0M1VG1VTHNuWkZNYlBYMGEybzdFMm80MDQ3bHB4cUJ1ZUZhS2swdFBPMk9qUVhGcTZCbkJPZlZJSnRua3FPemQ2ZlhjWkdaM0RBN1JhX21vWmR3aUFpR1JVRWxOV2c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
