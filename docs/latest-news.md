@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 05:00:41（北京时间）**
+🕒 更新时间：**2025年08月17日 05:22:03（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Mayor LaToya Cantrell of New Orleans Is Indicted on Corruption Charges - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9QNDVmbk5NWFE4aWZ3ZmZfbVByQ0xjTWlMc0tXT0ZxcUN4OXhHbGFxWkEtYy1IXzl1ZXcwY09yOXRUc3NqM0JveG8tTVByM0FkcHRodG5VNnFnaDJRcGUxR21VMGdHeVI4VUJjSDJhd2dxSEFEOGRKYlcxSQ?oc=5) |
 | Texas Democrats who left the state over redistricting will take part in national demonstration - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQNUFyWVhqUDNscWtTenk3V2xtQ2lnRW9JZkNSeHA5UHlnQzBldFRwaW1hVTh6OXRqcmlUY1Ffc24teU5MVXZIQ2R1NkxDU3B5SFFiakRUUGN3d0VMd3pVSUl1ZnQyUEhLcEZhMEtHb2R6c2FxMTZJd3E1R1M2RFBjZVhuS3Y0Z0lxdk5NOUJR?oc=5) |
 | Man rescued by helicopter after 2 days trapped behind California waterfall - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOUXFhT2EycXlsdlRjRnViaEtCV2NNenY2RTJiMGRFQkpJeUp5SEVmeXlndXpKVUk4VzFmNkdMVXFlYy03Z203bHpyWjEwUWEtMnkyX3V5X0dqR0tCQzZEWkhxU2VYWVAtNlZyR3V4TkhlTjdGeTRpVjRxQm5yUGhUU3BlMTliRVFlcWxuajctM3pIUzct0gGaAUFVX3lxTFBRY1pTdmlULW9SS2ljZm1MTTR2REdXMm9RNWxBOVdqWTJRbFNwVGhnY3NET2M0ck9BMy1JelF5cVBDTE5JQTlHdlZreTFFMWNXNGw3TnFhdmxvZHdfUEM3N3pqREhWXzhfaWZBelJobkZnR2RkTERYd2ZlNlQzLWg4UzlieDRnSjgwdjh4SUs5MmFqN203Zmo2ZEE?oc=5) |
-| Thieves steal $2m in jewelry in under two minutes at Seattle store - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNYzdVNHJVQjlGRi1USEpBd3R2R2NQMHZOYzY0aUVlakFtOEx1N3BBdG0yeEFwTi1KY25ibmJ3ekU4WkJoeUVKTVNLUHFWejh6UDhqcHNCYmRzQW9iOGdmNVE3LW9rNTJSNjlUT01JNE0yMnQ0Q19Ka3JjelA3bjduN3F4Zw?oc=5) |
 | Donald Trump reportedly delivered letter from first lady to Vladimir Putin - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPNlFDWThqbWF0a2JDTW9Ham50azVuc1FWbzJEMzFGNjdwa2NISkJ2NU1fRHFFUVd0cmZadHBDVnpjWVdpTFhyNk5xbUJqTk15Tk81aHE4VDZWQ2lfMGNRZXE0N3Rnbnk3cmxuRWZucUZoQWRwWlMzT19SWTRPd0ZON0pEZlRiMEJGY2dXRF9MQnNYUmg3?oc=5) |
+| Thieves steal $2 million in jewelry from Seattle store in just 90 seconds - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNb01VRG40YTRzalJqck80RlVrS0JsN1M0Z2RGSlNyT3k3RlVXSElKSTlfdktzbUdBUmluWXU1SHBKSzJmYW8teC0zQ1FHaTNpaGVyTWptcVJCdkI1WFVrMzdDVkJ2ektNem5ObWhONHJrMjAxQ3A1UjNIS2dVcU1EckJpdXhncFkwLWFJ0gGQAUFVX3lxTE5ZZF81TW9sblkwdXp4X2kxR19DempMZC1uSU9TVXNBWWtVZ21QNkFRVkx5eTVQTFlIVnR4NU1KOE1jNGd6QmJ2eUNNMUFQbjFKMElCQlFlLVFqMnBUa2t0Wmc4dE1fanlJbnNKeUo0SmVTcUNkUXJpa2JRX2tHLTNla3R5OVVPbmR2ZkFvd1BMMA?oc=5) |
 | Israel prepares to move Palestinians to southern Gaza as Israelis urge mass protest over war - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPaUpLUWhvb2hDNGl4RWc3RDA3XzFaMXlXekY3WUdlMGFfVTRZSGNwVmpVblVNRW5nQmhVWnFBYjQ3d29ScjNfdGd2aWlJQ19BUVZ6MDhCamZrTV92aGIzMDh1WHNJTzNOak0wU0pUQVNsRy1tMnBGZG9fd0d3NkZkdWNXSERCbkNGc2JLT2VxT19oR282NzFIVmF3?oc=5) |
 
 ---
