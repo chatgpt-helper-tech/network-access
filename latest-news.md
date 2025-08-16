@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 03:00:35（北京时间）**
+🕒 更新时间：**2025年08月17日 03:21:38（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Russia sees victory in summit as Trump adopts Putin approach to ending war - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOMUM5Z1ZFSUdBUjVycWl5RjdMRmVaZU83eFkxUGN4MVhxMHo4UjdaVmpaYWFaRDREYVoxTmhkeFZNTFRtb0ZDNUVodmdUQzlzZDRMYVlWZmVpYVhsOFhTeXhfQml3QTMxUG85V0pXcU1aSG5lT0tGTGFEdmlRbFhTdEpUbkNoSG1FNUVrNFdPSQ?oc=5) |
 | Erin strengthens to a Category 5 hurricane, NHC says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPd1dFWjU1dmprNUxUMVJyQ0o2Z3dseFdma20tWVBYS1JKUUFQZHREcHRjTlRGMlJ4NE5UTEl3UXJsZlZNbDl4aTQwbXhfejVMdC1uYlRuYW4xRWgxZ01PM1c0azVPWW5ETnpjZU5oMlBQRXp2QmZZREFkZEdBY0JuZ1lnSnZSWm85ZEZ5SnYzWXNqMUFvU1NaOXh1b0NxOTdFMkpuelNB?oc=5) |
-| West Virginia governor to deploy National Guard troops to US capital - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxObTI2MHBhVTFWWXRKQ3pTV3M2NkpSUWYwcVhfYThIa0U5SWJEOFVTV2tJWjRrTWFyYmNPaGtIckU5UHZmZXdrVU5zT0VIZFNVS2N3OHRORE5VajdmZlpHUjQ1Ul8tM3hROThJWHJtUlAtUmhSeEQwclAzb2t6VVcxeWlXQ1RWdW01Z3BKQndtSFhHYS13QThFNGtHVXVNVklnZUZWWGlTVjVZMk0?oc=5) |
-| ‘Stab in the back’: Kyiv reels as Trump embraces Putin’s terms - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBMa0VMc2dBR3cxMkRoVzBzOXhsZjFCVDV3b0xmS010a0JwZjAtZUxhbGRaNi1hSTZ2TEZCSnFZMjU1RlZKVTdoSDM3NVM3ZWJ4QkRWYVhJZTRDWm9ZRVZQd0MtaWk1TjRFLU91Qk1lSGM?oc=5) |
+| West Virginia deploys hundreds of National Guard troops to Washington - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1Sb3V6Tl9zbFRZOHE4N0lsbGhlY25VTUg3N2xHaXd1ZF9xc3pNQ3hxQ2tJT1E2WkJzRksxY19JX29TME1JN1MyWEd4Zi1tdFVKSXM4YzljdXk3TDdJTXptWk56UDk0VHNySmdOYnBEbkdDY3JhOXZhSVFrNWZTZw?oc=5) |
+| Putin made maximalist claims to Ukrainian territory in Trump summit: Sources - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQTlZ5WER2cFBOMmFLdk9mSXg0dnd6MlB5ZG5UcjIxMXp4UENuMHd4bUhDZ2JHTHFRY29uYUtZeXg5T2lYckt5ajdOZHJIM3ZtcVNEQS1HYi1DdUpBQXpFR2NjUXBUdXFzRG1HWUY5UzlWc1c0OHgxd3dkX1JvM3J0YUd3?oc=5) |
 | New Orleans mayor and bodyguard lover charged with fraud and corruption - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE51OTRTLWlfY29xN0tvTjltV0Ytdy01enFnTk1BTDhNUVBnbHF3VmFhUkxQSTNVeEJRRF9FdkhuZFdmZ1V2VllhMzFRSjJhYVg4WG9OX0ZvaEgzZ9IBX0FVX3lxTE5pZG1TTVJtaUJFTW8ydzZMVlhPM3NBZm9JMmc4a2dJZGZYR3FETTFGa0lxZXJxQm02MkVLT003TU1UeVZWQTFjZDVHMGZJNWROYTNsbGs5LUtyYUN2S3Bj?oc=5) |
 | Redistricting wars spark mad dash of unlikely 2026 congressional candidates - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQZWxRcWozWGM4QXFLbUFSaC10cE1uZmtZSzQtVEl6U3ZqSmdUY3RIUkxqdy1qZU5zWXdrX3FPMXVoendES2ZrQVNCbTRzZnBBa2ZSVnlNUE5iZVkwTThjOHFraXk1UHd4WjNRd2tfN1hEUndxNnZLUmE0N1pRQmdadi1BcGljUnNTUlRQR0gzRGhxUQ?oc=5) |
 | After Meeting Putin, Trump Reverts to Land Swaps for Peace in Ukraine - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOUThSMWhjY0tCZUpnMXI2c0Z3N21UZHduT1l0Q25KVlR4M01rYktPazZYSWx0cGZpZkhQZGJ0QVZDWVJWNVphMDVHZ1FsdXNfaFduZVpUNWpUWDNSY0dNQklOaDZ5d3g1WXhIUmRacEJOSENkcHl3QzRXeERqb3dBTHR1NkNWd3c0TGc?oc=5) |
