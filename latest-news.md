@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月16日 13:01:47（北京时间）**
+🕒 更新时间：**2025年08月16日 13:22:04（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Erin becomes 2025's first major hurricane as storm intensifies - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFAwT1JJWGEtcDZvcElXSEtjS0xDY3VDY29udE93TTRONUpIN0FRT1hDOC1wR0E3SkJiN1ZDMzRNamdEeWw4SlJlLVBYUzk3SnozSDBGa1QtRkozUHFzanFHbTl0ODRlaW0zRnNVZjFSdmVDRDlJ?oc=5) |
 | Democrats introduce measure to terminate Trump's D.C. takeover - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPeG9IaE92MlZ1d29Jakt6UWVUVWVIeXM0Y1BHNmFyaFpfYzBZd1laWkg4LVFGejRvaG9uVjhZemR5ZDV0UXh4ZE5NMnoyVXd4S1R2YlFWMUJpNEJLOU43VzFyYUw1THB3cjdJcXc4dXFKQlNqZU9ta2kxZG5jSDBVbmVPaXBsZ3pO?oc=5) |
 | 'Devil in the Ozarks' planned prison escape for months, cited lax security in kitchen, report says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOVEhxNjM4S1d6Q3hDaHdBYXRZUlctaWlzWHBCVjJJRzVKNi05SmlpOWtocnl1em1FOGFKbW1tclZla0xSWGh6NjczYkpOY1ZFTndtYkNWNnpGT0RKN3VBUUl3VVVlaFR5SC1EOVNZYjkxSFpfc2pXUlhiY3lrb0R2a3VKUUIwYVVyeDRqY0I0RnZtOThYOFI1cENHOA?oc=5) |
-| Kennedy dismisses 2028 speculation amid attacks from Loomer - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE93Rkc1QUpQVkFiYnpQN2xWLWQzWTFWbFVVaDRuaUVORWpwcVpuREJEZWJEclNYeldLampoVnMwZ3JvMC05eC0yOE02SE1zbVA2WWVvc1FNTnE5a3NrSnQ1eDNJSURiQ1hSbzJ4WWNfNkswaGtMdW1aVTBR?oc=5) |
-| Governor Abbott Announces Special Session #2 - Office of the Texas Governor (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPMm9zNlVfOGZaRndKbnhTUHVqUUdwRml0cHh3ZXFXSnY0U2FGTEVHMDhSR25CTkYtTFMzbWl1Z1ZmdTRmWEh0RmdFOWRmR1R3TEVrU0xCVklmRXRXQUYzMVJjUTZrWF9ER0hTUTlxN3luUUFsQmV0aGtVQWNGN3RORw?oc=5) |
+| Texas Gov. Greg Abbott immediately calls second special session for redistricting - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxObE5KZXFWV1pxVkhya0l1UEt5akN1aTZpNWlqTkpRaHVzV25sWWJJQTFtZ0ZMX0VPYW05NTFqQlJpcktTd2FVX1JKWG56MmtjeDBJTE1vUHVsdFB5TDNyN01UWVIwNEFjejIzYjdYU01Rby1mTWM5UmlCTUFGV3Nkdm5DOU9MR0RYZmhTalRWN05kaWhRQkEwbUQ3emxXWW1C?oc=5) |
+| Texas released two years of A-F ratings for schools and districts. See how yours did. - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPMVhQTlJwd2h3YlNQak56WC16dFIzSE5OUWtYejNZdTJhc3RlVkxFTUZWcmZqNy1qa1BLMkFncEsxV3I4blM0clFKQV9oZlBLVjBBT0VJQlZfU3pSdnkxMzlTUVFKMXo2UGQ1WUdrd2NpZXJWdTAxWW90bExod2tkcHBrWFZyeG5haWlnTXRpM2xybVVxQ2dicWJWQ2E?oc=5) |
 | Israel in talks to resettle Gaza Palestinians in South Sudan, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQZUNVVi1sd1I2YjZVVnMyUGYxTEJKendXWGIwRG9aRmhLZ3h5aWs3SnU5eEowUE5xUVk2ajVHUWZpOWJzTGZQeTF2UERHYUtNc19mUlcyOGM2VXRlQVJJN001Y1gtVll3VU9xRHJ2bkZQc2FtUU1SRU9hVWU2Y2w3MnJuSVRRSmFWVk0xaDVsaWNpQWdjVTg4TEEyX0VCVl9OVmg5cFpWRDhGNlgxdVpobE9OS0stM1ZL?oc=5) |
 
 ---
