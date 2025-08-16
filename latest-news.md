@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 04:01:58（北京时间）**
+🕒 更新时间：**2025年08月17日 04:22:30（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Russia sees victory as Trump adopts Putin’s approach to ending Ukraine war - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOMUM5Z1ZFSUdBUjVycWl5RjdMRmVaZU83eFkxUGN4MVhxMHo4UjdaVmpaYWFaRDREYVoxTmhkeFZNTFRtb0ZDNUVodmdUQzlzZDRMYVlWZmVpYVhsOFhTeXhfQml3QTMxUG85V0pXcU1aSG5lT0tGTGFEdmlRbFhTdEpUbkNoSG1FNUVrNFdPSQ?oc=5) |
+| Putin’s wins leave Trump with hard choices - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOdnZrdDZUX3g5S3JuOUF3dHlub0RIUHZEWDNYb1dsZVZSM25Wa2V3WWZjcjdZYTduODB3MjE4U0t6bWRMc09BNXpxUXRpYXdiMEFIZm9yTWpGdXFJWmp4VTJyMHV6bjRlTnpvbC1XX3QyZUZ1a21ERGhqWHUyXzBIQ1owdGrSAYoBQVVfeXFMTnN4RzN0cThNRHB5WHl1UnJ2c1c1OXlCVzdPNnFyWUpYeGhHd3lxS0J6ZDViVzVnTzZiejF5dkphQkphQjU2NEo4UlBsR1RoUzd3RHlaZ1FIYmZnT0NJQUN0RGlSX1paQmdZOGhxcEIwZks1WlR5dFZNSU5lTi10a1NuelhudUh0Y0xn?oc=5) |
 | Hurricane Erin strengthens to Category 5 - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5KSHlwaFhpSmdvS1lpdnpEdFR0ZWQ0MzdpRTZSYU8yYnpqU25zY0NkWVZ6eGNPc0NLam43U1VJTWZvVmlfclh2S0taUUlSa0VfZ0c4SEhLUTV0V3dPVVZLQ2lEaGU1NU56V1VrbGFCaENfdw?oc=5) |
 | West Virginia governor to deploy National Guard troops to US capital - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxObTI2MHBhVTFWWXRKQ3pTV3M2NkpSUWYwcVhfYThIa0U5SWJEOFVTV2tJWjRrTWFyYmNPaGtIckU5UHZmZXdrVU5zT0VIZFNVS2N3OHRORE5VajdmZlpHUjQ1Ul8tM3hROThJWHJtUlAtUmhSeEQwclAzb2t6VVcxeWlXQ1RWdW01Z3BKQndtSFhHYS13QThFNGtHVXVNVklnZUZWWGlTVjVZMk0?oc=5) |
 | Trump Sets Up Zelenskiy Meeting as Putin Renews Land Demands - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNZXZkX055cGlSQ2EzTVI2YnJwcy1SZVYwd1dNYXF5WDZTMmk1WGhsVnhpb0VoUDMtV3pmdFpoV1FYRkpIZExCNEVCcnhINS01b1ZoVE1sSmtsYzZaZC0wZ0xuZ0xsbzBLaXV6bk81Sk5GWUJoWHRnNENrMlhSa1R1NHZhQjA5bTFuQmU3OXN0dUZINTBOek1MQ2hNMkFiY21oSFppTzFQYXJRemQ0?oc=5) |
