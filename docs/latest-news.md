@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 06:01:27（北京时间）**
+🕒 更新时间：**2025年08月17日 06:21:14（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump: Putin summit productive but "we didn't get there" on Ukraine deal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFB0cXYwRk5TMmY5VEVCdnhRNTBwYlRJRzQ5NDh3NEF4U19uTm5iSFlfUHRNUlozb0VXb3l2bXFBa0RveVcway1LSTVjQUNqZGNMak5xTk1jckFQQlMtTjdpd2hqcW9JM2k2aEEwUHJKRG5Gejhoa0c4?oc=5) |
-| Trump drops ceasefire demand for Ukraine war after summit with Putin - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNR2pjR0Q2QTNNMGNFX056N2VZYlBGTXZSNFNiSGo5THQtWkpsVThwMXpienhKRVVpVkZORW5YeXRzcnIzdFd3SWFBa3RRUWVCal9hVkszSTgzTzFlM2g2bHdaeDFwYjdPb3REcXg5TVU1bW9vT1dNd3VRU1lWcEVZamhjcnFRZ1I1UFpJZTNqbjFfUTA?oc=5) |
-| Hurricane Erin becomes ‘catastrophic’ Category 5 hurricane, tracking north of Bahamas - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQVGhob0dGUVNTQ3dvdWtBTTFJanROdUlNdU1JOXdaa3hXSV9uT1h1SGpBS3dTYVNxbWV2eVNPcGhEUy1sdEY3M0dGZXFDVWh6UWx3U2NNbk1FWHFpOFNNc1U2dXRXYzVXRDZxdWFNalhNd01hdXIwN0JHMDcybWExR0hCWE4tNExYeVBpMWlyWWttZFd3aWdzUHFR?oc=5) |
+| Russia sees victory as Trump adopts Putin’s approach to ending Ukraine war - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOMUM5Z1ZFSUdBUjVycWl5RjdMRmVaZU83eFkxUGN4MVhxMHo4UjdaVmpaYWFaRDREYVoxTmhkeFZNTFRtb0ZDNUVodmdUQzlzZDRMYVlWZmVpYVhsOFhTeXhfQml3QTMxUG85V0pXcU1aSG5lT0tGTGFEdmlRbFhTdEpUbkNoSG1FNUVrNFdPSQ?oc=5) |
+| Hurricane Erin strengthens to Category 5 - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5KSHlwaFhpSmdvS1lpdnpEdFR0ZWQ0MzdpRTZSYU8yYnpqU25zY0NkWVZ6eGNPc0NLam43U1VJTWZvVmlfclh2S0taUUlSa0VfZ0c4SEhLUTV0V3dPVVZLQ2lEaGU1NU56V1VrbGFCaENfdw?oc=5) |
 | Exclusive ｜ More National Guard Soldiers Head to D.C. and Prepare to Carry Weapons - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNX2E1aXRfeTE2LU9lXzVkcU9xa05JX2UyWE5jVnJQUTBmcnJOS0JtdjVuWW9VVDFLUUVPOUxGa0RDcGplZXdQaWZhZjN0YXNvVm5LaVpqY2V1UWVwMTI2N0x4NW45ZF83SGFiZWhFcTlaZ0lwZVNkall6OW1SRlFXbGFkWjdpc2xSSDQ4WFdoMDhxcDJTRUo2MkQ4ZFBLYkZnMlFBNm14NE1XeTJJZHFqbTczcU43V3BvT0V4OHNqYw?oc=5) |
-| ‘Stab in the back’: Kyiv reels as Trump embraces Putin’s terms - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBMa0VMc2dBR3cxMkRoVzBzOXhsZjFCVDV3b0xmS010a0JwZjAtZUxhbGRaNi1hSTZ2TEZCSnFZMjU1RlZKVTdoSDM3NVM3ZWJ4QkRWYVhJZTRDWm9ZRVZQd0MtaWk1TjRFLU91Qk1lSGM?oc=5) |
-| Mayor LaToya Cantrell of New Orleans Is Indicted on Corruption Charges - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9QNDVmbk5NWFE4aWZ3ZmZfbVByQ0xjTWlMc0tXT0ZxcUN4OXhHbGFxWkEtYy1IXzl1ZXcwY09yOXRUc3NqM0JveG8tTVByM0FkcHRodG5VNnFnaDJRcGUxR21VMGdHeVI4VUJjSDJhd2dxSEFEOGRKYlcxSQ?oc=5) |
+| Redistricting wars spark mad dash of unlikely 2026 congressional candidates - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQZWxRcWozWGM4QXFLbUFSaC10cE1uZmtZSzQtVEl6U3ZqSmdUY3RIUkxqdy1qZU5zWXdrX3FPMXVoendES2ZrQVNCbTRzZnBBa2ZSVnlNUE5iZVkwTThjOHFraXk1UHd4WjNRd2tfN1hEUndxNnZLUmE0N1pRQmdadi1BcGljUnNTUlRQR0gzRGhxUQ?oc=5) |
+| Israel prepares to move Palestinians to southern Gaza as Israelis urge mass protest over war - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPaUpLUWhvb2hDNGl4RWc3RDA3XzFaMXlXekY3WUdlMGFfVTRZSGNwVmpVblVNRW5nQmhVWnFBYjQ3d29ScjNfdGd2aWlJQ19BUVZ6MDhCamZrTV92aGIzMDh1WHNJTzNOak0wU0pUQVNsRy1tMnBGZG9fd0d3NkZkdWNXSERCbkNGc2JLT2VxT19oR282NzFIVmF3?oc=5) |
+| Billionaire Real Estate Developer Threatens To Quit Building in Wealthy California Enclave as Zoning War Erupts - Realtor.com | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPeE1pX3UwOEhKRF96R21KWklFMm1saXRzVEhOQ0pEY3B3SkVMS1pBZkpYV2pFLUNlZmQyWWtqRUt6OHBBejBMZFZRQlNyaUFvV0xlSndsZHFyRGtYRkxrUW1PZHh4b2JZOUVKMk9ZM0RlYW5lVXljanpyTTcxZDdIWlRDMWxPVEtJNGM4?oc=5) |
+| Trump drops ceasefire demand for Ukraine war, tells allies Putin wants land - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNR2pjR0Q2QTNNMGNFX056N2VZYlBGTXZSNFNiSGo5THQtWkpsVThwMXpienhKRVVpVkZORW5YeXRzcnIzdFd3SWFBa3RRUWVCal9hVkszSTgzTzFlM2g2bHdaeDFwYjdPb3REcXg5TVU1bW9vT1dNd3VRU1lWcEVZamhjcnFRZ1I1UFpJZTNqbjFfUTA?oc=5) |
+| New Orleans mayor and bodyguard lover charged with fraud and corruption - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE51OTRTLWlfY29xN0tvTjltV0Ytdy01enFnTk1BTDhNUVBnbHF3VmFhUkxQSTNVeEJRRF9FdkhuZFdmZ1V2VllhMzFRSjJhYVg4WG9OX0ZvaEgzZ9IBX0FVX3lxTE5pZG1TTVJtaUJFTW8ydzZMVlhPM3NBZm9JMmc4a2dJZGZYR3FETTFGa0lxZXJxQm02MkVLT003TU1UeVZWQTFjZDVHMGZJNWROYTNsbGs5LUtyYUN2S3Bj?oc=5) |
 | State Department halts 'medical-humanitarian' visas for people from Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQNFhiNFB2SkxNUmNBTDhDM2lKZEJuVFpfSi1JQUx3cHI4X0phbF9GckU1RllrQzN2YkNLRHJGclZtZVcxb3ZOYWVhblViMUZuNzg0OVlOZ3c4TGVWRFdwVWdIUFozdTRPSVF3RU5lTXlZSG9lX3NCTW01Ukh0dlNyM3BzZks?oc=5) |
-| Man rescued by helicopter after 2 days trapped behind California waterfall - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOUXFhT2EycXlsdlRjRnViaEtCV2NNenY2RTJiMGRFQkpJeUp5SEVmeXlndXpKVUk4VzFmNkdMVXFlYy03Z203bHpyWjEwUWEtMnkyX3V5X0dqR0tCQzZEWkhxU2VYWVAtNlZyR3V4TkhlTjdGeTRpVjRxQm5yUGhUU3BlMTliRVFlcWxuajctM3pIUzct0gGaAUFVX3lxTFBRY1pTdmlULW9SS2ljZm1MTTR2REdXMm9RNWxBOVdqWTJRbFNwVGhnY3NET2M0ck9BMy1JelF5cVBDTE5JQTlHdlZreTFFMWNXNGw3TnFhdmxvZHdfUEM3N3pqREhWXzhfaWZBelJobkZnR2RkTERYd2ZlNlQzLWg4UzlieDRnSjgwdjh4SUs5MmFqN203Zmo2ZEE?oc=5) |
 | Donald Trump reportedly delivered letter from first lady to Vladimir Putin - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPNlFDWThqbWF0a2JDTW9Ham50azVuc1FWbzJEMzFGNjdwa2NISkJ2NU1fRHFFUVd0cmZadHBDVnpjWVdpTFhyNk5xbUJqTk15Tk81aHE4VDZWQ2lfMGNRZXE0N3Rnbnk3cmxuRWZucUZoQWRwWlMzT19SWTRPd0ZON0pEZlRiMEJGY2dXRF9MQnNYUmg3?oc=5) |
-| Texas Democrats who left the state over redistricting will take part in national demonstration - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQNUFyWVhqUDNscWtTenk3V2xtQ2lnRW9JZkNSeHA5UHlnQzBldFRwaW1hVTh6OXRqcmlUY1Ffc24teU5MVXZIQ2R1NkxDU3B5SFFiakRUUGN3d0VMd3pVSUl1ZnQyUEhLcEZhMEtHb2R6c2FxMTZJd3E1R1M2RFBjZVhuS3Y0Z0lxdk5NOUJR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
