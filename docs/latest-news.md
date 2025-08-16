@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 01:23:02（北京时间）**
+🕒 更新时间：**2025年08月17日 01:43:39（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | World leaders react to Trump-Putin summit reaching no deal on Ukraine - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNT1dWZ2xMUzNZeEtSYlIyT1NXWkE5X3VyX1NUd3ZkbFBYVGtFZjZSbVRfYmdMdkZxVl9VUkd4dmVGd1U4SFVLaTZfdG9qMUltX3RHWlZuU0gyQlZ0ZnZRaTJEVVB0ODk1bElOblFpVGJaUEpDTzViN19MUkk4MVh5R3ZtS3VEU2ZoVU5vZHdva3YxZGZzSms2MmFhRFFncjFmSFgyeWxyWTF4ZHp4QjNoTWVR?oc=5) |
-| Hurricane Erin strengthens to Category 4 and could reach Category 5: Advisory - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5KSHlwaFhpSmdvS1lpdnpEdFR0ZWQ0MzdpRTZSYU8yYnpqU25zY0NkWVZ6eGNPc0NLam43U1VJTWZvVmlfclh2S0taUUlSa0VfZ0c4SEhLUTV0V3dPVVZLQ2lEaGU1NU56V1VrbGFCaENfdw?oc=5) |
+| Hurricane Erin strengthens to Category 5 - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5KSHlwaFhpSmdvS1lpdnpEdFR0ZWQ0MzdpRTZSYU8yYnpqU25zY0NkWVZ6eGNPc0NLam43U1VJTWZvVmlfclh2S0taUUlSa0VfZ0c4SEhLUTV0V3dPVVZLQ2lEaGU1NU56V1VrbGFCaENfdw?oc=5) |
 | Trump drops ceasefire demand for Ukraine war after summit with Putin - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNR2pjR0Q2QTNNMGNFX056N2VZYlBGTXZSNFNiSGo5THQtWkpsVThwMXpienhKRVVpVkZORW5YeXRzcnIzdFd3SWFBa3RRUWVCal9hVkszSTgzTzFlM2g2bHdaeDFwYjdPb3REcXg5TVU1bW9vT1dNd3VRU1lWcEVZamhjcnFRZ1I1UFpJZTNqbjFfUTA?oc=5) |
 | Trump Administration Backs Off New Attempt to Widen Control of D.C. Police - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPN2ZSMHYtYzhCN1lJLXFIdmlsTnRLc05wYmcwQTNHVm9aWXVOQjVhREVsRm9kdXBoOXJjQkRlNjlJZjJxTU1OcVBsQ0s2S1BQejNMcUZ2ZXJjRW9ocTdFVjI4Q3hhUGU3YWJCUTNGcFU1NUVPSktyeGlOMThVdDhRTWZ6cw?oc=5) |
 | Proposed congressional maps in California could help Democrats flip 5 seats - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOczhNTDlRYkRxd1d5aWEyTnZFLWFEU0FWVm1xV0hiODQxS2FIa1Btb3RiX0l2Y2JodF9oa3VuSm1wRDZCeThoWGJmQjVWbnBuczVzeU5HLXRMclI4d3ZVM0d6dkU4cE5SUU9rVkRXamt0UlBQcVJBQnhrVTU2cC1ZWkdrSEx5bjdhTlBkOG05SzVRM295bDY3WVM0U0p3eU5RcVlqNzJGbF9JaTRtN1FDQUVn0gG3AUFVX3lxTE93QWZURDJsSWZoMkxLRFZ2YThyNV9fMUVEMVkxUjZrMURSVWR1UXlZNUpKWGVUa2ZsYktneV9DZ040TVFqNUdJczFEbktWdWNyZXhHRmJ1aFhCQm5tbVpkSFQ0NzRQWWtRZ3g0UVZWR2dhNUlndVBnMTNtYjdNV0RlZTF2NnI3alhLMlF6LVRnTlVXcTJyaFdzOGMyckJyb0NWWVBkbDY4a29LX1BIZk9WV2U3dDl2QQ?oc=5) |
