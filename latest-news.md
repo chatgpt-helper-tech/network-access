@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月16日 23:01:37（北京时间）**
+🕒 更新时间：**2025年08月16日 23:22:08（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | 'The world is behaving irrationally' - Putin's warm welcome gets cold reaction in Ukraine | [阅读全文](https://www.bbc.com/news/articles/ckg4mj4011lo?at_medium=RSS&at_campaign=rss) |
 | Afghans resettled in UK hit by new data breach | [阅读全文](https://www.bbc.com/news/articles/ce87nyr3evro?at_medium=RSS&at_campaign=rss) |
 | Bring sick and injured children to UK from Gaza immediately, MPs say | [阅读全文](https://www.bbc.com/news/articles/c4gmk2yj5e9o?at_medium=RSS&at_campaign=rss) |
+| Topshop is launching a comeback - but can it work? | [阅读全文](https://www.bbc.com/news/articles/ckgl4w1zkypo?at_medium=RSS&at_campaign=rss) |
 | Man arrested after Bournemouth striker Semenyo reports racist abuse | [阅读全文](https://www.bbc.com/news/articles/cm218l7jm5xo?at_medium=RSS&at_campaign=rss) |
 | William and Kate set to move to new Windsor home | [阅读全文](https://www.bbc.com/news/articles/cpwyk1v0p8yo?at_medium=RSS&at_campaign=rss) |
 | Five key takeaways after the Alaska summit | [阅读全文](https://www.bbc.com/news/articles/c4gj9er0x0zo?at_medium=RSS&at_campaign=rss) |
+| Trump's ceasefire pivot will have caused dismay in Kyiv and Europe | [阅读全文](https://www.bbc.com/news/articles/clyvd2jpy1no?at_medium=RSS&at_campaign=rss) |
 | End of Ukraine war 'closer than ever' thanks to Trump, says Starmer | [阅读全文](https://www.bbc.com/news/articles/c78mve9209ro?at_medium=RSS&at_campaign=rss) |
 | No ceasefire, no deal: What summit means for Trump, Putin and Ukraine | [阅读全文](https://www.bbc.com/news/articles/clyvd3gkg1po?at_medium=RSS&at_campaign=rss) |
-| Topshop is launching a comeback - but can it work? | [阅读全文](https://www.bbc.com/news/articles/ckgl4w1zkypo?at_medium=RSS&at_campaign=rss) |
-| Are mangoes good for diabetes? Indian studies challenge conventional wisdom | [阅读全文](https://www.bbc.com/news/articles/crr2jpq2yzro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | New Orleans mayor indicted over allegations of trying to hide relationship with bodyguard - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPV3dXdTVjWFV1UndyNXJ5S2tRRG81cGxDUTJUd05BaUlWa191ZlJGNjhUSk9OWjlicFpfdExLRjJwd3dfeWhGQmNFOHZhV0M5aXJmU0VBcjNVVzR6TXJrMnZTaU5nWTRQYlVqT3lJNUU5WnZqUFE2bFFjMWdFS1hJMkVRRFgxSlhLaE9ZZjZ4V0tNUDVXak1INm0tUFh0SFI1bEtWZ3lheXZZdUZjSENabHR30gG3AUFVX3lxTFBTOWF1TUFkcmNUQ3VSdFdqaWRuOFJnaTFGUWlKbDlvX2g3dHkwTk1yaFZUYnFGeWVMYkdodVFIWWRSWjZodHVaRHFYaHhBdDFzNWVvVUhVUW1JZWxvTDY4VWRlVlE1X1hsaHFSTzhYLVR5SnlxMkhlZW1YUnZCR2tUZzg4ZkZRbjQ4WU5TYkNIUWVuMGl1S1ZDekhncnBWZVZlTlFYaXZmUlowaXlFTUxSN1BUQjFYdw?oc=5) |
 | Where D.C. Crime Is Bad, Residents Question Trump’s Motives for Federal Takeover - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE91VW5uZElDUFB5ay1FUTlMSzBUMzBoQWh6Sm9YaFJUZmFjM2RnN1hTNTdzdDVvNV9aSFdNZ1hVdllVUG43b04zdURUTlpUWjdPQXNaNHNickdfNmJEbGUxc1dmX3ZISFhkS3A0eU0wb1JJOGRBSGRlWURFMXNaNnc?oc=5) |
 | Judge denies Trump administration request to end a policy protecting immigrant children in custody - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPUEU4eDh3cnF3aDczeDYyTmQ4d0pYbEhsUjdzcGNGQTVXeVlDdkdvdmUzQlozRVFmZkR4UmtqU1pxT2VHUDJfNU1neHphN25hY3ZkNmpOcHl5UTZYQ3JrRGpLR25tcWQyc29kQWFTZmRpTFdnTjc0SkxEUDBoMm4zZTQ3Z3NBaWYtdkpPN1lhWjdEcU1CTVNLMTljUFpudEtC?oc=5) |
-| Police Investigating Two Million Dollar Smash and Grab Robbery of Jewelry Store - Seattle.gov | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNU3JIeS1JdjRMUUcwZDRJanY1TE5mRUhKeVFUZjdxam91bnNGTS10WHBGa084SlNzZXJfQWo1S2JNRlpwRDdkTEM0c2lIR0doY3BFcnhFMnRNaTV0SW5SNVZHT05yVkpFWFB2RzdLZFczSGtzUEVvbmN6TzVPUGkxa0FTRUMzX3IyRE9hUEJKQy1HM2hmc2k4d2VtbmRFc3hGQzBaVFItWjJ2YWd4TlBPcnZvY05YWGJfZG9faVdpOA?oc=5) |
+| Five Texas school districts at risk of a state takeover after ratings’ release - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQeHRhSjljY1VfWm9Ud2xtRmtjRVlPaGsyR0IyaUpIQTgyRlduRzBaYXBPdm9XU1BpcTRETzRfR2dGRGhwLWg1ZWtPaGJmYU1GWGstREpOdFFBMmNYQ3QxdEpTRjY3aE9mdzVjUVhSb2RmOUt6WndicXdmOWRIQ0lCc1h2MA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
