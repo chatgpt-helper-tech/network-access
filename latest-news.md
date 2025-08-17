@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 11:22:34（北京时间）**
+🕒 更新时间：**2025年08月17日 11:42:28（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Man arrested after Bournemouth striker Semenyo reports racist abuse | [阅读全文](https://www.bbc.com/news/articles/cm218l7jm5xo?at_medium=RSS&at_campaign=rss) |
 | Five key takeaways after the Alaska summit | [阅读全文](https://www.bbc.com/news/articles/c4gj9er0x0zo?at_medium=RSS&at_campaign=rss) |
 | 'The world is behaving irrationally' - Putin's warm welcome gets cold reaction in Ukraine | [阅读全文](https://www.bbc.com/news/articles/ckg4mj4011lo?at_medium=RSS&at_campaign=rss) |
-| End of Ukraine war 'closer than ever' thanks to Trump, says Starmer | [阅读全文](https://www.bbc.com/news/articles/c78mve9209ro?at_medium=RSS&at_campaign=rss) |
+| Starmer to call European allies ahead of Zelensky White House visit | [阅读全文](https://www.bbc.com/news/articles/c78mve9209ro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | No concessions, no ceasefire: how Putin outplayed Trump in Anchorage - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE14Y09IUjl1V2xVUGo2d21jYWJicHhUYzRLVExKYmhrc2wxUnhmakpkQURlNnlicnNGM3hBXzNUQVg2QU13Yzdra1VtR3NMYVlHSHRHaXlBVmxvYW11cUlQRWdKTjllQTg5MWFRakpCUmQ?oc=5) |
 | National Guard in D.C. may be ordered to carry guns; W.Va. to send troops - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNX3pVQ3FqSTBuaHNtdnk0RkZxZm54c3dmbDYwNkZOSjlESG1PYmV0eXJmZlI2ZlBpWjl3VjdsZlhvTzBYSExNM01iOS1ndW9YYkFkcUExd0ZXRlJaOU9udmk2NmFBS3R1bW43elRyWmw0SHRxQjcyMjd0MC1qVW1jb25XaVF1dE80RDVWdkRJUVVLV2hJN2Y0?oc=5) |
-| Erin strengthens to a Category 5 hurricane, NHC says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPd1dFWjU1dmprNUxUMVJyQ0o2Z3dseFdma20tWVBYS1JKUUFQZHREcHRjTlRGMlJ4NE5UTEl3UXJsZlZNbDl4aTQwbXhfejVMdC1uYlRuYW4xRWgxZ01PM1c0azVPWW5ETnpjZU5oMlBQRXp2QmZZREFkZEdBY0JuZ1lnSnZSWm85ZEZ5SnYzWXNqMUFvU1NaOXh1b0NxOTdFMkpuelNB?oc=5) |
+| Hurricane Erin, first of Atlantic season, weakens slightly to Category 4. Maps show its path and forecast. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiZkFVX3lxTE5yN3RTRHRvZlNFVGNvOTBOcjBqU2c2THdBbkpwdzFuUDJiMmZwT3M2U2ZuMzN6LU13cHJhMDFPYjJCMnItZ1RjdFZLUFhha2xBcjF2WEhSRzlJU0UwY3ZRTktMZ2xyd9IBa0FVX3lxTFBVb2xDOVZURkZKQkE4d2llblF6QXFSaGFBaDQtb1VfWDBrSURoRzFyS0hMMzVoT2pTdDZwVXQ3b05Tc0xnNWpSUDZCdG1yMDRuNE5jTWhGMW1ieGpqbmVkRWdOVm40cGxRLXp3?oc=5) |
 | Trump Bows to Putin’s Approach on Ukraine: No Cease-Fire, Deadlines or Sanctions - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQMUI4ZjZFVmRxSk1fcU5LSzVtYXRPVFdqZVdDOURJR2ZmaXhaZ21scm0yY2xQOHBibW9sTGJaRWlOWEVNX2xTZGhQOW5PdnpTNktLU1VLSnluMExGQ1hMQ1Ywa1NyTlR4QVZoWlFFby1OdzBmSGxrSWJraVowNzRURG5fVzBOVHc?oc=5) |
 | Israel prepares to move Palestinians to southern Gaza as Israelis urge mass protest over war - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPaUpLUWhvb2hDNGl4RWc3RDA3XzFaMXlXekY3WUdlMGFfVTRZSGNwVmpVblVNRW5nQmhVWnFBYjQ3d29ScjNfdGd2aWlJQ19BUVZ6MDhCamZrTV92aGIzMDh1WHNJTzNOak0wU0pUQVNsRy1tMnBGZG9fd0d3NkZkdWNXSERCbkNGc2JLT2VxT19oR282NzFIVmF3?oc=5) |
 | Thousands rally at Texas Capitol against Republican-backed congressional redistricting plan - KUT | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOUjZwWkw5VHhVcGU0NDN1V1FPdWxXS1I3bUQ5T2RIdG1JQUNrOE5GOXZidjNPZ1VWUjEzWUFwdDZJcFVVcmpWODE4TTVDVUhGZC1IS3gxWDdVRlNqZExzWkxmWi1jZVBzZlBwOHNudVk3dlB4NVBhdEdFUW9MQWRISGRPd0phMklxeUYxQmRPcmYtd3J6SXlnQW1zemVheklHZ01oX3FDQzRVTEk?oc=5) |
