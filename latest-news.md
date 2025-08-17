@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 13:21:42（北京时间）**
+🕒 更新时间：**2025年08月17日 13:43:44（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Russia 'complicating' end to war, says Zelensky as Trump touts Moscow peace deal | [阅读全文](https://www.bbc.com/news/articles/c04rv2p3936o?at_medium=RSS&at_campaign=rss) |
+| Russia complicating end to war, says Zelensky, as Trump pursues peace deal | [阅读全文](https://www.bbc.com/news/articles/c04rv2p3936o?at_medium=RSS&at_campaign=rss) |
 | Trump's ceasefire pivot will cause dismay in Kyiv and Europe | [阅读全文](https://www.bbc.com/news/articles/clyvd2jpy1no?at_medium=RSS&at_campaign=rss) |
 | Malnourished Gazan woman flown to Italy dies in hospital | [阅读全文](https://www.bbc.com/news/articles/ce87n455dvxo?at_medium=RSS&at_campaign=rss) |
 | Trump posted a photo of me sitting by my tent - then a bulldozer arrived | [阅读全文](https://www.bbc.com/news/articles/cx2x39d2jxvo?at_medium=RSS&at_campaign=rss) |
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Russia sees victory as Trump adopts Putin’s approach to ending Ukraine war - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOMUM5Z1ZFSUdBUjVycWl5RjdMRmVaZU83eFkxUGN4MVhxMHo4UjdaVmpaYWFaRDREYVoxTmhkeFZNTFRtb0ZDNUVodmdUQzlzZDRMYVlWZmVpYVhsOFhTeXhfQml3QTMxUG85V0pXcU1aSG5lT0tGTGFEdmlRbFhTdEpUbkNoSG1FNUVrNFdPSQ?oc=5) |
-| Three Republican-led states to send hundreds of National Guard troops to Washington - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOaDJIOWNGVjVPT1JJRlI2YXY2Wlo2ZXdERThSNnFkWjdvSkFfRG5zcnA1SHBDWFNhck52dzd4NXZVWGtSR0hnUS1KM0wySUE1Wm9waUxia0VDQTRPNUpZaUc3ZFZmdk9tREhZY0hQc3FJeHBZRUYyVEJla3ViNV9HN0dYM2d3TVVBeFlZWC04Ti1RaUoyVWplNmdvSGFIallCblBBdVdTSHJxckNiNGpNRQ?oc=5) |
+| No concessions, no ceasefire: how Putin outplayed Trump in Anchorage - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE14Y09IUjl1V2xVUGo2d21jYWJicHhUYzRLVExKYmhrc2wxUnhmakpkQURlNnlicnNGM3hBXzNUQVg2QU13Yzdra1VtR3NMYVlHSHRHaXlBVmxvYW11cUlQRWdKTjllQTg5MWFRakpCUmQ?oc=5) |
+| Protesters Against National Guard Deployment Flood D.C. Streets - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOR0dkWkpjeEhLRlBMQkFPUlNwbGFULVVrTjdpbFU0WUlKYk5nZU9VbjJMYWpXLW9YQ1hOWFRjNDFqOFo3dDR2eFQzN3NodFhNRlVHejNJLUhBalBkdVlBbHlzaUNvRHZtWEZTX2V4RUVzYU84V0t1R1pPaGU4a19oY2EyOGdWM05ReXhTcjRDYkFTZw?oc=5) |
 | Erin downgraded to formidable Category 4 hurricane, NHC says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPSENHZHdLTDVGWkJxY2wwUE82Ukp0Ujh3OVJOOHIwTVdVcXlLbUN6azJfUUxLaUlBRE5fdHRqeXNCaTZMT0owcDNTaFpwMEVFYWZiWEFNMXVwWDI4eUlVWDNzQWxwa25EWTVfd2dsSnZSSWdTSHFCaTJaUG5neVhwOFN4dW1ldTJhemExWWNNc2QzdjNva3R2Uk9BTjhBS2lDLTRnSlpEajFXOWYxcFpjNktNQQ?oc=5) |
-| Israel prepares to move Palestinians to southern Gaza as Israelis urge mass protest over war - Politico | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE4zZjhyNXVJdEI3cFpPZTJEZmo2WlJnSV9fU3piM00zTlFlanAyMVZESEY0R3hPS3dwU1FLUHkya2JUeDB2ZF9fcmJhUkhzcHNIV1FJbjhzaG14b0FWV2J1WFc5ZXZ6THRWaXBiODNrcUZURndwc3JpblMySQ?oc=5) |
-| Protesters Gather to Oppose Trump’s Push on Redistricting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPc3pFOXNNbW1FM2wtM0FfdTBZX3ByZDFVbWFzcWpJOEl2XzZmemZnd0dsc3lvelN2MUdUS05YVW5aSWtuSkVDMUY5Yko3ODltUDFKSDRDdEpQSm9YZC1Tb0NabF9zQi1LMUdya2RKNXFGaEdxVVZfcHpKa25oOEdmQ1FZTG1ENmJUemFRM1ZNclItblk5?oc=5) |
-| Trump reportedly to back ceding of Ukrainian territory to Russia as part of peace deal - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQOGlWQzE3OW00akg5SGVPYWZMYUJrQkd6SkhQSncyYV9MakZmM3QzN3YybkVLQmFuNnRFOUVUampDay1KVkZ5N3NxRDF6ZkQtcUNNbndyejRqbUZWLXJma1FERXEtUTRRVzRpWDNwOE9QajBnaHNvOU1ON3FGLVVaZS1xZ0dpb0U4OVZLbGhGMno?oc=5) |
+| Israel prepares to move Palestinians to southern Gaza as Israelis urge mass protest over war - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPaUpLUWhvb2hDNGl4RWc3RDA3XzFaMXlXekY3WUdlMGFfVTRZSGNwVmpVblVNRW5nQmhVWnFBYjQ3d29ScjNfdGd2aWlJQ19BUVZ6MDhCamZrTV92aGIzMDh1WHNJTzNOak0wU0pUQVNsRy1tMnBGZG9fd0d3NkZkdWNXSERCbkNGc2JLT2VxT19oR282NzFIVmF3?oc=5) |
+| Trump drops ceasefire demand for Ukraine war, tells allies Putin wants land - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNR2pjR0Q2QTNNMGNFX056N2VZYlBGTXZSNFNiSGo5THQtWkpsVThwMXpienhKRVVpVkZORW5YeXRzcnIzdFd3SWFBa3RRUWVCal9hVkszSTgzTzFlM2g2bHdaeDFwYjdPb3REcXg5TVU1bW9vT1dNd3VRU1lWcEVZamhjcnFRZ1I1UFpJZTNqbjFfUTA?oc=5) |
+| Thousands rally at Texas Capitol against Republican-backed congressional redistricting plan - KUT | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOUjZwWkw5VHhVcGU0NDN1V1FPdWxXS1I3bUQ5T2RIdG1JQUNrOE5GOXZidjNPZ1VWUjEzWUFwdDZJcFVVcmpWODE4TTVDVUhGZC1IS3gxWDdVRlNqZExzWkxmWi1jZVBzZlBwOHNudVk3dlB4NVBhdEdFUW9MQWRISGRPd0phMklxeUYxQmRPcmYtd3J6SXlnQW1zemVheklHZ01oX3FDQzRVTEk?oc=5) |
 | Ukraine war briefing: Zelenskyy says Russia refusing ceasefire ‘complicates the situation’ for ending war - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi4gFBVV95cUxOdkNYRDRtY2lPNnhzNDNucWI0X1ZIREZuYW9UeUN6VmI1MlVrU1RqUWFYelJZcGZwa1NNOUxhSTF4eG85X3Zqb2d1Vmw2TXBVdUd4MjRoMUJBQUZNSTRUUWNlY2VmdWxjY3U5OU8xUExwZVVyZ0h2OVpFYmNnOEZlQy01eVVZSThESVZFR1JVMzBEdl9jMjlJSmtNUHY5TU5iel95QmRTdi04QWZod0E5ODNkWEhLWUpGS1BtWlU1dFBqUThPc2ZJNV94VjVfVVVjY0dLY2dSa2hBVlhxWWFIUmp3?oc=5) |
 | ‘It was really bad’ — Journalists who have long covered DC reflect on crime over 30 years ago - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNVWo2ZmhFY3NERVcxbm44cEpSNUhNal9fX0JjLTlEQjJ6WDN6QWhtNzBIRUpnVmp0R1VCbEsyVUR3WDBJV1B3dTNic2VBOHpGdVFqUXNlN1RhU2hEYjVtTmpKUmh0UGdHWTBsaTB3QjlMZERoTzhZN2g5UzBtYzY2T0hEaHl4S0RLQ0k0NUZNTEJZWXJ4M3NPZmtXM3FmemVxQTlvdUZVajZydjd0MTI4U0RBWlVITTUwN2c?oc=5) |
 | In letter to Putin, US first lady asks him to consider the children in push to end war in Ukraine - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOakF5RTdiMnVjTGhTeFJtVVY4TndLSWdJdmhsX2l2RUVRN05OdXhMZ19HT2pjNTZLNzVUcXdXcjY0MElubnk5d2xDbzlLNWg1dnNnS21YelBMVnJwUzY2R01TblhVLWxpckxpdnBGZm5rU000YUpKTnlPZ3p6aEZCUER5cGktWjlYWFlibnBTSEI?oc=5) |

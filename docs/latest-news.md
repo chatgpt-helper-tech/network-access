@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 13:21:42（北京时间）**
+🕒 更新时间：**2025年08月17日 13:43:44（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Russia 'complicating' end to war, says Zelensky as Trump touts Moscow peace deal | [阅读全文](https://www.bbc.com/news/articles/c04rv2p3936o?at_medium=RSS&at_campaign=rss) |
+| Russia complicating end to war, says Zelensky, as Trump pursues peace deal | [阅读全文](https://www.bbc.com/news/articles/c04rv2p3936o?at_medium=RSS&at_campaign=rss) |
 | Trump's ceasefire pivot will cause dismay in Kyiv and Europe | [阅读全文](https://www.bbc.com/news/articles/clyvd2jpy1no?at_medium=RSS&at_campaign=rss) |
 | Malnourished Gazan woman flown to Italy dies in hospital | [阅读全文](https://www.bbc.com/news/articles/ce87n455dvxo?at_medium=RSS&at_campaign=rss) |
 | Trump posted a photo of me sitting by my tent - then a bulldozer arrived | [阅读全文](https://www.bbc.com/news/articles/cx2x39d2jxvo?at_medium=RSS&at_campaign=rss) |
