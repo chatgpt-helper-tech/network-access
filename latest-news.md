@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 19:13:22（北京时间）**
+🕒 更新时间：**2025年08月17日 19:24:49（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Trump's ceasefire pivot will cause dismay in Kyiv and Europe | [阅读全文](https://www.bbc.com/news/articles/clyvd2jpy1no?at_medium=RSS&at_campaign=rss) |
 | Five key takeaways after the Alaska summit | [阅读全文](https://www.bbc.com/news/articles/c4gj9er0x0zo?at_medium=RSS&at_campaign=rss) |
 | 'The world is behaving irrationally' - Putin's warm welcome gets cold reaction in Ukraine | [阅读全文](https://www.bbc.com/news/articles/ckg4mj4011lo?at_medium=RSS&at_campaign=rss) |
-| Claire's was shopping heaven until Shein came along | [阅读全文](https://www.bbc.com/news/articles/c23pek275p5o?at_medium=RSS&at_campaign=rss) |
+| Claire's was 'shopping heaven' until Shein came along | [阅读全文](https://www.bbc.com/news/articles/c23pek275p5o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -29,10 +29,10 @@
 | Trump Backs Off Cease-Fire Demand in Ukraine War, Aligning With Putin - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQUDlqY01BSzJUUXRoMDhIWlU4TUcxaWJtRWFrX01UbUhVUXFUTS1SQ3JNRVpnYmtBRThSOHdFRTZ2YU9DWWl1SW9ZaGRvNjlLTHVZVUJESlpGTGV5T0g0ZTZXekRZdXZJdXljTDRHWmROMV9wSWNFckRabW41S2tPWjFud0ZkbVZuSWV6dS0ydkw2Mnd5a2NGeQ?oc=5) |
 | Thousands rally at Texas Capitol against Republican-backed congressional redistricting plan - KUT | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOUjZwWkw5VHhVcGU0NDN1V1FPdWxXS1I3bUQ5T2RIdG1JQUNrOE5GOXZidjNPZ1VWUjEzWUFwdDZJcFVVcmpWODE4TTVDVUhGZC1IS3gxWDdVRlNqZExzWkxmWi1jZVBzZlBwOHNudVk3dlB4NVBhdEdFUW9MQWRISGRPd0phMklxeUYxQmRPcmYtd3J6SXlnQW1zemVheklHZ01oX3FDQzRVTEk?oc=5) |
 | Immigration agent fires shots at vehicle with people inside in San Bernardino operation - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNUVh5R3JzVzRCbkxiVW5ZZnNBSkMwMHMweVd3dWZQVlloY0p0M25WaUpibDZxakk3WGpoOF9hdFN5bDc1TzFZaXg4dnV5WkVyNGY2SDVSdHMyZThFaThLZlpzU21lSUZLdFhWb2xIZ2czRUw0WEhkSEpFV3JzVExISE0xUW9TMmZUajNOaVFpYUFpcXpSNHR5a1p4M2wtemV5cm9Wb205c05OTnJPUHc?oc=5) |
-| Russia ceasefire refusal 'complicates' talks, Zelenskyy says before White House visit - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxOVkJUc2trV0tfM2RlUlpVUFQ4S2k0ZUNTdUZMZWJhTkdCd0I1U0JHTlF4QVRCZmJDZ2xfeGlkRVdZeGhxZ2VNOHJHSWVTVlE4NGdhX1Y2dTVrTlY4Y2tkOFhDc0J6Vl9FamFmNFlOUVpVTzU4bW0zRmw5a00tbXZCOE9VNEJDODVfdlBFeGkydUpJUWduTF9KYUZKQ2RMVG01R1pITnhLMFJ5alVXdlp5UDR1Z1dZX2Y1LU43U9IBwgFBVV95cUxQNVVua1JWYTRWalhWTk5Pbkw4V3k2NFhvRmkxWGt5MUhSVmM1RGJPd2hfWk1yVEM0T3lLNldTWmNXZHJrblFsVHJqb21ZaHQtTnNpRng3QmFjVG5rSWoycGpDU21tYjRXM1BuU3M1MHMybzRBUWx3Z043QW9icjRRZ2tocmUyTFd0eGJ1VGZQZURsY1UxZURTVnVqd21LMGNYZEgwN1pSQzMyUVk4RGE5aTdGQ2l1VEloNHh5X0Y5QlEtdw?oc=5) |
-| In letter to Putin, US first lady asks him to consider the children in push to end war in Ukraine - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOakF5RTdiMnVjTGhTeFJtVVY4TndLSWdJdmhsX2l2RUVRN05OdXhMZ19HT2pjNTZLNzVUcXdXcjY0MElubnk5d2xDbzlLNWg1dnNnS21YelBMVnJwUzY2R01TblhVLWxpckxpdnBGZm5rU000YUpKTnlPZ3p6aEZCUER5cGktWjlYWFlibnBTSEI?oc=5) |
+| Fear of a new Oval Office fiasco over Ukraine - The Economist | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOeDJNeXFmdkR5dDFZb3hZdXZnbm4zTTdEUFR4Z0I5OWpCZ3hTWF9OZFdQaXFqV3IxblBJcThfem8xWlh3RDBxLW9raV9Ndm9SOHBsTVM5dUZPREVBSTBKZW9CZE9qbDB2QnlNWTR6WERabUhrVkVfczdDWUdHOUNtdG5ZSUxHLVZldmxGUTNtUEZUbWc?oc=5) |
 | ‘They’re in Wall Street, they’re in the White House’: Thousands protest Israel in NYC - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxObC1VVGtWUWFZVTQ1UHJWd01fbjNSVWh2WGtfeDZkb0R6QzZZOGF1MmZVcDdNdHFSaWxuQTlsZ05Ud0FTcWQwUXpPQkNLYTNkRXlnWHFfT09kaFBNZlhtcjF6Mk9WUXItdldTNi01S1lEVXhDTHpUTk5jekdlYXN3dG1tREY1bWZ1ZHpYTFRzX2tsdDY4ODljamZQNUdlTG9DaEY3S0tQakNZS0h0SW8w0gG0AUFVX3lxTE53U2x1Mm9hWlA2YUplZkZrb0xtRDd5WmQ5dW1vbGN3OUtFbXQ5Q180SVRiTkNfZ2x3SEI0VktsUHpmVFhGWE82aUNjZndJSFJXRjYyWlRESTZwcjBwaXNZUUpxTjBjTTR6SHJTaGJKTjAwdENfSXdQdkhJTmNzVlU3cUFab2hUYzdtYV9pTWh3dHJyVnhaQkpDcVl4cThRM2Z1TGlKaTZjeVlkTDhkX1BxY3dRTQ?oc=5) |
 | US suspends visas for Gaza residents after right-wing social media storm - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPR2JmUVNkNVVId2hYeWRGVnl5RTA2Y2s5Q3B3NU91V2g0QlRNdlVGY05QLTRhN1BmWTlvWGJRMnRqOXhJWkVTVXl4bktxdUhUQVR6SzR2NlozZFFmcGZVNGd5VGd1djlLZnVfeWliN2lLNXY3V0swMVlJT3FuTEFZS1g4c1VtZmpPb2w5RGkyTFNZcmRleng1eGlGVktSeUl6ZkMybmNNY19OQ0t3NEFmVDRDONIBuAFBVV95cUxPMjhDNmF6bmJLemR4UWN4WWxiZmNibkZpekNnRnluMUpPcGh5ODl2S0JzMTMxY1J0SmdZZWZqMzZjRXBpR3lNQk1meE9RcE1jZDNJTURwenFyb1pfYlhiblVjQmxJZUtCMS05V3h4NjU2QjJVcko4OXdGeE4xdWtIcmd4RlZQQ21lcWVveXNJb1FSQmJqX0pPSkI1S1VnbGZGODFBTkp0TUMzTDlSZk5jcElGY25pdkdS?oc=5) |
+| Trump is deporting so many immigrants that it could cause inflation to hit 4% next year, top economist says - Yahoo Finance | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQb2pLWnJHMmt1N1ZseDI2cjVCU2lnU2s4UzFCTVFGT0pVX080OTFfZXQtVzktbHl0ODJYZktUU09WUjRiVEE0Y2Z1Q0s4LVN1Z3hDdUpxeGQ0R2NFT1l2SXctTnlwYUtxaEVRSUpndWJwT1pjVGlISjgxNEFtLXZWOFc4SC1BQjJvOFRZ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
