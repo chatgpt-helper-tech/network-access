@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 12:00:55（北京时间）**
+🕒 更新时间：**2025年08月17日 12:21:11（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Ukraine war briefing: Zelenskyy says Russia refusing ceasefire ‘complicates the situation’ for ending war - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi4gFBVV95cUxOdkNYRDRtY2lPNnhzNDNucWI0X1ZIREZuYW9UeUN6VmI1MlVrU1RqUWFYelJZcGZwa1NNOUxhSTF4eG85X3Zqb2d1Vmw2TXBVdUd4MjRoMUJBQUZNSTRUUWNlY2VmdWxjY3U5OU8xUExwZVVyZ0h2OVpFYmNnOEZlQy01eVVZSThESVZFR1JVMzBEdl9jMjlJSmtNUHY5TU5iel95QmRTdi04QWZod0E5ODNkWEhLWUpGS1BtWlU1dFBqUThPc2ZJNV94VjVfVVVjY0dLY2dSa2hBVlhxWWFIUmp3?oc=5) |
 | In letter to Putin, US first lady asks him to consider the children in push to end war in Ukraine - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOakF5RTdiMnVjTGhTeFJtVVY4TndLSWdJdmhsX2l2RUVRN05OdXhMZ19HT2pjNTZLNzVUcXdXcjY0MElubnk5d2xDbzlLNWg1dnNnS21YelBMVnJwUzY2R01TblhVLWxpckxpdnBGZm5rU000YUpKTnlPZ3p6aEZCUER5cGktWjlYWFlibnBTSEI?oc=5) |
 | Trump Cuts Off Medical Visas from Gaza After Laura Loomer Meltdown - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNQlpweXpiQVNMajZGUTloTjVXUWk4MVh2cWgwNDdYck9SbloxVHB1WFJnaTJoOHl5YjlveGxRYVNVbDVzV0VsN2oxblc0R2pxU2J6NHR0bmRPWC1aRjE1YkhjM2IwUjJUV0owMTVHOUZWVVEwNTU1NHlZVjhleVFXZlN0NU9LWWFfd0U3c2NHU3QwMWdwSlh4alUwcndzZVdpdTkzQ3c5eXQ5clVXdENR?oc=5) |
-| ‘The city has really went to hell’: Some DC residents want police help, but are concerned about tactics - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOdnYxdWhWMmwwS29EX0RkUFVpZEROM0tIb09WT0hXZ1dGYXRKTDdLN2NsOV9wUjljTHIzal9hVWh1UDdzQ2NuVGNxWm5ZWUdEX1VHcXRJM1FsLWthOENtdHNIemU4V2lnNF96RE1udy04aE1NSy1HSTFIT3l2QUpRNjhMY1F2dVFCZVVBVXN3cVpnR0d3TkxSQm5KNDJYcnVpUXBFX21BWXEtTmkzclU5cEhnU0NpM3BhRUVtR3RlTVVVZzZDb1dv?oc=5) |
+| ‘It was really bad’ — Journalists who have long covered DC reflect on crime over 30 years ago - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNVWo2ZmhFY3NERVcxbm44cEpSNUhNal9fX0JjLTlEQjJ6WDN6QWhtNzBIRUpnVmp0R1VCbEsyVUR3WDBJV1B3dTNic2VBOHpGdVFqUXNlN1RhU2hEYjVtTmpKUmh0UGdHWTBsaTB3QjlMZERoTzhZN2g5UzBtYzY2T0hEaHl4S0RLQ0k0NUZNTEJZWXJ4M3NPZmtXM3FmemVxQTlvdUZVajZydjd0MTI4U0RBWlVITTUwN2c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
