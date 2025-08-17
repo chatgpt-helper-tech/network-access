@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 08:43:31（北京时间）**
+🕒 更新时间：**2025年08月17日 09:01:36（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump shifts ceasefire stance and urges Ukraine to agree Russia peace deal | [阅读全文](https://www.bbc.com/news/articles/c04rv2p3936o?at_medium=RSS&at_campaign=rss) |
+| Russia 'complicating' end to war, says Zelensky as Trump urges Ukraine to agree to Moscow peace deal | [阅读全文](https://www.bbc.com/news/articles/c04rv2p3936o?at_medium=RSS&at_campaign=rss) |
 | Trump's ceasefire pivot will cause dismay in Kyiv and Europe | [阅读全文](https://www.bbc.com/news/articles/clyvd2jpy1no?at_medium=RSS&at_campaign=rss) |
 | Malnourished Gazan woman flown to Italy dies in hospital | [阅读全文](https://www.bbc.com/news/articles/ce87n455dvxo?at_medium=RSS&at_campaign=rss) |
 | Trump posted a photo of me sitting by my tent - then a bulldozer arrived | [阅读全文](https://www.bbc.com/news/articles/cx2x39d2jxvo?at_medium=RSS&at_campaign=rss) |
@@ -29,10 +29,10 @@
 | White House says National Guard members deployed to D.C. "may be armed" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOQ0hGZHAxbGYyby1nd1Z1WjZVZWNWZ0U2cHo1bEZPTnlYUzA0VU5tbkc5bUpTUXluR2Jxd1NkUy1jNE5ZTFZPZUR6bzEwUkp0RG92QktDRzd4MTNSN09RaVJpS3g2d3RBaF9FVFhuWkN5SHVvWUMzU1ZWZC1kTkZIVVgwZUhvR3RsN3Eyc1dXUThpVkFldTZTeVpRNG1BZjDSAaQBQVVfeXFMTkp5Tk8xbXJfWWN3Tk9kYmlXN1Z0eGJ0TDRhbXJYcUpxUm0xd2VXVmZzRGhwdXhuQnFtYm1mLTBoZThJU2NGTGhwOHAzaGFYUlFCeC1GSW0tY0ZuVFVNS19JWWNBQ1BXRjh3ZDJ1QURjSlFRYkctVmxZbjl0YWpwQ1dKb3hGV256SnB4WmhPelVvb0lTRk1fSGlWbHZvY3FJUDNoNmY?oc=5) |
 | The decline of drinking, explained in one chart - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPNHRfckprZDBYOXl0OXRwU2RuMzNLalkzeGlmN0MzVk5fT3pRQnZWYUJXWDNSNExxSUstNmtabTlNTVZnOGlqdjNFWjV2T3VlYTdFdG03VHJLMEFqMVk4THViRnJJQm4xeUEzdnowWURQVjZ4VGNyR3EzQlgtcXh2MGp6NHNBa3B5WFpTaTlUaE9mQnBNUW5tOG1wMG8wUWc?oc=5) |
 | Melania Throws Curveball with Personal Letter to Putin - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOOVJuQlVxc2VicWxEOEc2c0pkSV9xLTUycW1TZDJuOHhwUG1Dck03V1F1NWo2OEhkeUlBLW1SX3hhQUl4LWxKX3F3b21NMTJINTBERndFcHhtS3pFU0hUaTc5dGhmVGE5Wnp6YWN1RDg1R29ya0JsS3B6cEV1eFhtRUZVTW1fakxaVjV2VFBMc3pMOGdZRF9qSlpSMjc4TXd3SlE?oc=5) |
-| Louisiana Has a Long History of Political Corruption - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOOXVVZnVIMC1JMVB3SVphbVNqRkRPQTVqX0pfQ01nZkM3OWNEQkg2UHNxVTlrYWZCTTRUVTlrczR2NmR1VHp3R0xwS1FqME9XX05EQk1UakFTbTJ0QnNoUUZENUIyMHU2TnEtSDdNXzdrMWRUV2ctZEVaNFVUNWVNV05HNVh5dGRv?oc=5) |
+| New Orleans Mayor is a "no-show" at Amtrak event after grand jury indictment - wwltv.com | [阅读全文](https://news.google.com/rss/articles/CBMi-wJBVV95cUxPcW4ybTNsOC1oLVVuQ2YwMU5fMi1Bd2hsTmFsUHFDc3VoZDRCUWtfdENnR1hTQzBReGdtTVlpRXFGclpMaGx5clJ6NWtZdDRyN3RmbFdobTJxTjZlZUc5ODA4LVZDeUJhZ0M3SjhQVHNiRGNncnJtWmdlbnNxQnRfbG1sbFVPR3VGdHBBeDA5YjhHOTdYRUp6N2M0M1JLaWRXZ2lidHRIU0JLeDg2Tl9UMElTZDlaVlkwWHRYcktpVVdjZm9pZjRNcFVLdjZQMHI1QlZvLUhhYWpjNTlubWpZc3Ewdk55MUZiVnd0SV9jcTlXOXJacjlLdi1wcERuSzhMVW0zMzlfZnNSb0pxR3FNSkZmNUg3ZG9tcjNnOTlXVk1yc3VHV1FBbk1wdWFFdWFSbGVTbFo0N25zUmxLdm45VHpSY1RnV0Vwd1UzQko5TE5EdXgwZzh1WWlnUVRYRW9jS1NhY1RCeHkxcGFoY2VYTHBrbkM3Y2t4a1VB?oc=5) |
 | Trump tariff agency plan stalls amid White House turf battle - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOaVAxQWVJVWhxaU5SRkxXOU0wQnpmbWxvTWhVY0tiYVRZcDJHQ29MS3FnaDA0ODhhQUs4MnZQWXZoSE1wclNTNWcwdTBrUzFSQUxHRko0SWU5ZklzSTNVVXRsdHNpRU5pUWpXcnJDNkVvSTUxV3NINTZna3JmM3gtQk9sejliSGtEQlNEOWxlTVV1d25mVmFPTFdVTQ?oc=5) |
 | State Department halts 'medical-humanitarian' visas for people from Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQNFhiNFB2SkxNUmNBTDhDM2lKZEJuVFpfSi1JQUx3cHI4X0phbF9GckU1RllrQzN2YkNLRHJGclZtZVcxb3ZOYWVhblViMUZuNzg0OVlOZ3c4TGVWRFdwVWdIUFozdTRPSVF3RU5lTXlZSG9lX3NCTW01Ukh0dlNyM3BzZks?oc=5) |
-| Protesters Gather to Oppose Trump’s Push on Redistricting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPc3pFOXNNbW1FM2wtM0FfdTBZX3ByZDFVbWFzcWpJOEl2XzZmemZnd0dsc3lvelN2MUdUS05YVW5aSWtuSkVDMUY5Yko3ODltUDFKSDRDdEpQSm9YZC1Tb0NabF9zQi1LMUdya2RKNXFGaEdxVVZfcHpKa25oOEdmQ1FZTG1ENmJUemFRM1ZNclItblk5?oc=5) |
+| D.C. Police Chief Retains Control of City Police After Court Hearing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNVlFGNWpCSWE1TVE1OHBWQUxpYlhOdnRYSnVLdm1sUm9WVmFCb3Utd2lpdk5XNlFoSkVJSS1QVUFhZml2Skc0bWNPSFRhaG56T0xxelZFVXc3WXFKaDJoVVJzY2h1SlpuS1pkQm81czkzSm0xdVU2U2JfYTdKSFIwenRubzk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
