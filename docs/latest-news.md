@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 09:43:23（北京时间）**
+🕒 更新时间：**2025年08月17日 10:00:53（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Israel prepares to move Palestinians to southern Gaza as Israelis urge mass protest over war - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPWnphN0J1NU9YZ09kVjRBYW0tZFNwb0ZvWm16MFJzbzkzR01ad251cTA0Y1NOYkpHa2FkY0U2MVNRMVF0eW10WUE4a2d1Z1d1T0w2dEl0M0tBQzNBd1NuWV91V0hLdjFVYmI4b0o5Qm1KeW40elNFWEd5UzBkZE8wU1FCTkJZZ9IBiwFBVV95cUxNSWtpam1WWHZhV1lURFBvMkNoZVJQQzYzSW42cmpoTjVwRXExYk9sdmM1SnhBS01tUWtRa25CMFFUV0tRQUNHQTRKQS1QVzF0U193eXR2TzI2aTBiVUFCSHF0ajNNQTktaW5MeHE5SkIyR09kNFN3QTQwdUJQU0V6cVpfamN2T1QxQlVF?oc=5) |
 | Carney voices support for Trump’s peace efforts — and encourages US security guarantees - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNUm5RbHZXVURjaS11anZqUWN4cERkS2xib0ZScldxQktlTU1mWGtuQ25nVHNSVVRnbTNNRnlmVFF6V014b1dLVHhrOGduOUV3bnJadDNYRFljdkdacW15SENHelN2V1JYSEdNdEVWZ0lYY3pBZGxxWlR2a1ZKc3JDYlM2TDl5OW9p?oc=5) |
 | National Guard in D.C. may be ordered to carry guns; W.Va. to send troops - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNX3pVQ3FqSTBuaHNtdnk0RkZxZm54c3dmbDYwNkZOSjlESG1PYmV0eXJmZlI2ZlBpWjl3VjdsZlhvTzBYSExNM01iOS1ndW9YYkFkcUExd0ZXRlJaOU9udmk2NmFBS3R1bW43elRyWmw0SHRxQjcyMjd0MC1qVW1jb25XaVF1dE80RDVWdkRJUVVLV2hJN2Y0?oc=5) |
-| New Orleans Mayor is a "no-show" at Amtrak event after grand jury indictment - wwltv.com | [阅读全文](https://news.google.com/rss/articles/CBMi-wJBVV95cUxPcW4ybTNsOC1oLVVuQ2YwMU5fMi1Bd2hsTmFsUHFDc3VoZDRCUWtfdENnR1hTQzBReGdtTVlpRXFGclpMaGx5clJ6NWtZdDRyN3RmbFdobTJxTjZlZUc5ODA4LVZDeUJhZ0M3SjhQVHNiRGNncnJtWmdlbnNxQnRfbG1sbFVPR3VGdHBBeDA5YjhHOTdYRUp6N2M0M1JLaWRXZ2lidHRIU0JLeDg2Tl9UMElTZDlaVlkwWHRYcktpVVdjZm9pZjRNcFVLdjZQMHI1QlZvLUhhYWpjNTlubWpZc3Ewdk55MUZiVnd0SV9jcTlXOXJacjlLdi1wcERuSzhMVW0zMzlfZnNSb0pxR3FNSkZmNUg3ZG9tcjNnOTlXVk1yc3VHV1FBbk1wdWFFdWFSbGVTbFo0N25zUmxLdm45VHpSY1RnV0Vwd1UzQko5TE5EdXgwZzh1WWlnUVRYRW9jS1NhY1RCeHkxcGFoY2VYTHBrbkM3Y2t4a1VB?oc=5) |
 | Protesters Gather to Oppose Trump’s Push on Redistricting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPc3pFOXNNbW1FM2wtM0FfdTBZX3ByZDFVbWFzcWpJOEl2XzZmemZnd0dsc3lvelN2MUdUS05YVW5aSWtuSkVDMUY5Yko3ODltUDFKSDRDdEpQSm9YZC1Tb0NabF9zQi1LMUdya2RKNXFGaEdxVVZfcHpKa25oOEdmQ1FZTG1ENmJUemFRM1ZNclItblk5?oc=5) |
-| US state department stops issuing visas for Gaza’s children to get medical care - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPbGNOaEJrMFhGaGFpRFdjaXkta0cwYTZCejN5Ul8tVUVqZDgzQ2lMTDR5SkkwMWI2cm5XVHFiNjRObElvdUVLRHljbTB5RTFEY3JHVElISzB2M0hvWlBOT1JVcFJTVkR0NTJsQU05QXZhdlJpNmFPalZDQ3RiR2wtUHIwOUFYbEJFZmtCcEFqRklSNEV3Q195aA?oc=5) |
+| New Orleans Mayor is a "no-show" at Amtrak event after grand jury indictment - wwltv.com | [阅读全文](https://news.google.com/rss/articles/CBMi-wJBVV95cUxPcW4ybTNsOC1oLVVuQ2YwMU5fMi1Bd2hsTmFsUHFDc3VoZDRCUWtfdENnR1hTQzBReGdtTVlpRXFGclpMaGx5clJ6NWtZdDRyN3RmbFdobTJxTjZlZUc5ODA4LVZDeUJhZ0M3SjhQVHNiRGNncnJtWmdlbnNxQnRfbG1sbFVPR3VGdHBBeDA5YjhHOTdYRUp6N2M0M1JLaWRXZ2lidHRIU0JLeDg2Tl9UMElTZDlaVlkwWHRYcktpVVdjZm9pZjRNcFVLdjZQMHI1QlZvLUhhYWpjNTlubWpZc3Ewdk55MUZiVnd0SV9jcTlXOXJacjlLdi1wcERuSzhMVW0zMzlfZnNSb0pxR3FNSkZmNUg3ZG9tcjNnOTlXVk1yc3VHV1FBbk1wdWFFdWFSbGVTbFo0N25zUmxLdm45VHpSY1RnV0Vwd1UzQko5TE5EdXgwZzh1WWlnUVRYRW9jS1NhY1RCeHkxcGFoY2VYTHBrbkM3Y2t4a1VB?oc=5) |
+| Trump reportedly to back ceding of Ukrainian territory to Russia as part of peace deal - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQOGlWQzE3OW00akg5SGVPYWZMYUJrQkd6SkhQSncyYV9MakZmM3QzN3YybkVLQmFuNnRFOUVUampDay1KVkZ5N3NxRDF6ZkQtcUNNbndyejRqbUZWLXJma1FERXEtUTRRVzRpWDNwOE9QajBnaHNvOU1ON3FGLVVaZS1xZ0dpb0U4OVZLbGhGMno?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
