@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 16:49:09（北京时间）**
+🕒 更新时间：**2025年08月17日 17:00:22（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Palestinians flee IDF attacks on Gaza City as Israelis protest occupation plan | [阅读全文](https://www.bbc.com/news/articles/c2018wx3zlgo?at_medium=RSS&at_campaign=rss) |
+| Palestinians flee IDF attacks on Gaza City as Israelis protest against occupation plan | [阅读全文](https://www.bbc.com/news/articles/c2018wx3zlgo?at_medium=RSS&at_campaign=rss) |
 | Trump posted a photo of me sitting by my tent - then a bulldozer arrived | [阅读全文](https://www.bbc.com/news/articles/cx2x39d2jxvo?at_medium=RSS&at_campaign=rss) |
 | Cooper defends Palestine Action ban again as 60 more face charges | [阅读全文](https://www.bbc.com/news/articles/c4gj93j2r2go?at_medium=RSS&at_campaign=rss) |
 | Gaza aid dropped into Israeli-designated danger zone, BBC Verify finds | [阅读全文](https://www.bbc.com/news/videos/cn851l607djo?at_medium=RSS&at_campaign=rss) |
