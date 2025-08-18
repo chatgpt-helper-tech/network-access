@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 15:48:16（北京时间）**
+🕒 更新时间：**2025年08月18日 16:01:13（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | After Putin’s win in Alaska, Zelensky travels to Washington for his day of high stakes talks, how far can he push Trump? - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNaVVkc1MtSHY5cUdXaVNnTG9IVDdQRjQ5VVhneGFKV05PdVBqcWZaYW5XWm9NQ0dwUEIxM3kyX3o1eWZiOTBUenU3ZlJoV3BrdE1NRTUzdk5mRGFBNmZqc0V2QXVVUlpUVy1DUC10ZDhDRkZzUnBFekF4Tll2dG0xZ0ZoVHgxLW5IZ0RSQVpSSnVCaUJJbV8xc3pVYUFGNV93Z3Nn0gGoAUFVX3lxTE5OWmRaYzdNaHFKREhrb1RLeHJFZzRmcEl0QWVwQ1NJME5BUnc3ekhPNV90NE1XT2dyOUpIR0NsOUZuT2R2djNCQ28ySlcxTzJDaXpVV1d5dGhldFVGbGUzdVZZXzdpUjhtN1gxNXJwV0F4QUNycURCOGhjTTI1S19KTGZ1UF9Xd0gwQ0tESm54c01HaWpOd1dqdzA1Smg1c3NkTS04WFVfNA?oc=5) |
-| Why Putin smiled broadly as he left his Alaska encounter with Trump - Lowy Institute | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPODJfR0FNOE1hODJ0bURVUDRjRjhtR3h6eFRQWGcxQ0hPQmRQRlVtdEQycVlGTFdSNHBXOENIWnRjeU83d0R3VzF3YlNuS1djYllDa2NYWEtDbE50d2llZURORGlHeWVQMzNQSHdxajlIaGZfZ2Nnd2owVC1QYjNIRWJkYjhJR1JLWnhnRkdpWmJWcTNPSjFGMFZyN0ZpODFDaXdRd193SkU?oc=5) |
 | Trump rules out Ukraine reclaiming Crimea or joining Nato as European leaders gather in Washington - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNbExaVjhuQWZqYjl4QU83LUFMZXRDbkUtNzhrdllQQzNZSUptWVpuQms3eXVmX2szZmJfZVJEZU9ISG1uZ1NsUzZmZU1JNGNpR3l4aWZlV2xRM3F0dF9RREZxUGJSaWNaYlR0TlpVM0I4Skx0aHVnajJkUzJCWFJBdFlsV1NfZndiRm55WjlJRDBLU1R6bVFtSkRnZWFaaG5TeEE?oc=5) |
+| Why Putin smiled broadly as he left his Alaska encounter with Trump - Lowy Institute | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPODJfR0FNOE1hODJ0bURVUDRjRjhtR3h6eFRQWGcxQ0hPQmRQRlVtdEQycVlGTFdSNHBXOENIWnRjeU83d0R3VzF3YlNuS1djYllDa2NYWEtDbE50d2llZURORGlHeWVQMzNQSHdxajlIaGZfZ2Nnd2owVC1QYjNIRWJkYjhJR1JLWnhnRkdpWmJWcTNPSjFGMFZyN0ZpODFDaXdRd193SkU?oc=5) |
 | What to know as GOP governors plan to send National Guard units to D.C. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPRm56Q1hxRFFvajdOcFpSOUp4OUZkeXpaOFVwU0R4R2lpejczV19GczZYeUJ5WVQwRGVBX0F6WjF0cHVnbE1wUDdta3dJVVRYM0MtRXkzbHBGdWFMbTRkd2VEZzQ3ZnJCVHg4cjJ3SGZWNHFiMk91bHpkWWhNbkJDQnV0WUFxalJMblc4M0YtNUc4YU5raXNkRDc0ZHlOank0YXc?oc=5) |
 | Hurricane Erin prompts evacuation orders along N.C. Outer Banks - Axios | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9OTW1UVzFaTjhKRnN6dXJ5MlJudzJnMjVheHEyLWdKMDRQUk9MYzl0MldMMWJRRzljUXE4azNSSXo5elVfcFNlYlg4RXRQSHpqR3FhY0pmOS0tQVJ0Q3dUVGJScEJucmtLRFFQYmVRdw?oc=5) |
 | 'It was a bloodbath': 3 dead in mass shooting at Brooklyn hookah bar - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNVmJiWXFnUzI4NmVFQXM5NHhYa2RiTWxjczEtVm9aZ3psUFR2U1h6S1E2YkRCcnJxbmtEZGJWdmtMYUI0T2c1dk1tM1prM01PTDFSbzFVQ1JnNVFUaGFYMWpSU0pTVjBpX3NMaVFYeFJXX25sbUg1eHlyWVp5VUYyaDJsbjc?oc=5) |
