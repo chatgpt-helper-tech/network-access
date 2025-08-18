@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 07:36:32（北京时间）**
+🕒 更新时间：**2025年08月19日 07:49:07（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Key takeaways so far from Ukraine talks in Washington | [阅读全文](https://www.bbc.com/news/articles/c5yp4jggrj2o?at_medium=RSS&at_campaign=rss) |
+| Key takeaways from Ukraine talks in Washington | [阅读全文](https://www.bbc.com/news/articles/c5yp4jggrj2o?at_medium=RSS&at_campaign=rss) |
 | Man guilty over gangland shooting that left girl, 9, with bullet lodged in brain | [阅读全文](https://www.bbc.com/news/articles/c939v7gejlpo?at_medium=RSS&at_campaign=rss) |
 | Hamas source says group agrees to latest Gaza ceasefire proposal | [阅读全文](https://www.bbc.com/news/articles/ckgjye15zdlo?at_medium=RSS&at_campaign=rss) |
 | 'No-one comes for us': The women trapped in Afghanistan's mental health system | [阅读全文](https://www.bbc.com/news/articles/c80dg700dego?at_medium=RSS&at_campaign=rss) |
@@ -30,9 +30,9 @@
 | DOJ to start turning over Epstein files to Capitol Hill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOcU5nMEt0aXN2R1NRRDBSSHh3ajhrMC1yUEZPSmVreWZrVF9wVGNzeXZKY1ZSeExMUXJDSWxKblQ0eHhBVmJUNklTaGZiTlJKUEQ1OGdzOFo4RWRZa0tndlpVX2tZWVJvVnlIUk1semFBU3BvSmhnalpqZXZaYzFRWjkzcG9EVTZYaW81N2I0Z19zTGtuQ3FDMg?oc=5) |
 | Texas Democrats return to state as GOP presses on with redistricting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOSDkzLU5waUhMOG9MUWZFZ1RFOXd4ejFCVTI2QzNUZTRmeGI5Q3VXa3lhVHM2eTZnT0dMNkhPZGRjSkRBUV92aXBZSUZKeFFXM1pyOGw2NldxRW40WVZUN053Sjlvbll2U0E2eGdrd3RhSUtsR05ZUWI5WEtZczd2SHRNSzVCRzJ6ek5OZXJYTENyNjRlQl9RUkZqdlViVVdFaURkVA?oc=5) |
 | Newsmax to pay $67M to settle defamation lawsuit from voting machine company - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNZ01lOWQ1ajRfNVJWWkkzZU42NllXZ1RUNVRXLW94Q3JoMWE0aXdDcndsbDY3MTJ2cTh0d1hXdVNOS3E3ODBPWTduRE1Yc3BMQXFKY2RPQWlxYjNFLTRTNnd6S0pVM1BmV3JmLU4zQmlPQ0hvcnpRN1ZEZjJ6MHJ3RG1mVXd1RzhiQ3NWVVdGZWszVEM1UDV1Q3Z1S1NiM054czdoRjhsXy1wbFVwTGRPcTRB0gFWQVVfeXFMTmxycGFLRGJuSldsRVQ5bjlXZFg1SndfVElHN3p0VGdJZzZTQTRNbE5nMFlwUFE3cFBYdV9keVRDT2lPV0dGRmw3dkh5c0xMV3g2eDNhZUE?oc=5) |
-| Air Force Chief of Staff announces retirement - af.mil | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNMlE1aExtWkxjYkl3NjlYdHZFVUNxMVFNSkt2UjBWWVlMbWNkMTBJTG5LZHVGeGQ4X3R6MXFZeTZWbUhDMkhlV0pJQWdVWVcyWWQ5cC1PN0Q4YjFPeTE3RWxIU1BFRi1QQWVqT09LeV9yLXM1Wm9kaC1CbTZ5Y0c5SHJtQlNMeVlxOVhFUi1CRjhyMVdBelR2MmpLcVdZRG9MeFY3RA?oc=5) |
 | Immigration Enforcement Takes Key Role in Trump’s D.C. Crime Crackdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1pVGJwUHJvbTNtOEw5OVc4TXl6cW1XWDZOdzNVeHdodjNEd2RmeHYxUEtfOUtkSTFjSlI0Nzl6Z3p6dW9hVkc4dFc3SmRfVFZOOEVYWXphZUJKZGhoaVVlMnJaT3ByalhWR3k4OWNYdjZXUzdraDh3MA?oc=5) |
-| Suspect in fatal shooting of Tremonton Garland officers identified through jail roster - KUTV | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQVjV0WVhhQ0hwVEN5Z3JNTXV1dEFqd3dMR0RsSURLcDF0ZWZ4bEVLUHdGQW5pVVpkV01Ia1RKX0VXdU9zdDdiUFpLTzdpVVI5VkxTamx0ODRIZG93YnV3Qm9RUnQ4eHBteXNneENYT1dnRW5VLUhOVWlsQXlMbC1ZZnRocXdtVU93MU1MazQ2dmc0azBfTWg2c2NiX2wwUEJya1g4NzRTLVRMOFdGT3ZrUUJvSS0?oc=5) |
+| Officials identify the two officers tragically killed in Tremonton shooting - KUTV | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOSm9Qay1tMFBpLU9vWWIyTzZIaTdrRW11WUpPRlZGUVdCQkxZOHZ1a0FWcW9HYlRUX2VWeTlKZkY0Uzdjdk1RVDVZd2JwalBiaVlzTEJoeW1ldUdqbTdzYnc4UmZzYlpmYWZOLXQ3WU9FX25Md245clluandFU1FkTmJIZV9OVXJ2OWhCSS1WaElaOXk1UnBnU3pXYmthSzhoUXZwSkZn?oc=5) |
+| Zelenskyy wears military-style ‘suit’ to Trump summit - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNeGIxc2pBMDhjUU0wdjdfSHowRVRnZkZrYmlrbnZsTVpsR3FZWUJBMHgzckFiQXMwajRCcnNIX3Nwc1lnNW92SG1majJMd1dJRmRhdU1WbElDd2YtU2dULTBaQWFOc1NFdjI2NWJwWjF2b0FnVWo5TVNuTzVzXzF3dkNXeE5fMHRwMmtka2lPclI0YTdCNUNMYUpOTXJYdFA0NUE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
