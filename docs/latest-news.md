@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 07:01:15（北京时间）**
+🕒 更新时间：**2025年08月19日 07:13:17（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Trump vows to end use of mail-in ballots ahead of 2026 midterm election - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxORk5MZl9EUmp6MkxRVm1kVHRMb3R4bWxUX2tsTE9ZeXloZHpQX3E3dXVadG5OSEE0aTNneWF4MUJxNV81RVBuMGxHbGlQczNtVkNDNVRkMHNiSjFnTTY2dy1oMTJWTkhtejNKZHJkU20xN3RFMDFnSnA2RWJkeWhqQzNiNmZLMGxKMTdFV0wzTG5lNDBYbDljYTJSMzVPeGRZN2FEQTNMWGdpczQ?oc=5) |
 | DOJ to start turning over Epstein files to Capitol Hill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOcU5nMEt0aXN2R1NRRDBSSHh3ajhrMC1yUEZPSmVreWZrVF9wVGNzeXZKY1ZSeExMUXJDSWxKblQ0eHhBVmJUNklTaGZiTlJKUEQ1OGdzOFo4RWRZa0tndlpVX2tZWVJvVnlIUk1semFBU3BvSmhnalpqZXZaYzFRWjkzcG9EVTZYaW81N2I0Z19zTGtuQ3FDMg?oc=5) |
 | Newsmax to pay $67M to settle defamation lawsuit from voting machine company - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNZ01lOWQ1ajRfNVJWWkkzZU42NllXZ1RUNVRXLW94Q3JoMWE0aXdDcndsbDY3MTJ2cTh0d1hXdVNOS3E3ODBPWTduRE1Yc3BMQXFKY2RPQWlxYjNFLTRTNnd6S0pVM1BmV3JmLU4zQmlPQ0hvcnpRN1ZEZjJ6MHJ3RG1mVXd1RzhiQ3NWVVdGZWszVEM1UDV1Q3Z1S1NiM054czdoRjhsXy1wbFVwTGRPcTRB0gFWQVVfeXFMTmxycGFLRGJuSldsRVQ5bjlXZFg1SndfVElHN3p0VGdJZzZTQTRNbE5nMFlwUFE3cFBYdV9keVRDT2lPV0dGRmw3dkh5c0xMV3g2eDNhZUE?oc=5) |
-| Why is Donbas region becoming a defining faultline in Ukraine talks? - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQM2hzalRZU2U4RGdRcWJUYVBYVUhVeVZ4eFZULW1LcENXVkxZeUllZ005MnVqeTY3UHlEUExkZkFfbjJGZW1qTHRRWENRbVIxVWU4WTNvVk1BcndiMnVqd1JPbnlXazB2a00tT0cydENuLVJJWHVOa09VMUgyc0F1bk1CSEx3M1ZYZHZNWjBEdC1lWjdHUFlBWWYtYWRuUjVfaXJuT2p1OVc?oc=5) |
 | Texas Democrats return to state as GOP presses on with redistricting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOSDkzLU5waUhMOG9MUWZFZ1RFOXd4ejFCVTI2QzNUZTRmeGI5Q3VXa3lhVHM2eTZnT0dMNkhPZGRjSkRBUV92aXBZSUZKeFFXM1pyOGw2NldxRW40WVZUN053Sjlvbll2U0E2eGdrd3RhSUtsR05ZUWI5WEtZczd2SHRNSzVCRzJ6ek5OZXJYTENyNjRlQl9RUkZqdlViVVdFaURkVA?oc=5) |
+| Air Force Chief of Staff announces retirement - af.mil | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNMlE1aExtWkxjYkl3NjlYdHZFVUNxMVFNSkt2UjBWWVlMbWNkMTBJTG5LZHVGeGQ4X3R6MXFZeTZWbUhDMkhlV0pJQWdVWVcyWWQ5cC1PN0Q4YjFPeTE3RWxIU1BFRi1QQWVqT09LeV9yLXM1Wm9kaC1CbTZ5Y0c5SHJtQlNMeVlxOVhFUi1CRjhyMVdBelR2MmpLcVdZRG9MeFY3RA?oc=5) |
 | Immigration Enforcement Takes Key Role in Trump’s D.C. Crime Crackdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1pVGJwUHJvbTNtOEw5OVc4TXl6cW1XWDZOdzNVeHdodjNEd2RmeHYxUEtfOUtkSTFjSlI0Nzl6Z3p6dW9hVkc4dFc3SmRfVFZOOEVYWXphZUJKZGhoaVVlMnJaT3ByalhWR3k4OWNYdjZXUzdraDh3MA?oc=5) |
 
 ---
