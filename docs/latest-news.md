@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 14:38:00（北京时间）**
+🕒 更新时间：**2025年08月18日 14:49:53（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Officials warn of retaliation risk after Brooklyn hookah bar mass shooting - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPbllQUHl1aDZZQmNQMGc1TDhaNFpodlRSeEtiU2RVY2llSHdhRFkwMm94VFdodTl5blkyTTUzY3VlbHh6ZEJZeDFpRGRJYThROThJeW5xWDFQdXhtSFNacGdkV0RpTkIyanZkYklIcG4xcVotX1FLcU1iZzFOQk4wdGRiTHhkLXZKamR2LVZTV3RmWktTZFhzVDhaQnh1cWpjTERj?oc=5) |
 | Trump Officials Hint at Possible Concessions by Putin - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNM0xBTXgzSl8yTWJqVUNzSDZ5NFdTQkdnTGJyT3J5c2JWLUU0dk8wc0JfZWs2Nl96R1AzWWxFMG9PbGZTMkJtR0Z2YV9pODByenA0MXdIeTVtMWd2OWJjMFdId3FvNFdKYkdUZ3cxNW1zLWs1QmVGRktTXzFVX0VaaGREd0xwbkhKd1hPREQ2bEk3NkdSSUE?oc=5) |
 | Texas Democrats who fled the state to block GOP redistricting push begin returning - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1ZcnY2NjFYVXdIb0d2Yk8wOVBqdU8xeDJ1VVd1X1NFQWItVzdkRExLWGo5WXpBNTc4UnpnZ2t4cUFuWWo5Q1A4VWJIa1VLQjlBQ2tqajNRaVplQWstRTlxV0ItSW1OUHFjalkxandmRFlOQV9JWVVVUdIBfkFVX3lxTE45emVEbWR6UXhLT3pOZGhFVGx0RHdEVHJXbFpzTkczSWQweWFIZ21Qa1hhMzVtamt6RGdqOG9pWktRS0Npc2Y4MnVZWFVWQ0Fnc2U5d1hiSUN0SHBGRnR5RkNxNC1PTGttRVE4X0djb3E3N3RndDF1eHdjWTFMdw?oc=5) |
+| 'Potentially life-threatening' flooding risk in Twin Cities, southern Minnesota - Bring Me The News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPbGEwRlZETGZyX0dXMl9xeVcwdFByUG11Q2lVU1M1aDVKWDYyaGtqQm93eUpIa0l2eFBYcThHTEZKelRSTDdpamZGaXE4Wm1EVnFoUjFWcC1ya2dzMVZrZWFhdkdNVUJKOTJBSlcyazZTVnBYTUdrVUJBX2FrcWJvU1V3Z2xEYm54N253T3NYR2pYYS1pajBwQlVjdHRTT3NqODNMUjJWR1hwb3FIdjEtdkdFRkxkVnFvc0Q1R3N3?oc=5) |
 | Louisiana Has a Long History of Political Corruption - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOOXVVZnVIMC1JMVB3SVphbVNqRkRPQTVqX0pfQ01nZkM3OWNEQkg2UHNxVTlrYWZCTTRUVTlrczR2NmR1VHp3R0xwS1FqME9XX05EQk1UakFTbTJ0QnNoUUZENUIyMHU2TnEtSDdNXzdrMWRUV2ctZEVaNFVUNWVNV05HNVh5dGRv?oc=5) |
-| State Department stopping issuance of visitor visas for 'individuals from Gaza' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQVkhfS2VLblhidjJORkF1RjFEYzUyMHh0VE9VSVk1blp6ZUtPb0tMNERXUERQOGpyV2ZTVlFmeG56MlI1ekIxd216c2g5NTdyZmpoSzRiUTdHOE9TZTJvUHZSQXBBd3d2LTk2N3Nkb1RDb3ZUcmoyWUxQSldmT3NXek1haWwweHRGZy1rMU1hM1EwQzVKMzZoZ0RaT2tXT2NmNF9sUUdaX29FMjI4WnBr?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
