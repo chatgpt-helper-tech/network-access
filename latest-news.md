@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 14:25:46（北京时间）**
+🕒 更新时间：**2025年08月19日 14:36:55（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Hamas Accepts New Gaza Cease-Fire Proposal, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNMXhsVjlOcjJRcW1XZzRMMFhhWVZDNjg3TGNpMThyMUtUWWZwMjNXQnpBaHRkOW5yZ040Y3UzOHdBZUl5czNmQTQ4RVdxSGJqNGRwdlRNVDBRWmV0NGpUdTlCSDZxVzVfTUROTVZsNGJobUdHY2diZUpvMkFtX1VSVFVQSk9HOEtoeEJGVw?oc=5) |
 | Bryan Kohberger's behavior alarmed university faculty and students before Idaho murders, documents show - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPZTRBNmdfbEhFamR6N2xURXZ6Zkl1RlhGUW5ZMl9fRTFQRUVFMUgwQ0E1ekZBVVhLcFRBdUl2d0JxbWxnV19jXzdqOVdXSC1weEFNaUZ1T3BTbm5UUlpfenJ2ZjRQTW1DQlU2SmNzSHdDSlk1TEtoVkFHS094UEYxb1NKYnN6SjMxUXpZZTlqT2VJdVBVVGtTdWZNZEVSOVVpd0U1anhYTmlhZXRFSVFHOdIBtgFBVV95cUxOS0FsWE1aa2w4Qmk4WGNjeGw5V1pxWU9pSFdXRnZnWFN4M1VnVTk3cWNja29RYk52OEcxM0FWVEVtaEhLeFpJN3BaQWhGQWRxWkRyb2FhVlowQTEydmpwOFBPWGJwVGxNSzlFX3ZBb3FJQW9CRVRmYnROMmtrVGtlSWhpb2F5dWJVZ2VqMHRSalFMbkZMWW9mYmJRMm9RdWF4Zm1GVFd6eTgwWXNIQ3VMT2VqZHBGdw?oc=5) |
 | Security footage shows July 26 stabbing spree at Grand Traverse County Walmart - The Detroit News | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxNNUNSdE5USF9YRE9DTE5OSkFHOXFSTnNoczhMb1ZOQU1lN2t1WFczMHJpV1ZITV9nazdDVlFSUlUyREZjQnFPeVR3SEJ0UFc1NUowRFlSV2g4cmp0c09EbzdzMHlQOEV1djhFdk1QNzhIMTkxV0s0ajI0RFB6QmpXZ1pMeU1QSkRQWE5nd0RpN1I0Znl2TWZoUHdtRlhUd09Mckl4dkFjblMwQWRTaW9ucnB1WTZpR05GdzQ0QkpFMlI2NndtVVNhWkd2Yk9Qc2RmeHpXbDNhNk1Ebjk1bkxLSFlwam85MGcxUHJjZw?oc=5) |
-| In Surprise Move, Trump Taps Missouri Attorney General to Help Run F.B.I. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOY2ZWNmFDZUhPTmk0eUhOVE1CcFNrdlBralA2NFlBcndkWmluc1ZHV1NDRTBkSjRldy1zMGdXUFRzQkxna1ZOSlZfWUFVT0lOaUsySVdnbnF3MWQ3NmFMbHc1cU9VNEF0bWlXNVRjaHJrdnNpdVU3d3lOTG82R3A4ZDZOcno4emVY?oc=5) |
-| Explosion and fire at factory in Russia kill 24 people, injure over 150 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOMUV0UUJGQV9nM3h5dlZoLV9zeHdQSXJEYWxCYVhNS2p3cUZIVzRKSm54WXZQcU9VRVlGUWFaUF9ZdUVCbG5vQlBRTkpZZ0dMbDV4MG5pTVlVdFloUFpzckVGNzFadXFCMzBRVGhSY0Nna1k0WEJpTDk4QmFJcDZoUFI4WjVyenB2V1HSAY8BQVVfeXFMT3oyLVhCNnI0eHZFZVJVMzJMbmtzeW03ak1QWmZiUGx1aGFDZE8xTXowSEQ2VG45RlhCWkpsdlAwNGdMb1dDbWVPYmV6N2tlM0JjLUtLekVxN0VJcWJDc2tYZ1B5eW95ci1Rem9Yb1ZxZl9lOW93azFXRm1tZXdUU0d0dXZ2UzJYLWI4bWducTQ?oc=5) |
+| What's really going on with the "6 wars" Trump says he ended - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE94ZlZlaEluYzNidDZadFdFS2ZUc0hXQzFZbnFrbFNqR3B3VFNzd1lLZmcwZjdCbjAtQ2pBX0kzMzFCX1g4Zmc3Z0R6X1hncEI5U1NJTEtEOEF1ODZpUWFtWUtBWVI4OWh4eGR6TjVuX3RqQUZnRlpBcUtmWDdVSG8?oc=5) |
+| Suspect in fatal shooting of Tremonton Garland officers identified through jail roster - KUTV | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQVjV0WVhhQ0hwVEN5Z3JNTXV1dEFqd3dMR0RsSURLcDF0ZWZ4bEVLUHdGQW5pVVpkV01Ia1RKX0VXdU9zdDdiUFpLTzdpVVI5VkxTamx0ODRIZG93YnV3Qm9RUnQ4eHBteXNneENYT1dnRW5VLUhOVWlsQXlMbC1ZZnRocXdtVU93MU1MazQ2dmc0azBfTWg2c2NiX2wwUEJya1g4NzRTLVRMOFdGT3ZrUUJvSS0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
