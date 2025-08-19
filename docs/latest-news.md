@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 12:36:57（北京时间）**
+🕒 更新时间：**2025年08月19日 12:48:31（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | 3 more GOP governors authorize deployment of National Guard troops as part of Trump show of force - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNY0d4MkdnZEs2bGVxVk92Z0tfWlpoMkE1MThIRWswREZSUk1fRTNyd2hjWTE0ZHNxblplRmt4R3NmYm9GTVpFdGx3ODlSeEwyOEdJNW1nN3V2TlNaZFdxaUs1endXendOeW41djVpbjFSbnhSTHo1cHJsaVN3ZVFpVTFJeDU1Nk1HSGZkMXkzdkE1MU9tS3V6dTBVdzFZNngwVnpMY1U0aWZVWWgwNVdNWk9B?oc=5) |
 | Bryan Kohberger's behavior alarmed university faculty and students before Idaho murders, documents show - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPZTRBNmdfbEhFamR6N2xURXZ6Zkl1RlhGUW5ZMl9fRTFQRUVFMUgwQ0E1ekZBVVhLcFRBdUl2d0JxbWxnV19jXzdqOVdXSC1weEFNaUZ1T3BTbm5UUlpfenJ2ZjRQTW1DQlU2SmNzSHdDSlk1TEtoVkFHS094UEYxb1NKYnN6SjMxUXpZZTlqT2VJdVBVVGtTdWZNZEVSOVVpd0U1anhYTmlhZXRFSVFHOdIBtgFBVV95cUxOS0FsWE1aa2w4Qmk4WGNjeGw5V1pxWU9pSFdXRnZnWFN4M1VnVTk3cWNja29RYk52OEcxM0FWVEVtaEhLeFpJN3BaQWhGQWRxWkRyb2FhVlowQTEydmpwOFBPWGJwVGxNSzlFX3ZBb3FJQW9CRVRmYnROMmtrVGtlSWhpb2F5dWJVZ2VqMHRSalFMbkZMWW9mYmJRMm9RdWF4Zm1GVFd6eTgwWXNIQ3VMT2VqZHBGdw?oc=5) |
 | Newsmax Will Pay $67 Million to Settle Dominion Defamation Lawsuit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPTkcxaDBYU0JGQUtCRVhYRzduamhzRWlVU2otMmdqUGRRWjRNcEQweW45WUFRTTNBa2VmWlNFQXE1RDJPUFBvYkVRNXY4LVNoWVVvU1R3UFM5dGxIZlMyMnFnZ3ZMR3k2c2JQWFpKbWkwc3FmS1BGVFh0QkdWUXdmQUZTUzdxR19KSGxCS0FEbEVub240cnpySEZhci1CYlRaSmxF?oc=5) |
-| The "6 wars" Trump says he ended and their current status - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE94ZlZlaEluYzNidDZadFdFS2ZUc0hXQzFZbnFrbFNqR3B3VFNzd1lLZmcwZjdCbjAtQ2pBX0kzMzFCX1g4Zmc3Z0R6X1hncEI5U1NJTEtEOEF1ODZpUWFtWUtBWVI4OWh4eGR6TjVuX3RqQUZnRlpBcUtmWDdVSG8?oc=5) |
+| Inside Week 1 of Trump’s ‘hostile takeover’ of D.C. police - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOM0w5cnV3eFZrYV94RllKTU82N2wxdGVianI0Sll0cjNYZUFJV2RqMWM1MHFtanFSSU5CcExiNlF2OXEzZXZVLXlqTXdCVWl6NEViWmZ1Q1NUdjFLOTZZc3lleUNoNnJmOTNsTTdLa0ZoUEw5T0R2dHQ1ZmwwMlpFb2dvWTl0eXpXOTZKNXp6RHE?oc=5) |
 | Why many Nevadans are contending with worsening food insecurity: "They have no choice at all" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE9lWWhWQWpBYnVjTG54cmFDQURaZWlDVVNmbWY1b2J1UV9yOVo2VDhjSkNiVnpTQWE0Y1JsSGpTVl82bkZodjBFQzBtbmY0T0gtcFNEZVUweUQ5bTVXVHZHNlhCM3BFTWx2ZGxB0gFwQVVfeXFMUDNtTmRobm1aenRSdTJRUUlkTWoydEttdEczRHFLZGY4REgxWE1EVEtfTGlnSWlZanZaZjFDQ1ozaklVQ1V3YUxlUjk2UWhlbWJ1TjhwaUcyVVdkWTBMZVBabDFwQWlhUkNIYklmdVlOWg?oc=5) |
 
 ---
