@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 21:13:32（北京时间）**
+🕒 更新时间：**2025年08月19日 21:24:17（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | The War Room newsletter: Why Putin’s peace plan is more like poison - The Economist | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQdVNKcTFqQ3VOUnFYZHhKczVUSmNlQmlZNHRnSWY2Wjk1R1B2ZWNTMjZRSDV2ZFFpV2VneTYwcTY1bzJJOXRGY2Zqb0ZLd2N2R3NUeVNZeWJ5cXFzdlBMMjZQRnIxYVRvODlrVC1RV0dDRkxxZ3lDenltTE95TllrSGF3b0ZrUXVRMzFPM3hxOXhLWmFSbjlvdFNGblFKRFd5QkNHRFZXYXk1XzdsUmc?oc=5) |
 | Ukraine offers $100 billion weapons deal to obtain US security guarantees, FT reports - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOWHNiRkpPVDEybkJ1TENQYTFWanhDclNWZzc2X3FXZjd0WlZqMUEySjR0b3MwT1k4Ylp0c1hQVnZITlhtMlBnbXRoUEFCNFlHRk43MzZQbXEzaGRKOVh0MTFFcjY2bE93aFhDNGg0bWQyU29KXzBhSWhsakQyVmxocTZxRTY0TWY4TTlJWUxrR0hHbjN4amdFNEJXcjdpUFl4OE10d3hPNGV5ZlAzVWtxSFNuMmpZZUkwS0VmbXRULUFkcGVlVGg1LQ?oc=5) |
 | Bryan Kohberger's behavior alarmed university faculty and students before Idaho murders, documents show - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPZTRBNmdfbEhFamR6N2xURXZ6Zkl1RlhGUW5ZMl9fRTFQRUVFMUgwQ0E1ekZBVVhLcFRBdUl2d0JxbWxnV19jXzdqOVdXSC1weEFNaUZ1T3BTbm5UUlpfenJ2ZjRQTW1DQlU2SmNzSHdDSlk1TEtoVkFHS094UEYxb1NKYnN6SjMxUXpZZTlqT2VJdVBVVGtTdWZNZEVSOVVpd0U1anhYTmlhZXRFSVFHOdIBtgFBVV95cUxOS0FsWE1aa2w4Qmk4WGNjeGw5V1pxWU9pSFdXRnZnWFN4M1VnVTk3cWNja29RYk52OEcxM0FWVEVtaEhLeFpJN3BaQWhGQWRxWkRyb2FhVlowQTEydmpwOFBPWGJwVGxNSzlFX3ZBb3FJQW9CRVRmYnROMmtrVGtlSWhpb2F5dWJVZ2VqMHRSalFMbkZMWW9mYmJRMm9RdWF4Zm1GVFd6eTgwWXNIQ3VMT2VqZHBGdw?oc=5) |
-| Maps show Ukrainian territories claimed by Russia amid talks on possible end to war - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPb3UyUWNEbHAtT1hzczkwdWFuLU9GMXJEMFZvU0c3emJCR3doTHRZVnBUNlB5Sk1IeC1JR1o4U2Y1SG1JcEtnOElFQXdUVVd2UFVrQkRyUEtSWkRZeDltVXBENDZkSzZYWmxNT2RMUkNHM3RhcFRPdVpab09Hbm1hR0RwWnHSAYoBQVVfeXFMTUdwNGN1QmoyMjNjeGFlcExEaUlzSHBqallDejBjaEhtUUFfRUhIUGVRSVNVbTV6REp2U2N1NUZWMEh5ZExBaERhM2ZYX2E3cGNOY0ZXa3RMLWlqcUhORmFFUVRMN1lfQXpYMWRFTWxlNTR5SmRsR3pDbzNNemhSOEZzaXI1S1A3SkVB?oc=5) |
 | Fort Worth Rep. Nicole Collier refuses to leave Texas House, protesting state trooper escorts - KERA News | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxNQmVxYlpLeWEwSTZzZnJaNDVueHFpV2V1Yy1rT3AxN0NkcDRtVkp6aG9UbXNlZmtYMHRKLXlWeXIwUlNiZzUxakhqaVZ4OW9BZElVdjhsRExJTlZONmk2bjhqbDFrQmZVWmR4THRWdGpuQXEtVlBxOHNUZG02QnhtZ0oxNzRqZG15R1NlUFFsQnZJUkpLTzBoQ1NXMUM1R1RFVXJDbzc1aTBRSTFUcHprZjVLQW9KME8zSjF1ek5taEd3ZWFSSDdoeU9XenUyR1UtQk9RYg?oc=5) |
 | D.C.'s crime numbers are all the buzz. But how do we interpret them accurately? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE13cHhqelAwVHFmOTRldlplZGx5b0plQWk4LThXN0hKR09SY1NINFNMajVOVWNiT3Z6R0JNYlY1dDVSQ3hJOUxUcFFKT3c5V2xlWFdSNkU4NHZVbDEtcWlKNVkwSmdFV3pTMGxWWUpZYTRuNEczTmpWVQ?oc=5) |
+| Security footage shows July 26 stabbing spree at Grand Traverse County Walmart - The Detroit News | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxNNUNSdE5USF9YRE9DTE5OSkFHOXFSTnNoczhMb1ZOQU1lN2t1WFczMHJpV1ZITV9nazdDVlFSUlUyREZjQnFPeVR3SEJ0UFc1NUowRFlSV2g4cmp0c09EbzdzMHlQOEV1djhFdk1QNzhIMTkxV0s0ajI0RFB6QmpXZ1pMeU1QSkRQWE5nd0RpN1I0Znl2TWZoUHdtRlhUd09Mckl4dkFjblMwQWRTaW9ucnB1WTZpR05GdzQ0QkpFMlI2NndtVVNhWkd2Yk9Qc2RmeHpXbDNhNk1Ebjk1bkxLSFlwam85MGcxUHJjZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
