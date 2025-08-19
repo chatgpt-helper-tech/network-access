@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 10:12:11（北京时间）**
+🕒 更新时间：**2025年08月19日 10:25:44（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Versant to rename MSNBC, drop famed peacock logos in Comcast separation - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQNFlEUWIyUFpXS2dNaEUyZEpFckQtYnhWRXlVWVNfcHRxMkZnSm5WUWJZVGVMSkVBMHRXTDEtcXV0QmtMcWdnQ1A0NzAzaG5NbmlZTnBMUlA5Vnh6YVdtTkpkSnE1MUVQa1pYVXNEY0ZyYW5sOFhWOXFKcTBoSVZlUzFyWmRjd9IBiwFBVV95cUxPeVZDcGpoOExQcE9wQ091X210RVV0TWN5MVBybkRhQ0NPYlBYaEI4bV9ROUR1UG13WHJWZUF6aTUzTXJRZy1RUURoTXc1bktDS0VqYWdDcGlZUGxFU0hkYmtoWjNUeHRBMjR6VTRhVDNrb3BSWE5lRXBLNGpQV0poMXRsVFFJQVF3Q0Fj?oc=5) |
 | Trump calls Putin at White House summit to arrange talks with Zelensky - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5pSUFsSW1PSkhUMzdfM0hnRERVaDkzXy00c0t1bmhIajR4RG1RY0NFN1FCeVhnWkJpU0ZPdURWSnFaVGgwZkdTTFVYRTZ3WnpuNGhqcHRFVGl4RGtfbWVqdEJrUHRFLWx3UGV0dTV3b0R3cmxINHh4cVBLODUtUQ?oc=5) |
 | Texas Democrat says she's locked inside state Capitol after refusing mandatory DPS escort - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOSDhzX1FMSFpMd205OF9VVFpWdnlwdUZwc2ZrV3VmUndwbjl5cENFZDNndk52UkRXYVBGUm9oc1ByRzIxTmQ0cm03SV95blJkb1FYMDNyT3VCbFNLQmtDNjlDc2RSN1F4VTI5QzM0VURkVmItMlpJWV9qVUdXNnZJVGo2cU1GLTZJVTB2RkRhM1BVaEJvTVlRZk81Z19BbjFFelZaR29jUThpN0x3ZFE3NlZKNURBMkYx?oc=5) |
-| Ukraine offers $100bn weapons deal to Trump to win security guarantees - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1lVjNIS1hJTEZZWTJJZVh4dzJwY3FlQ0t5RERVdlRmdUNPZGd6NFB0MUpWQXV1dGlaQk1Na1psNHZDZFlndkNmdUd1OHZjaHRaVmU0WGw3OHRaUVoxNnRMZzJTNFU3VzU2Zkl6ME5wTHE?oc=5) |
+| Donald Trump says US to ‘co-ordinate’ Ukraine’s security with Europe - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE0zekY0VjYta3BsbHI2LUlkQk91VGpGVktHblJ3U0xSTWJIOVJZY3daSmtLLXJlM3ZwU3JiRUdLLTJXSHc2ZklmSWtLOHZFU2k0WmtPLWF3R0FTRkh4WTYtcXprUjl2MGUwV28wckRyOWE?oc=5) |
 | Newsmax Will Pay $67 Million to Settle Dominion Defamation Lawsuit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPTkcxaDBYU0JGQUtCRVhYRzduamhzRWlVU2otMmdqUGRRWjRNcEQweW45WUFRTTNBa2VmWlNFQXE1RDJPUFBvYkVRNXY4LVNoWVVvU1R3UFM5dGxIZlMyMnFnZ3ZMR3k2c2JQWFpKbWkwc3FmS1BGVFh0QkdWUXdmQUZTUzdxR19KSGxCS0FEbEVub240cnpySEZhci1CYlRaSmxF?oc=5) |
-| The "6 wars" Trump says he ended and their current status - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE94ZlZlaEluYzNidDZadFdFS2ZUc0hXQzFZbnFrbFNqR3B3VFNzd1lLZmcwZjdCbjAtQ2pBX0kzMzFCX1g4Zmc3Z0R6X1hncEI5U1NJTEtEOEF1ODZpUWFtWUtBWVI4OWh4eGR6TjVuX3RqQUZnRlpBcUtmWDdVSG8?oc=5) |
-| 2 officers killed and a third is wounded in a Utah shooting, authorities say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOY1dzOG9Kemlpd3I5RnZISXgxS0hNcnZxRF9LcDBFQkdXdWFJRUZXSDlUZGlvRjZEWkZPWU8tM3ZpN3UyNEFwb1NzQnpjMTlFckpkVjA4QVhLOXJPdTVtSVl2Z2tLVzF3SUtZU0NPNUpFaTRka25ERU1jUS04U3hzUVpkUmxnOF8wTFN0bXRFQm1Vd2IxZ3ZZc1RyaUF4T3B0?oc=5) |
+| 3 more GOP governors authorize deployment of National Guard troops as part of Trump show of force - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNY0d4MkdnZEs2bGVxVk92Z0tfWlpoMkE1MThIRWswREZSUk1fRTNyd2hjWTE0ZHNxblplRmt4R3NmYm9GTVpFdGx3ODlSeEwyOEdJNW1nN3V2TlNaZFdxaUs1endXendOeW41djVpbjFSbnhSTHo1cHJsaVN3ZVFpVTFJeDU1Nk1HSGZkMXkzdkE1MU9tS3V6dTBVdzFZNngwVnpMY1U0aWZVWWgwNVdNWk9B?oc=5) |
+| Why is Donbas region becoming a defining faultline in Ukraine talks? - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQM2hzalRZU2U4RGdRcWJUYVBYVUhVeVZ4eFZULW1LcENXVkxZeUllZ005MnVqeTY3UHlEUExkZkFfbjJGZW1qTHRRWENRbVIxVWU4WTNvVk1BcndiMnVqd1JPbnlXazB2a00tT0cydENuLVJJWHVOa09VMUgyc0F1bk1CSEx3M1ZYZHZNWjBEdC1lWjdHUFlBWWYtYWRuUjVfaXJuT2p1OVc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
