@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 15:12:16（北京时间）**
+🕒 更新时间：**2025年08月19日 15:24:37（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Bryan Kohberger's behavior alarmed university faculty and students before Idaho murders, documents show - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPZTRBNmdfbEhFamR6N2xURXZ6Zkl1RlhGUW5ZMl9fRTFQRUVFMUgwQ0E1ekZBVVhLcFRBdUl2d0JxbWxnV19jXzdqOVdXSC1weEFNaUZ1T3BTbm5UUlpfenJ2ZjRQTW1DQlU2SmNzSHdDSlk1TEtoVkFHS094UEYxb1NKYnN6SjMxUXpZZTlqT2VJdVBVVGtTdWZNZEVSOVVpd0U1anhYTmlhZXRFSVFHOdIBtgFBVV95cUxOS0FsWE1aa2w4Qmk4WGNjeGw5V1pxWU9pSFdXRnZnWFN4M1VnVTk3cWNja29RYk52OEcxM0FWVEVtaEhLeFpJN3BaQWhGQWRxWkRyb2FhVlowQTEydmpwOFBPWGJwVGxNSzlFX3ZBb3FJQW9CRVRmYnROMmtrVGtlSWhpb2F5dWJVZ2VqMHRSalFMbkZMWW9mYmJRMm9RdWF4Zm1GVFd6eTgwWXNIQ3VMT2VqZHBGdw?oc=5) |
 | Security guarantees for Ukraine to be worked out within next 10 days, says Zelenskyy after meeting Trump: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOdDBEbThzME51N29RWDNyVUx3WEJFMlhHbllpejFMUE1ydWlhNnE0a2stUGlWRmtVY29fbjhWNi1oMy1BLVpVc0Nwd0Y1YjZTX3BEa1lfYUZ6dFNKT2xmWDM2aXh6d3pQeTFROHp3ZVZzNE5JVlBQOUt1UVhxNjViZy1qZ1hRd9IBiwFBVV95cUxOSWZFRFVsV0g0TVEzdHRGTGp1RjJZeXpxWk0zUjFTRk8xX1pYWFMwOTJ3RTZkd0lYdFVJa0dXYlpwNGZ6QThZSEVnUzhFSThSWjRoblVkYTBqd0g1V2pQTmpWUHBuMzBwRWZpajJLZVpiYWI4MFhEY3BpU185djR4NUhCNjJRTm1JQ2JJ?oc=5) |
 | Security footage shows July 26 stabbing spree at Grand Traverse County Walmart - The Detroit News | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxNNUNSdE5USF9YRE9DTE5OSkFHOXFSTnNoczhMb1ZOQU1lN2t1WFczMHJpV1ZITV9nazdDVlFSUlUyREZjQnFPeVR3SEJ0UFc1NUowRFlSV2g4cmp0c09EbzdzMHlQOEV1djhFdk1QNzhIMTkxV0s0ajI0RFB6QmpXZ1pMeU1QSkRQWE5nd0RpN1I0Znl2TWZoUHdtRlhUd09Mckl4dkFjblMwQWRTaW9ucnB1WTZpR05GdzQ0QkpFMlI2NndtVVNhWkd2Yk9Qc2RmeHpXbDNhNk1Ebjk1bkxLSFlwam85MGcxUHJjZw?oc=5) |
-| Why is Donbas region becoming a defining faultline in Ukraine talks? - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQM2hzalRZU2U4RGdRcWJUYVBYVUhVeVZ4eFZULW1LcENXVkxZeUllZ005MnVqeTY3UHlEUExkZkFfbjJGZW1qTHRRWENRbVIxVWU4WTNvVk1BcndiMnVqd1JPbnlXazB2a00tT0cydENuLVJJWHVOa09VMUgyc0F1bk1CSEx3M1ZYZHZNWjBEdC1lWjdHUFlBWWYtYWRuUjVfaXJuT2p1OVc?oc=5) |
+| 3 Utah police officers shot, 2 killed in Tremonton - KSL.com | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNMDRpZTdsTFdEUlg5X3NmVXFFWVdDc3ZHZEd3NUhDWjZVNXFJeU5IcVotM3RlVUQxQ3FaRm8yMzRCTUR0Nk1FODlsMDdmRXFSZlgzYUxtR2VhSk9VMDk2N3pueFplRnl4YUxKeUFtNFRsR2pmWnNYRmNOdXZ5YldCZ0R1T1VMQV94Z2t6b3VrWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
