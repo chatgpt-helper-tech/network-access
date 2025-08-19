@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 22:01:15（北京时间）**
+🕒 更新时间：**2025年08月19日 22:12:43（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | The epic two-day operation to move an entire church across a Swedish city | [阅读全文](https://www.bbc.com/news/articles/cde3xp4xlw9o?at_medium=RSS&at_campaign=rss) |
 | UK withdraws controversial demand to access Apple users' data, US says | [阅读全文](https://www.bbc.com/news/articles/cdj2m3rrk74o?at_medium=RSS&at_campaign=rss) |
 | Son of Norway's crown princess charged with rape and abuse | [阅读全文](https://www.bbc.com/news/articles/cvg3ke05355o?at_medium=RSS&at_campaign=rss) |
-| Morecambe appoint first Sikh manager at professional football club | [阅读全文](https://www.bbc.com/sport/football/articles/cwygp4y1e81o?at_medium=RSS&at_campaign=rss) |
+| Women's Rugby World Cup final sells out with record crowd expected at Twickenham | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/cwy597y87dxo?at_medium=RSS&at_campaign=rss) |
 | Stop children using VPNs to watch porn, ministers told | [阅读全文](https://www.bbc.com/news/articles/cn438z3ejxyo?at_medium=RSS&at_campaign=rss) |
 | BBC delayed Ozzy Osbourne film due to 'family's wishes' | [阅读全文](https://www.bbc.com/news/articles/c2kz8gvkjn5o?at_medium=RSS&at_campaign=rss) |
 
@@ -30,9 +30,9 @@
 | Newspaper headlines: 'Suited not booted' and 'property tax shake-up' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9lTVN6M3BlUktvdFkwOXB4YzlqQ21kbzduU3I0eE5LT2RGUW5wSnV2Rjg5OFdpSlhnaHM1TDBJdnRmcE9HY0tuaG5xRkhIczV4SnVfTGdLbTRkZ9IBX0FVX3lxTE82dGN4X3NNOVRPaVRMeFMyN3JtRmFpVGVVVzhBME9oZWwwallxYVlXM3ctWEZUU0ZsQ21KYzFQaENQMXdaUTV3MmR3V2FWb2J6N0hwd2lmUTJZSUZsMFRr?oc=5) |
 | Businesses face 'chaos' as EPA aims to repeal its authority over climate pollution - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOUUdXd2RCbllfcjRacVhJaHA5a25JX1ZWemI4RHBPaHBiUkhQbVJtS2toTUdwQk1ZWjdHS0prRTRsNE1jWGRTX1RYU0JpT0pqbENjV005YU1hYWFuel9TeDhBQ0ZvLTU4NjJmb3ZpOWx5MnlDZS1qbzN5bEo3bU82bVN6OUQ4RHlJckZsN0tIdFJVd1ZjRFhJNGlyV25USlE?oc=5) |
 | The transatlantic alliance holds as Trump warms to security guarantees for Kyiv - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOdUdob3hxREV0V0JrUGJXWHJGVkJGVU1IX3JCc0piNTc5d0JneWQyTHc3VmM1S0ZJLTdDZ3BpM19QNkhCa2F3YkEweUhKX1VkRmhJWjJ4eDlHU29yZ05kQ1lYb3VQaDBtM0VpY09GRHJtVHJqRTB1a1ozaGZEVENNWVhmUndpaURibEhsbjRYd0p1cnBqalpaYzlVNmR2SFRBRkhHeFBMM1d1akh5SEQzZFNB?oc=5) |
+| Police escort Texas Democrats to prevent new redistricting walkout as California moves to retaliate - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQYkdSLWU4VzU1bE80Wjg5b2Nwcm9EREhaelR0SFV5WUlfNkJZc09SVWlOVHVFYU85ell1UGpibUcta1VwSlh6Y0paYjdWa3otdGRrYVpRdFlyTlBnQVczbTYwS2p3U2gxUnRlOXozMHN4MVBvVDh6NWZsWWFHQmRoeHg0QjAyRnJ5RW5WcS1McVQ5bUg3aThKUkNuNmozUUFIejB3OHVGbHZCbGc?oc=5) |
 | Bryan Kohberger's behavior alarmed university faculty and students before Idaho murders, documents show - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPZTRBNmdfbEhFamR6N2xURXZ6Zkl1RlhGUW5ZMl9fRTFQRUVFMUgwQ0E1ekZBVVhLcFRBdUl2d0JxbWxnV19jXzdqOVdXSC1weEFNaUZ1T3BTbm5UUlpfenJ2ZjRQTW1DQlU2SmNzSHdDSlk1TEtoVkFHS094UEYxb1NKYnN6SjMxUXpZZTlqT2VJdVBVVGtTdWZNZEVSOVVpd0U1anhYTmlhZXRFSVFHOdIBtgFBVV95cUxOS0FsWE1aa2w4Qmk4WGNjeGw5V1pxWU9pSFdXRnZnWFN4M1VnVTk3cWNja29RYk52OEcxM0FWVEVtaEhLeFpJN3BaQWhGQWRxWkRyb2FhVlowQTEydmpwOFBPWGJwVGxNSzlFX3ZBb3FJQW9CRVRmYnROMmtrVGtlSWhpb2F5dWJVZ2VqMHRSalFMbkZMWW9mYmJRMm9RdWF4Zm1GVFd6eTgwWXNIQ3VMT2VqZHBGdw?oc=5) |
-| Texas House redistricting committee advances bill with new congressional maps - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPVk9sRE9mMmgteU50ZmpESFdtdTBjQzFsX2dSb0FpOXBrekdLNUhZWU1nZFIzVWVBa2dTWUJMZWxfSUlrTzlhMEVEWjQyV1EyZTdVdDJZOHhFeDhTMTRQaXgtemhiUGdmYlA5bkVPRm9FTzdKRFJtXzh3LU9rMlU0eTA4czZJUXQzdDRUd3E0Y3hoTFE3Mlh0Zy04eHA3YV9qeVlLM1pzNDBQZXp2eVBQZtIBtgFBVV95cUxQTjM2aXhGZlhnWlpmYURTSUY4a3h5R3FCVVlZd3NiZW90LTY0WTlBeld0R29QdWtaSHpNYVphanFQMElmR2ZZd05YMGdlSXQ3Yk1CejJvWTVjYzQtYnNVSWZjc0stOHpBWWYtTEJJcDN4V1RKdHVSVlVXYmo1REk5VEhxV2tQV2J1VVJpMWVNX0ZwQUthRm5qUUFfUTNvbndZR2YwM0NCQ2lJMkNlODROUXVRVTNqUQ?oc=5) |
-| D.C.'s crime numbers are all the buzz. But how do we interpret them accurately? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE13cHhqelAwVHFmOTRldlplZGx5b0plQWk4LThXN0hKR09SY1NINFNMajVOVWNiT3Z6R0JNYlY1dDVSQ3hJOUxUcFFKT3c5V2xlWFdSNkU4NHZVbDEtcWlKNVkwSmdFV3pTMGxWWUpZYTRuNEczTmpWVQ?oc=5) |
+| The Politics of Crime Are Perilous for Left and Right Alike - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxON1hkYXVHVW15RGpPMmZNT1hMU0NnLUwwam8zeGdSbWJKVjFKT0p6ZGFIRHM4OWo3Ym5kcWs3SHVjREV6VWtvUDFQRmVXbVp0eWZQZkZPeE9seWg3eFk3bGswWWJ0d2tUOWhVOTF4VlNnZFl1eFFpLWdQNnlpNjBOamhBV1g4UHR5UmpqVVhWWFRzWFJLNmZJSw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
