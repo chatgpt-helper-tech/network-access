@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 14:13:21（北京时间）**
+🕒 更新时间：**2025年08月20日 14:24:12（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Trump Says Smithsonian Focuses Too Much on ‘How Bad Slavery Was’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNR0JabkNpRGxsVjhsZFhGTmJ1SWZEeEo0RUJKdmlLSHMzRTd5clRoYmY1R0NMVGdDQ0V6UWlqcmZ0VmxlUzh3NTNyQldweEJsWXdhalJXRkFyUVRkaDVfTjV6Rl9RWWF0QVJoZlcydXcyLVk1Yzd5UGwxQlVFU0JkMjJxMA?oc=5) |
 | DHS Secretary Noem says entire southern border wall will be painted black to stop people from climbing it - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQdzNSV0lCeXBPV3hYVk5JYVNRX3B6dkxOaDhuS0FaU0szVV8xUUh5bnR3NWlHT0lxU0FOTDBEdkhUY05Fb0JUZjhWeGUzQ21rTm1CUG55UEdoMWJfQ0plZl80Z0JhOWpZZ28wTUxJeV9lNm1iUTExNGFJUVBUbFZWSW9scE4xUHJVWWp0RU9yOWYyMDV4cDFWbGw5VHhNUnZkSGxLR1ZRRm50dVlPRWpSaEc4NldZYUNQV2VnNG1HT3VDZ2dJNHI40gHMAUFVX3lxTFBjb3ptaklxeVNod3M2MmdkaE9TSGpsSl8xdWJlYkdPcm42U1NXTUtld0ZHYXBsVnhxMnl4OVVtN3BtcHVrcHlVYXlKZmRXZlBLRzJhUVd0TW9FaUVWWGtqZ1VNcko5TzQ0TTNCcGRRQXYyYld2SmpwaHMyOGUzeFZoRGtHRVlLMUdPdHh0MGpraHpFQzRPZjJWWUs2ZU1uRzFNWXNtbDByME92NDNoOUNGb0pVRGtyTkkzVzdYN0JhQ3B5c0hVd2NGeGhncw?oc=5) |
 | California Republicans sue to block Democratic redistricting plan - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPREdmRkV6bzVZZnZjMWFfUXAxdnh2T085bF9LeUpZcHB2NHVYd0U5QXBpWGxnVHVYVTlPOFdrYzQ3UXd0aVdtRTdPWFNrU2ZKYUkwdXhkTTk1SDBQM0RqVDZVYXB6QlFyMU5vSjRqQmIxRzMxdjBCc3ZDM3VMTm50MXVUdHFGREJYakF1WFJENXptYWkxS3VranJaRnVBa0pHeGtfTU4wSzJYZTU4V1ZXanliQ0lwUQ?oc=5) |
-| Wu fires back at Bondi's demand to shed so-called 'sanctuary' policies, saying 'Boston will never back down' - WBUR | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPUEptdEFSa0ZnNFREYzZ6OTc4Q25USHNDd09HRk1pcmVKeVJFNzhiRmItQ2xhQnVsUjd1Rm5XcjMzX0pfdmpmMnFld3EwNDF3T2hPY09nWGkySFhHWXRoU3M2N1dhVDFaaDNYbkxYSWY4RW10SVg3NHM3WkNLX2ozU3Y0V1IzeDZqNGhpT01RU1JmdWZmbmRjcjBBQmh3WUlXcVdYRw?oc=5) |
+| 'Leave us the hell alone,' WA Democrats tell Bondi on immigration - KUOW | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOSHJ1U0xNVnA3bU8wd25TYi1ZSnBhY0pCdmc2N1RleHoxSm1NS1BnQmZSTnpKNXdVc3h0cjhhZW1QQWhUOUdDaEpJb2xfUmp0UUhQLXpSeHMzRnZjamtjZEdXVF9Wa2d2dFVMb2dSYnlXa2tSbEUteWF1WnNYdF9YV3pnRFVYUWpFcXdGWUctZmppZzJVUE1pUGFjNERFdmRTNl9lb3h6MS13bEdIam9GOGdBRUJPX0Zqa3g0UG1fekRlUGU3eC1iVQ?oc=5) |
 | Texas Democrats tear ‘permission slips’ imposed by Republican house speaker - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQZTFBVUpFWjdyZkxVdktwM3BMZW0tdXhIMkZ1UnZBSDF5NFNJa0V3TE1GYjYyc0p6WWg1S1hncllHblMxWmFlcTZyb0hYQWEwMzhTRVV4djdHS1dCWUt4NVJBeE1QaUtfLU42WGpFaXNqWVpHUHJoU3I1dTQtbWlOSUllemYwQzJlb1BSOVFBazM?oc=5) |
 | Trump and Putin are both criticizing mail-in voting. Election officials are freaking out. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPUV9PYTVFZ1F0MDEteUZQOXk4QzRWWi1ybDRwRklJVThmcmx4RVlhR3EwQ0R0eG0wWUNxYVZfUHlFQmFHV3Q1LXhPZ0g1VFhQREhpUHJKRU4zNDU0bnZ0V19HeldoQXpmeFdISkxSLXdCb3RwTGFjX0M4MHJpYUotMEhlb3RzOENqbHZ2NkU2dEhUbVhEeS0xSnlCRVdsUVFMUDhScGFFUjMtRHh2NzREYlVwYXQxeElIZ0I3UDk3dU5jM3RicFBJVUltZ09SYkJmN3l3?oc=5) |
 
