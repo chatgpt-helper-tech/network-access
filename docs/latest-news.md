@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 21:13:19（北京时间）**
+🕒 更新时间：**2025年08月20日 21:24:22（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Trump administration revokes security clearances of 37 current and former government officials - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPLXkta2sySHVjUmxrNENqZWVLUy0yWnVray01QzVDQm9ob1RRUGo2Mi16MTMxNS0tMmZaUDZ5V1lkUzBrNExqZEF0RThxRXJzMHpnSVBwTllRelk3NXJSZDJUYzVkU0x3M3BkTURFb1M3T01pSlZuS1pmZy1TZnNfb3ZmUHlKc04yY3RRTzBjUEtSWHVxTzd1Zg?oc=5) |
 | 5 Takeaways From the Times Analysis of Democratic Decline in Voter Registration - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQSU1vSkpvZENuSXczOFlodUlKZ190eGpOczdyU09JN3hQb1hpa1VETzd1LXZNNXVyN3Q4UENJeWdJalZ4cDljY25fclpBYzR3VkJZUjRYVlhjZzhQZDdSYVhSTHpxRzBLWDFFWG9GQUd1RmJCdkN0dWpsMmpfaFJVM2E3OGhMQ1k3LWdlLTM0aDY3R3N5dk1Zekhpek45YzFw?oc=5) |
 | A fire is burning one of the world's tallest trees near the Oregon coast - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNajkxTWM0cFRETzFURENaWl9RSVE0aS1yODF1cll3RDNpcGZINDUwOGtmbGExQW02OEt3WTZoazhueG83RVJLSFY1eEFKYVJ1LU9kem9XczZOT3Rpbk1EXzFaeXpSWFV4QlBlMUppc0xSQUM2SVJVNXd5LW5sWGROeHNfZ1hRY3Q4cFd3djVxajBhZExBWDJJ0gGcAUFVX3lxTE95ZHJXYzVuWXJoNzVOZXFDRExiVmY1S05jelpTMFp1d1hhYnpTNUw3cDRNZkpGa1VOaU1DRnBLc3ItUnkyOUpleVdvNVg1U184MklwMXNIaloyNFE2bjNjVUtpZ0VjVS1nNEdoR0pRZ3pSRnQ0R0o2S1VIVmNfZjFqdHF0UTYwY3NBY281Q0p0ZEl5M3RfSlRxTTFzcQ?oc=5) |
-| Gov. Tina Kotek doubles down on Oregon’s sanctuary laws in response to U.S. AG - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPMEVieXlPRUd2emV6YjVuUXp5Wlc3ZU5RaWp6YkVFMXY3Q2NjV2VJdzNVUGFPTW8yRHpPYXFkemlBR1RvZzdrX2hkQlJaOUYwaVVtbVBSZThYZjVyS213NDJpaHBjZG93cGZ4dTRCUkRwQkZwZVI2UXFTLUg2TzZKZ2MwNVRid0I2d2ZaUXh0bmJkTnJhNEt0Vk5wZkE4RXdXbzRHQ3RDMFhPOGFSMEJUa3NUdHNNSi1NXzJrSHpXZjg?oc=5) |
 | How Gavin Newsom trolled his way to the top of social media - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQMFIwQWpoVVpUUUY4d253c1JMbk5kT082TGV1c1lNMU1Nb1hfa2RYZkROT251NjYyWkRjcXR6ZlJkWEczeWIyVjJMaUJzaGFMcE43bWM2SUJLeUVkdXFqeURaY0JZaktXZDY0WWFoZEk4R0ZnNDI5MV9ONnBpSmNfVTlB?oc=5) |
+| Gov. Tina Kotek doubles down on Oregon’s sanctuary laws in response to U.S. AG - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPMEVieXlPRUd2emV6YjVuUXp5Wlc3ZU5RaWp6YkVFMXY3Q2NjV2VJdzNVUGFPTW8yRHpPYXFkemlBR1RvZzdrX2hkQlJaOUYwaVVtbVBSZThYZjVyS213NDJpaHBjZG93cGZ4dTRCUkRwQkZwZVI2UXFTLUg2TzZKZ2MwNVRid0I2d2ZaUXh0bmJkTnJhNEt0Vk5wZkE4RXdXbzRHQ3RDMFhPOGFSMEJUa3NUdHNNSi1NXzJrSHpXZjg?oc=5) |
 | Exclusive: Newsom pollster sees big support for California redistricting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE52c296cVkzdGs2dGR1T3dLcXJTczBiNEJucEQzQlYySU40NV93SC04ME16LUpaSHdLdGlWWWhrQWtldG1nbndLbGR0N2JZeUUwRmJSTjdhTFlMOEJfd0dUODNQU09TR0dRdUZaTWdzcWE3a1cyOVBsVQ?oc=5) |
 
 ---
