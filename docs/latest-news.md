@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 07:12:32（北京时间）**
+🕒 更新时间：**2025年08月21日 07:24:54（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | JD Vance booed during hamburger handout to national guard troops in DC - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNaWlFbng1a2E4dldVWHZNdjhqRUFabnhJUEVDWWptU1FCUkJPVDlqMlFXVjJBQ284LWlwZXRCUmtFRlFCckIwQkw4dmtlTFY3QkQ2aE00TTR4dTVHbS1xOVd1N1BxWkdBSHRwUi1vVDNkUlQ3U1ctWHZmb2dTcVZGNWtIMEQ?oc=5) |
 | Texas Democrats' plot to stall redistricting until Epstein files released fails - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQNGpPbTVPbk12MFhfNVJ0NjBQZVhRUGREU1RCWTVNU2xGSW9PdVA1bWk2ZnBWa1pWTkV5RnQ3Nm01R2Q1UWVoUG9ENmZ5dnpPejQxU2xUUmRjc0MyMkxMNC1tNVZhblktS3ZmRU9ab0J3eENJZXVza3hoLXFfSFRQMUh6amRpRlMzeC1jcnpoR0hxcXlKRzdjeHViOUhHcEhtTXc?oc=5) |
 | We asked 604 D.C. residents about Trump’s takeover. Here’s what they said. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNazVqcVhDcW8xWmF4eURMYUtEZUlJelY5c05WcU50cDBtSkxvRDh5U2M5TGRZNmlVZ1lacXNEbnZxUV9mb0JVcW5rWjU2SEM4bXpEdS1NOE1yZnRnUWU5YzNhTS1GcVRWcFcyZWJLanctbzd6VTNGVXNkSkRnZUJTeUQ5QWs?oc=5) |
+| Gabbard announces 40% cut to workforce at key U.S. intelligence office - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNZXR5ekRCX3RTbDRGWTFLY3ZWb2htZXV3MkluUDZTTTZsSkJNbDY4RjJ4c1lBM3ZPRVgzVk1vazhFMGpVQWJxdEFvYkRQVFR0bXNUOHN0V0t4NGhZb0g4TDYySHpORUZGUmhNdkZUcFA0OHdBWFNqVXBsQ09ZVHJhNWZwVS1kem5LZFFRRUZhWklsemhpUUR2ZmtmX0JEYzlBdk9aMFhTcEdrZ9IBrwFBVV95cUxPd2R5ZGZIdExLR3ROWFhiUGo3UUNnNWhnUmVwTTFqZ081MzhCR3JsWVhub3NDZnNCaFVTb19TWUFBM2NQQ0pyVUF1MTYzVnZCTkl2WGVYOXBlN3BIZzQ4cnpsUFRmWUlCSVJXcUJSdEZiQjNXVU90V1YxbFU1bUQ2NzBROFduTUprVWY2cDhKWTVkVzdoVzBMeVhwVnh3dEg4U0hhWGlld2RjbGJKU2pj?oc=5) |
 | Judge rules Texas can’t put the Ten Commandments in certain school districts’ classrooms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxOUU1RVXowcElSaXpKS09uVENpRU5mSC1CTkhDUlVVdlpNdXAxajJ5SUJzY1JSWWlUbzZJTUhQejZBVkU1TGJ2RXN5eEpqSjNKMmpwY3pzbDl3QjZ2Y0pxVUtjcmxobWtYbFdXSldGeTlBTTZsWE1wVlNSMTItNVNtYnlkd0YtWkRlVWYzWlozaEtZMVBZTlloeWVkWEVPWXJSX0t6OXlzV3p1R0M0d1d6MFkySTlDUm9DZl90Tjhrd2I2dXpsQWdvVkp5ZVhGNzFPOFE?oc=5) |
 | US court allows Trump officials to end protected status for 60,000 migrants - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPUUw1clFXRDlTbl9YNkptU0lJdEZGWjl1X0VwakZLV2xBXzRCNlFnTmZkNUlSYzNubWYwaWZsTk1QRlFZNm9iVnV4ZFF2RGNZc09waHN6UHpmY3Y0UVpGRXZfc2JUYjR2Q0dlMERLcHdUNG9ZTTZPUzFBM2VkWllWcTk1QjRrLU1LTTZVa0NQSmEzRG5tb2QwQm1B?oc=5) |
-| Gabbard announces 40% cut to workforce at key U.S. intelligence office - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNZXR5ekRCX3RTbDRGWTFLY3ZWb2htZXV3MkluUDZTTTZsSkJNbDY4RjJ4c1lBM3ZPRVgzVk1vazhFMGpVQWJxdEFvYkRQVFR0bXNUOHN0V0t4NGhZb0g4TDYySHpORUZGUmhNdkZUcFA0OHdBWFNqVXBsQ09ZVHJhNWZwVS1kem5LZFFRRUZhWklsemhpUUR2ZmtmX0JEYzlBdk9aMFhTcEdrZ9IBrwFBVV95cUxPd2R5ZGZIdExLR3ROWFhiUGo3UUNnNWhnUmVwTTFqZ081MzhCR3JsWVhub3NDZnNCaFVTb19TWUFBM2NQQ0pyVUF1MTYzVnZCTkl2WGVYOXBlN3BIZzQ4cnpsUFRmWUlCSVJXcUJSdEZiQjNXVU90V1YxbFU1bUQ2NzBROFduTUprVWY2cDhKWTVkVzdoVzBMeVhwVnh3dEg4U0hhWGlld2RjbGJKU2pj?oc=5) |
 | Trump targets the Smithsonian again, says it focuses too much on how bad slavery was - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxONzI0RGZLckJFcHVJNm5JSGZ6YVV2QjRrTTdHUjBWTGpwdnY2SjY0T0k2azA3VV9JUlZBQU9oV2NYcVRNaFhyZnZaN1RfNG1oeWVyRlFHUm5reFJEQzk3dnc5b3J3OE9MTm1EVldaSlV6UlZwVDJING1wTk5JUXIya0tKZFMyNUZUWHFNTGllWUFVa3BCZHZMRkZ3eWNLU1NMbXMybjU1NGJoM0pYUEF2MHlZV0FRNGxQU2xzQ2tR?oc=5) |
 
 ---
