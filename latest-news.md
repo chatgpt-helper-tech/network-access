@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 10:37:12（北京时间）**
+🕒 更新时间：**2025年08月20日 10:48:32（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Asylum seekers to be removed from Epping hotel after council wins High Court injunction | [阅读全文](https://www.bbc.com/news/articles/cy98gdnrl7lo?at_medium=RSS&at_campaign=rss) |
+| Councils consider legal action over asylum hotels | [阅读全文](https://www.bbc.com/news/articles/cp3e221qgeeo?at_medium=RSS&at_campaign=rss) |
 | Practical and political pain for Home Office after hotel ruling | [阅读全文](https://www.bbc.com/news/articles/cy40wx73mwzo?at_medium=RSS&at_campaign=rss) |
 | Kremlin plays down Zelensky talks as Trump warns Putin may not 'want to make deal' | [阅读全文](https://www.bbc.com/news/articles/cn92e52rpjxo?at_medium=RSS&at_campaign=rss) |
 | What 'security guarantees' for Ukraine would actually mean | [阅读全文](https://www.bbc.com/news/articles/cx2qr08l1yko?at_medium=RSS&at_campaign=rss) |
@@ -29,9 +29,9 @@
 | US, NATO planners start to craft Ukraine security guarantee options - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNSEF5RjBRNFNZeWl2OFhzdVIxWG5TS09FZGMtZVY5LXBPamI4Nm1qd3JnUDVmLUt5WjBfSllSLVhEY19laGtFMkNIbkhETzJnR0ZTdXlSVGNIX1RMZEh2SjRVMXQxNGlUOHRGQTZVaUhGWGdJdmsxVVkyOUY4aXdQSUhZUUNkWHhWNmJKRkFTaGl1U3FoYXA4NXFiX2RpRWhLX3U5U1dTUUs2UDVJSG84M01R?oc=5) |
 | Border wall will be painted black at Trump's request, Kristi Noem says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNUzByUzBkT05MZnFnOU0wVk50UTJPRGxHa2JYSTVKZjBPUEZ5QWt6SDZYMkJaTHZPRlU1Qm1RNHIyeEk2d3VqUERzMDJmQUZSYzZ6VUo0UlhZeXlQNDRxcEtmaGZYUWFMblFHMzhaOEFFczJVeExhdDVzVXZ3NzJxT0hWcmRvdw?oc=5) |
 | On Trump’s order, dozens arrested daily in D.C. The details are hidden. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOZml6OHIyYTdpSVMzeTVfbnZxcjVOQnZVWHJ0ZDd0M0VaZDltOVA2cjh5Y3RUQk9od2h4VWs5bkt2alFQLUpOZzViSFFVZ0ZhWktudjVERld3eHdjd2RaNi1XNTcybGJiZ2lWMGg3ZUVtRDFkR2JDUG43dDlkVWJTTU1wZXJrNlF2SGVyZE1B?oc=5) |
-| Carolinas will be slammed by flooding and huge waves as Hurricane Erin passes - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOZWo0RWlBX2t3LVVhdW1mMG1LUXJySWkxNmxoR05iWGVVelQ1aTdZeHBhSkFRYmw0RDJVQl82UVpqOGp5S1IxbFNCWl9ZOVhqNjNvTzh1QU9LLUhmTEpfaEFNUXlVMjA1NmV2ck5ZREloMEl2QjBFeW9XMVY4WjN1clppOWZIbkcwWDk1ekhMY3FGOFFRMUYzVXowZGVLQQ?oc=5) |
+| Hurricane Erin triggers storm alerts in N.C., Virginia as some East Coast beaches shut - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNdElRUm0xVnFORlNlQmNaQW5KblJlSjd6c081N2t0eUpiUTcwNlpybUZMVlBNVXBLT3J4dWptQU02OF8zUm9NYVBhVEtjWFRHTzZ5WEliOEF1c2IxNlJRYkxlaTJjNlRBX1VJaTg2MDY1aUNyYTI1NEl1MF9jZ3dZX3Q1MTFFT3RRNkE?oc=5) |
 | Texas Rep. Nicole Collier alleges "illegal confinement" by GOP after refusing police escort to leave Capitol - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQVXVkYzV5SXBUaEE2OTRjUVdCUGJQaUtmMzlucXB4eFRUZGM0YVFTZ2pfZEFWbmdraXJpcEpVTHZqdjBMM0F5UGNTdERFT0ZPRzA3QWdqWG0tckZvbmdzUURpYW51dGd4TElIb1BqeGxVTzFTMjJhOE9TWkRXZHAtZ3ZleDQ4QUd3eG05cTRPOV92ekZ6ZnBlTUxYMFRNaFJneDM2cEdQbmtuQmRuUnpFVkIxdnU3NFdnVV9ON3g4a0VETV9Ra3lkUEdmZUNZTUdG0gHWAUFVX3lxTFBPM3Nway1LMkdxcEVqdERYQmFGV011bnpMRlpaVll1RVI3NFZtTXNJbld0SC1BcFdDcHNaZDRpTEM2d1FQSHg0d1puakZsYU5ld0VNbnByZzR6Rk52aElaM01xYXBOakd6TWloVjJWOHg5M3d1b3dYbDgtd1VzSGRkNE9IRjNZV25WaTBKSWFxWERwOTV5djZvMFNxeEtySENhMWtFQWx2SHVYeEdIOERiUW5kZ1ZpTEF4bkZaWDM4WTMycHVhSEFtR2ZXYVFJVUN3RUZrSmc?oc=5) |
-| Citizenship reviews now ask immigrants to show "positive contributions" to U.S. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNckJEM0pIQmF0elZTZDRnNGhxUllJWmprdkJmaVF1Q29ocllodE9qQm40bVBxN01lVEprVFB4eFh2VDFsTnhzeEhRa1lUVXZCQklvT0tFMXZzNDU3LVZobGdfN19UOEIwTGpobm1GUzhLTzJsdWJEQURUSWE5RTQ1RmhNVXBzMHd6WjJR?oc=5) |
+| Immigrants seeking lawful work and citizenship are now subject to 'anti-Americanism' screening - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQSmsxdnlJYURyN2pYQmRjZG1YUjUtdHlvT2RpTm54aHZOdy15RmxwR29FVjB1dFYtQzBpRnpjNHRjR3VXZnNuNWR0RnE4a2JfXzhWTENoN3lIWjhQdzJ6TlczVmZvYWRsZVZCbGxERHFiQjhHZ2NMdlNqZGpTRjZBMERzR0hSX3Q3WktIN2JFYmlMdndv?oc=5) |
 | Can Trump really ban mail-in voting? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBPa3lWMVR3Rm1jMGlTM1FRVjlBQTJYaHljRFJvcWVHX1FiZXcxN25GUDBxUXNmQzUzM3FCUENEazdESm92N2ZfRHR2NEpaN1Vhck5ZTEd4aXc1d9IBX0FVX3lxTE54VUo0aVFlS1hpZldJN3NlTjUyblQ4YW1INHhSN1dReFdOYnp1NDUtbzAwaG5WNlJMbmc3aFdFeFE3VHhnV3V3TFpzSEhqaEx6Q2hGdFh5TUgxWTlHUURJ?oc=5) |
 
 ---
