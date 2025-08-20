@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 16:12:03（北京时间）**
+🕒 更新时间：**2025年08月20日 16:24:11（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Kremlin plays down Zelensky talks as Trump warns Putin may not want to make deal | [阅读全文](https://www.bbc.com/news/articles/cn92e52rpjxo?at_medium=RSS&at_campaign=rss) |
 | Trump under pressure as obstacles to progress on Ukraine persist | [阅读全文](https://www.bbc.com/news/articles/c776edpr10eo?at_medium=RSS&at_campaign=rss) |
 | UK independent space agency scrapped to cut costs | [阅读全文](https://www.bbc.com/news/articles/c4gmjm8z47jo?at_medium=RSS&at_campaign=rss) |
-| Leaked report shows 10,000 shortfall in probation staff to manage offenders in the community | [阅读全文](https://www.bbc.com/news/articles/cy7yj0gkl3zo?at_medium=RSS&at_campaign=rss) |
+| Leaked report shows 10,000 shortfall in probation staff to manage offenders | [阅读全文](https://www.bbc.com/news/articles/cy7yj0gkl3zo?at_medium=RSS&at_campaign=rss) |
 | Pine nuts and goat's milk should get allergy labels, say experts | [阅读全文](https://www.bbc.com/news/articles/c5ypgrzxx9go?at_medium=RSS&at_campaign=rss) |
 | Sanex shower gel ad banned over racial stereotype | [阅读全文](https://www.bbc.com/news/articles/cn92znzx8zzo?at_medium=RSS&at_campaign=rss) |
 
@@ -32,7 +32,7 @@
 | Trump's redistricting war heats up as Texas, California feuds escalate - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQT1dXb0dtTkR6NDBfQW9YdHg4NHFFcGtraGNHc0tUc2RhSWsxMGhmQnUzX3dOSGtER18xZHlfeEhESzlHZTVrbWZkNThjUjRpbWtIclI5dGh0dGxoUDQ1cGlWRVVGYUk0eVlvWmZTWFVKOUJENTZid1cwTDRsZ3NKNUIzbFZfUmlKM3lHLWlZcw?oc=5) |
 | Gov. Bob Ferguson to U.S. AG Pam Bondi: WA won’t ‘bend the knee’ to Trump regime - The Olympian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5jaWxXekVXTUVZRlN2NXlmZmR4ZFJycXNBemNlUjhtekpuT0hOcGRTVnVkTDlUQmo1NFJ1Tm9oaXNSYUxzR09yS0o1MDlFc2tzZDdVZjhyZ2tJYUc2ZnpVb000aVBSSEhVQWMwSXJfUEd1UUUtWVNTY0ZnZGNISTTSAX9BVV95cUxPWUI3SWgzX2pwVTh0dnZaZEFKR1ZxYk1BbUd5Yk5UZktDWXNEa202ZExtZGtwbXBFV3d1S2FwOHVfQkdwVVUwMHZOa2QxeHVGaGdfbTF3c3lxbDJlZGFBOGNYZFVDVlpCYWxkekc5dm83T1cyeTAxTURYRktHTjFz?oc=5) |
 | Trump and Putin are both criticizing mail-in voting. Election officials are freaking out. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPUV9PYTVFZ1F0MDEteUZQOXk4QzRWWi1ybDRwRklJVThmcmx4RVlhR3EwQ0R0eG0wWUNxYVZfUHlFQmFHV3Q1LXhPZ0g1VFhQREhpUHJKRU4zNDU0bnZ0V19HeldoQXpmeFdISkxSLXdCb3RwTGFjX0M4MHJpYUotMEhlb3RzOENqbHZ2NkU2dEhUbVhEeS0xSnlCRVdsUVFMUDhScGFFUjMtRHh2NzREYlVwYXQxeElIZ0I3UDk3dU5jM3RicFBJVUltZ09SYkJmN3l3?oc=5) |
-| Nebraska governor announces plan for immigrant detention center to aid in Trump's deportation efforts - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBfZFowUkhfd2RHajZXeFNJT1E2REZFaVRXck5KcXNyb3BKMExoVi1fX2UzMlBQWjE4cHc2TWRPMUhGaVpHTFpZcW15OTNQdEpWZ0hMT0hEc0VFbDhyOVJuWUxjdWRSMk1Ec1N2a3Y0NVVFLUhha2U2WktB0gF_QVVfeXFMTVU3bEZhTkJzNG5IY2hONl9rSS1EalhuSXdTSHJOMmwybkZkdEF4eS1BWGlKLVRnSTNBcllOQ3NjR1lXd05IWkpLeFp4QlNoaWhnUjVKR2J0aG5Nc2hLN1JKak11VUE1UnVMMlQzWXpPQ2UtYzFzQXdzdGFqeFVVbw?oc=5) |
+| Abrego Garcia’s Lawyers Accuse Trump Administration of Vindictive Prosecution - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxONklPTTJKeTM4MzN2Z3prYkIyS2tlMWREQzc4V2F5c0hNSV9ZYk9JbU8wazV6R05iMll2Rkk2QmNIdWMzQUI3YUxaOGxlSFA5THA3ZjJBV3Y2c3ZNWHIwMjFlazJIOVpSZXJwZXpvbEVPNmFZeWU1S0FrcmhBdVBzVTE2ckp5MVY5UDE1Uk1KWUI5dy1Y?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
