@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 10:12:15（北京时间）**
+🕒 更新时间：**2025年08月21日 10:24:50（北京时间）**
 
 ---
 
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Texas House passes new GOP-friendly congressional maps - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxORnhjdVowRG1feUVsX2NLSGlRbjFENDVjajZXeDdCVnRJRnU1SXYtUl9YMXJCalZWaUlJMzRRcmZQVTJnSWc4czFSQ0xzYlM4X3FSd0lSdUZXbno3ME1Cd3ZOTWY5eXJyMk1Bdld2WVQ1b3V2U2MydE5jX212RHZVeGVrdThGbzRRYUM4Vl9OY0dXUG1jVkVKbjRuLU9KR2c1R1HSAacBQVVfeXFMTVA1WEdPbXh3RTUxRHk5VHREZjVTWkNxVmk5ZlhaZW4wSFZ2dGQwNk1uMU1COVllc2d1U3h3YkZOa0EtalRib1EzSW5DY2N5V3dUd09QUW9xTVQwbTFieWhjNlpxc29KQ055cWswRHpzWFAweHJvdGhsQ3ZDLVAzbkhVWVhPdWVZcUszV3pCN2NQZHdDeDBYTnFMRTFVemc2WXZPa3g0Ylk?oc=5) |
-| Israeli military says first stages of assault on Gaza City have begun - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE95UU1Gc3hYX0JVSFhFV2RoblQ4SXFuUVhEb2c4TXI2dmlZbkxzMHd0U25HZmY1RkxMeFF3REVqS2lKdEdhck1iZm1hWm40MlpBdlJtM2VRWUJNUQ?oc=5) |
+| Flooding begins in the Outer Banks as Hurricane Erin moves north - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOTHR1NlktOXVBUzhLNGhUelh1TTl1MWZqSjNvOERRQlFHNHRCUjY0bVRiN3dESzJMckt3NnV6OVdOWE83VjQyYjQzRVVERnFaeVFFVjBmc0R6VUJ5eHlTMDBiX2hBaGZ1ZjVCMHRDOHBadi0tZ3dYNHhHdjRfUkRWTkkyLVM4SFMxTi11Y1k4bEh6UVBzaFFYajBZTQ?oc=5) |
 | Trump administration’s anti-woke campaign targets Smithsonian museums - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOV01zT2d3SHllYU1pZUcwNlppMFV3RmFqN0J3OGwtNkpZZXYzMWFpVHhKTWdDaXhHN3RJOEdGUGlCUE5mQjVlVGxXQ2xqX0ZoaHhmS3JqRTJSNVE0UzVaQVEyR0lja1RYNDhYOUR4dVIyZXROMGFwQy1LSVByaEE0dXIyT044WnJFY3RJb2M3R283Q05yTW8zeDRR?oc=5) |
 | Obama backs California effort to redraw districts in response to Texas - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxOU2RWeE5RM3hpb2VOalhWU002VEdtS3hPWjdHdjZqbFdId1k5RFFBMFE1V3VKRm9Mb290VTFOQVJOSFF3aEx3aTRRZlJFWGxUbkdrWXAwNkhrS3ByRmhsWEp6endTUV9sNTVuOFJCMllZaUpjVVBhM0ZZMEh0aG9JZEJabXdkWnRwT1BoeGxpaEMwWlRteFEwRHpFY0pfdWg2TEpKQmZjcW5WaXEwZHVqaDlQbmpZbVAtZVB5YQ?oc=5) |
-| Flooding begins in the Outer Banks as Hurricane Erin moves north - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOTHR1NlktOXVBUzhLNGhUelh1TTl1MWZqSjNvOERRQlFHNHRCUjY0bVRiN3dESzJMckt3NnV6OVdOWE83VjQyYjQzRVVERnFaeVFFVjBmc0R6VUJ5eHlTMDBiX2hBaGZ1ZjVCMHRDOHBadi0tZ3dYNHhHdjRfUkRWTkkyLVM4SFMxTi11Y1k4bEh6UVBzaFFYajBZTQ?oc=5) |
+| Israel says it has taken first steps of military operation in Gaza City - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOTG50UFpwMmxfTUx1SHVCYXRBRWlSQURjRm1JM1pqSlNNaW1Ueld5Mk5ZVzVEQnZZSFlyemlnbTBUWE9UcC1ybExrQkNrVXI3Um9Tejd2R05ZSUJRQ2hFYXZaTkJEUUM5emROQjFzM1F1NDB4clI1SFJMV2x6ME41SlFub25aME0xTkp6NUY4MVFuS2F1MXg1SDh5NXV3U1U4VHVzTDZBWjl6a1ZGbUEwcldiMEVlYlhGQndKQ3hn?oc=5) |
 | JD Vance booed during hamburger handout to national guard troops in DC - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNaWlFbng1a2E4dldVWHZNdjhqRUFabnhJUEVDWWptU1FCUkJPVDlqMlFXVjJBQ284LWlwZXRCUmtFRlFCckIwQkw4dmtlTFY3QkQ2aE00TTR4dTVHbS1xOVd1N1BxWkdBSHRwUi1vVDNkUlQ3U1ctWHZmb2dTcVZGNWtIMEQ?oc=5) |
 | ‘This cannot be normalized’: Blue cities and states rebuff White House over immigration enforcement - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQMmY4elpZZXR6cDNOSFg4a3lhbDZUMmstOWlXcHNfaGI3NUlKWWQ4THhJTGhlbjBTeDZpTlFXLVdDRDdwSmdvN19rM1FMc1NXZUlmR01acGpCVlZlUjd5UDdQOVpseXdsVGt0ZmpHbUZBT2N4VDEzSng0U0t2NUxqUTJvX21pQTFUX25IRTVJUElhbkRpNnAzZ2FkS1ZSTVpvbUkydzIzSU1vTms3Y0YyRw?oc=5) |
 | Camp Mystic Parents Demand Changes Before More Children Are Lost - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1qdDdHdjEwX25kTDNtTEVudnM4ZnpxaWp6X2NvVl9lamJyR1liYXlMOTZsNG9jNFJaUm1iNUxsRmQ1VVNENDJBa1NvZGZZZ0dSRHFDUTJCNTBYZWpzblQyWGRUaXZabVJZQWNmV0NIS0hCamh3ZTBkektlUQ?oc=5) |
