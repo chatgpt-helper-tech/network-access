@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 01:13:27（北京时间）**
+🕒 更新时间：**2025年08月22日 01:25:26（北京时间）**
 
 ---
 
@@ -9,6 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | UK's third-largest steelworks collapses into government control | [阅读全文](https://www.bbc.com/news/articles/cy0818y4jdlo?at_medium=RSS&at_campaign=rss) |
+| Five key takeaways from this year's GCSE results | [阅读全文](https://www.bbc.com/news/articles/c70x5j8z34do?at_medium=RSS&at_campaign=rss) |
 | Record 111,000 UK asylum applications in past year, figures show | [阅读全文](https://www.bbc.com/news/articles/cwy1kxv8xewo?at_medium=RSS&at_campaign=rss) |
 | 'Slave-like' assistants and late-night massages: How a radical priest abused his congregation | [阅读全文](https://www.bbc.com/news/articles/cr4ezy313qwo?at_medium=RSS&at_campaign=rss) |
 | Appeals court throws out Trump's $500m civil fraud penalty | [阅读全文](https://www.bbc.com/news/articles/c5y09q1zgg8o?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | Russia launches biggest wave of strikes on Ukraine for weeks | [阅读全文](https://www.bbc.com/news/articles/c62wj8yje2eo?at_medium=RSS&at_campaign=rss) |
 | Hundreds of thousands of Grok chats exposed in Google results | [阅读全文](https://www.bbc.com/news/articles/cdrkmk00jy0o?at_medium=RSS&at_campaign=rss) |
 | UK backs call for Israel to allow foreign media into Gaza | [阅读全文](https://www.bbc.com/news/articles/c05ed10zqj8o?at_medium=RSS&at_campaign=rss) |
-| Tube staff to strike over pay and work conditions | [阅读全文](https://www.bbc.com/news/articles/cn728er5p1mo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -28,7 +28,7 @@
 | U.S. and EU flesh out trade commitments under new framework deal. Here's what is in the pact. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9wV2xMbmJnNE9xRHVKVGxVS2ZVYU9SVVFWbi01VzFUNE4wWWUzUkRmaUNyMFIxakNTcTRReDhwMjIzTzVVWGY1NGU2d1I5SVFsYzRyQl9sTXhjUUFOdTczNnIwd1Z5X1JRTHhfZtIBckFVX3lxTE5ydlNpZnBrM19JVzZXWFpXYU41U3ZLSE1hQUJYT05aVWF1WFREaVJSVHhrV2RYZkhoREVIaGlGeGVJQVlhbEl4N2FPZ25uR3BQYS1WY3U1T3JzckdWZC02WFBhMm9BYVNXaUpiaU4zZVdHQQ?oc=5) |
 | A Russian airstrike hits a U.S. factory in western Ukraine - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5vbjZ5NDY2R1FxbFNmWE9GVGl2OWFhV19pM0Z6RW5aVEVSamF5UVhiX2JHc0hxR2EzMWIwTXlsZTdDd1hPSExQbWhGYWZIeHdtbWpnUkFtb2p0cHhKS19DSURCcExZamdmUGZieU8tQ21BT2tBVkE0WllXbGJTdw?oc=5) |
 | What about Texas? California Republicans pressed for answers in redistricting fight - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOVWZBamZSQmVOVVQ2cXlDNndTbXpvMGtiRjQ3MGE0MF9QLVJURnFXbDdUX3NDYnlEeWN6NFVJVU9WVTNFWjE3a0UxVVhQbTR1NTQzbzI4WnI0UGd3QkE2WEdwY252Z0FzSERTSmFOODY2aDFMQXNCWDRFQW12dWpqVUU3cGtVajFYWTJsV2FyXzNjUDJz?oc=5) |
-| James Dobson, founder of Colorado Springs-based Focus on the Family, has died - Colorado Public Radio | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPc3d6Um5YVmhrRHVmRE91WVpWSnE3UVlKM2NRdmQwVldOYmc3aWU0QUdSbVRmSmpsZEo2SVZPX1ozeTZtVFJMNU44TF9QMDF0VTRITE5mTHBseTBHMmVuSXpZc0k1QnhiUE5KU2RZSVl6NkpzbUQwV1V3U21xUzE3NTkxNVF3azQ?oc=5) |
+| James Dobson, influential founder of conservative Christian group Focus on the Family, dies age 89 - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNYVF3c3dSN2k3b2RlQWFxYmNDTzAtZWI0VDBYNm40Qmxtc0hOcUFUZWhJS0FzVzR0SWd3VUF6b01NSllYM1BpMEFVaFFZRTNMalNtZVAzT05yZ1RBMEowZDJNVFZlcVZWLTRjNE5PMHhpTzhvekRtMVBHMnoyVWZLNVJ5YUdOQnNQUDhmSNIBkgFBVV95cUxNa3dRek1qeFdQRHpmM3FOczJLUXhlRWlLQ3draXNYNjJsbDVJb191NTVQMWlvN2NjMXlvVWZ0OHpQN1ZYeVFzQ21QU0xGODQtSmk2VF9CLXBfQ0R0YXlRTXlrNDJWeGx4c3VyeTJackRFQU5rOWRKTEt1QkZFQkZNSW15aW1OTWZMZ0pkV2lwS255dw?oc=5) |
 | Lawmakers are debating GOP congressional maps. What does redistricting mean for Texans? - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQWk9wVkJHM3ROLV9SQzhaaUhzZDh2MlFSQkR4YUtxa1RoX21UWmt2cUNFVy1TQ3BlWnZSSlM0Y1dGNWdMRWdmNHZYSGx0bFFjanBSYUJpUXZrME5NVEtIbmhhTVg0SXZFVmpoS0FmWlpERXA2c1pkWkdnTUlmX2FlS196OXVkdFJ0S0toaEN3?oc=5) |
 | What to know about the Menendez brothers' case as their parole hearings begin - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQbkFOUFFPdEpoakhSanExTTA1Nko2eEQyY0Iyb2NQbkRNSHQ3TzdlTk10VHZzbVlpLXZ0WGNkN1VZWFdrV0FIUjhaSkpDREgtMXBybVkzUWE4QnVSRnJZQ3ZFN1FNdE44dUVzbUpaelhGcWlHa3RhRWlNYVBuNHJyVUJrbEI?oc=5) |
 | 'A wake-up call': Newsom's Trump trolling is riling Republicans - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOd2hRNHdQX2FpUHEwZ1ctQ2FYTUcyM3VobmxFNE1QX2h6S29jYzQ3ZUptMGpqQUZDUXhPUDVKUlJBNnNkT0d0UWh0M2d4ZGRuTzVIZHRiTWRVNVM1NnJXdVh2YUlmVFcyeDBzcDRLNVotNEpGLURCckNqb09HMXI3M1RBNDFIdw?oc=5) |
