@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 16:00:55（北京时间）**
+🕒 更新时间：**2025年08月21日 16:12:54（北京时间）**
 
 ---
 
@@ -10,13 +10,13 @@
 |--------|-------------|
 | Dozens more UK Afghan data breaches uncovered | [阅读全文](https://www.bbc.com/news/articles/cp8950pyy1vo?at_medium=RSS&at_campaign=rss) |
 | Palestinians flee Gaza City districts as Israel says first stages of assault have begun | [阅读全文](https://www.bbc.com/news/articles/clyr7l0z9edo?at_medium=RSS&at_campaign=rss) |
-| More councils consider asylum hotel legal challenges | [阅读全文](https://www.bbc.com/news/articles/cwy0j9n4qzwo?at_medium=RSS&at_campaign=rss) |
 | ICC says it deplores new US sanctions on judges and prosecutors | [阅读全文](https://www.bbc.com/news/articles/c620l3y7ydro?at_medium=RSS&at_campaign=rss) |
 | Rugby star Ilona Maher has Hollywood in her sights after offer to join the WWE | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/cy40w4xd9mlo?at_medium=RSS&at_campaign=rss) |
-| Sony raises PlayStation 5 prices in US as tariff fears persist | [阅读全文](https://www.bbc.com/news/articles/cy081prg9jjo?at_medium=RSS&at_campaign=rss) |
+| Microsoft boss troubled by rise in reports of 'AI psychosis' | [阅读全文](https://www.bbc.com/news/articles/c24zdel5j18o?at_medium=RSS&at_campaign=rss) |
+| More councils consider asylum hotel legal challenges | [阅读全文](https://www.bbc.com/news/articles/cwy0j9n4qzwo?at_medium=RSS&at_campaign=rss) |
 | Government borrowing lower than expected in July | [阅读全文](https://www.bbc.com/news/articles/cj6ydlk4e1no?at_medium=RSS&at_campaign=rss) |
 | 'Ice-cream man' in fatal Wembley attack named | [阅读全文](https://www.bbc.com/news/articles/cx23g97vk9mo?at_medium=RSS&at_campaign=rss) |
-| Microsoft boss troubled by rise in reports of 'AI psychosis' | [阅读全文](https://www.bbc.com/news/articles/c24zdel5j18o?at_medium=RSS&at_campaign=rss) |
+| Sony raises PlayStation 5 prices in US as tariff fears persist | [阅读全文](https://www.bbc.com/news/articles/cy081prg9jjo?at_medium=RSS&at_campaign=rss) |
 | Frank Caprio: 'Nicest judge in the world' dies aged 88 | [阅读全文](https://www.bbc.com/news/articles/c87ewp437e2o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
