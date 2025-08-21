@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 03:37:26（北京时间）**
+🕒 更新时间：**2025年08月22日 03:49:47（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Donald Trump backs down from 250% EU pharma tariff in deal - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5lWHBkLWprQWZWRTJWWHFGZGhUYWU5SDZRRlNIOVFOekVUYmJJNU00OS13RTdPZi0wbEdId1dnbHAwV2lYWlVQcnlhTk9aNFlReDhlMTRwQ3FNUdIBX0FVX3lxTE9SRkE1ckJ0VGlWbTQyaXlFLXBtMGxtYjk1NG5reGlDcGdpNWVubkdQekF1VUZiMU9XNF91S1NhNm93X0hxZFoycFJHLTRoMFp3alhGT3laTVpXeWYzU080?oc=5) |
 | Illinois to Bondi: Sanctuary status stands firm - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOVW5UNlBxQndoUzV2YnZnVHltVEp1bGN4enF6N01wbTZxVUc2aUtKZGxYYXg2bHhmVXZpUnhoNkhNS1R5dGhUZWJsNlBUdDRkSXFrYnltVjE1alZxbDZMLWV1OWVUZHh3Uk45SGJ0Z1lfeDZMeVZfUHRXdmpYNEl0WEd1akJkX1BwWWNVV3hGeGg0eVVLNEFnVjZka3hMX2JTUEoyQ0ZBdDdXSG5sVXBxcFJkb2VjX3Q4ZmpBOTl3?oc=5) |
 | Texas Rep. Nicole Collier abruptly leaves call with Newsom after being told she’s committing a felony - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQVXFWVGhkU0NRYlVhbUxrekZCeVR0MW13blRMRm1zalNvcURtall3Vi1hNURGN0NBVXEzYXJ3U25BRlFIOUFmclJ2ZThSbVNSNzJlOWlnYzVKbjAwaFBJeUtIWjhraHpvZDFlTGQteWNCWjFCVjJYb1IxQ1l1VmhWMThZT21CZjV2b29sMkNPRU9qMlJuVUI1cnZ5MTNmeWZseVRXNjNNNFR0YjBhMVRHUlp3UWNtdTlJOWdvRTE5WGVvZmp0LTRIRzhGSFdVY3J1NWc?oc=5) |
-| What to know about the Menendez brothers' case as their parole hearings begin - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQbkFOUFFPdEpoakhSanExTTA1Nko2eEQyY0Iyb2NQbkRNSHQ3TzdlTk10VHZzbVlpLXZ0WGNkN1VZWFdrV0FIUjhaSkpDREgtMXBybVkzUWE4QnVSRnJZQ3ZFN1FNdE44dUVzbUpaelhGcWlHa3RhRWlNYVBuNHJyVUJrbEI?oc=5) |
+| Lyle and Erik Menendez Make Their Case for Parole - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1tR3FNZUtFbmZDRFlqYXYyc04yQXVYbVZabnoyc1JWQ1pGSmFnb0Rta2ZCckFjVkprMVFpaHBjdzRGdWFIemZadWctSkdvMHg1WjFqdC1zU0xXSXpFeDNsc0hUX2VaaDZsS0V4OGswaU4tMWx2RWc?oc=5) |
 | 'A wake-up call': Newsom's Trump trolling is riling Republicans - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOd2hRNHdQX2FpUHEwZ1ctQ2FYTUcyM3VobmxFNE1QX2h6S29jYzQ3ZUptMGpqQUZDUXhPUDVKUlJBNnNkT0d0UWh0M2d4ZGRuTzVIZHRiTWRVNVM1NnJXdVh2YUlmVFcyeDBzcDRLNVotNEpGLURCckNqb09HMXI3M1RBNDFIdw?oc=5) |
-| James Dobson, influential founder of conservative Christian group Focus on the Family, dies age 89 - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNYVF3c3dSN2k3b2RlQWFxYmNDTzAtZWI0VDBYNm40Qmxtc0hOcUFUZWhJS0FzVzR0SWd3VUF6b01NSllYM1BpMEFVaFFZRTNMalNtZVAzT05yZ1RBMEowZDJNVFZlcVZWLTRjNE5PMHhpTzhvekRtMVBHMnoyVWZLNVJ5YUdOQnNQUDhmSNIBkgFBVV95cUxNa3dRek1qeFdQRHpmM3FOczJLUXhlRWlLQ3draXNYNjJsbDVJb191NTVQMWlvN2NjMXlvVWZ0OHpQN1ZYeVFzQ21QU0xGODQtSmk2VF9CLXBfQ0R0YXlRTXlrNDJWeGx4c3VyeTJackRFQU5rOWRKTEt1QkZFQkZNSW15aW1OTWZMZ0pkV2lwS255dw?oc=5) |
+| James Dobson, influential American evangelical leader, dies aged 89 - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBKYi1Od3YtSW0tcHdENlVRak9jS000QmJNdzU2ekVIWTVhdllqM0laOElfakl5ZUc2Z2g1V04wMXlpcTYtc2ZvNE5sVU9ZVjBacWhCZUJSTjZlQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
