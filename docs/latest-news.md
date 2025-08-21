@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 01:25:27（北京时间）**
+🕒 更新时间：**2025年08月22日 01:37:35（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | James Dobson, influential founder of conservative Christian group Focus on the Family, dies age 89 - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNYVF3c3dSN2k3b2RlQWFxYmNDTzAtZWI0VDBYNm40Qmxtc0hOcUFUZWhJS0FzVzR0SWd3VUF6b01NSllYM1BpMEFVaFFZRTNMalNtZVAzT05yZ1RBMEowZDJNVFZlcVZWLTRjNE5PMHhpTzhvekRtMVBHMnoyVWZLNVJ5YUdOQnNQUDhmSNIBkgFBVV95cUxNa3dRek1qeFdQRHpmM3FOczJLUXhlRWlLQ3draXNYNjJsbDVJb191NTVQMWlvN2NjMXlvVWZ0OHpQN1ZYeVFzQ21QU0xGODQtSmk2VF9CLXBfQ0R0YXlRTXlrNDJWeGx4c3VyeTJackRFQU5rOWRKTEt1QkZFQkZNSW15aW1OTWZMZ0pkV2lwS255dw?oc=5) |
 | Lawmakers are debating GOP congressional maps. What does redistricting mean for Texans? - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQWk9wVkJHM3ROLV9SQzhaaUhzZDh2MlFSQkR4YUtxa1RoX21UWmt2cUNFVy1TQ3BlWnZSSlM0Y1dGNWdMRWdmNHZYSGx0bFFjanBSYUJpUXZrME5NVEtIbmhhTVg0SXZFVmpoS0FmWlpERXA2c1pkWkdnTUlmX2FlS196OXVkdFJ0S0toaEN3?oc=5) |
 | What to know about the Menendez brothers' case as their parole hearings begin - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQbkFOUFFPdEpoakhSanExTTA1Nko2eEQyY0Iyb2NQbkRNSHQ3TzdlTk10VHZzbVlpLXZ0WGNkN1VZWFdrV0FIUjhaSkpDREgtMXBybVkzUWE4QnVSRnJZQ3ZFN1FNdE44dUVzbUpaelhGcWlHa3RhRWlNYVBuNHJyVUJrbEI?oc=5) |
-| 'A wake-up call': Newsom's Trump trolling is riling Republicans - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOd2hRNHdQX2FpUHEwZ1ctQ2FYTUcyM3VobmxFNE1QX2h6S29jYzQ3ZUptMGpqQUZDUXhPUDVKUlJBNnNkT0d0UWh0M2d4ZGRuTzVIZHRiTWRVNVM1NnJXdVh2YUlmVFcyeDBzcDRLNVotNEpGLURCckNqb09HMXI3M1RBNDFIdw?oc=5) |
 | The potential next target of Trump’s bid to control DC: Local courts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNS1hNbXEzbWtkYnlRRklYTl9GMUNqYWJXOWZ4c3UzOXQ1V0pOX2txYXkzVWNDQjdnUnVYYkRmcXBOYjV3WkVueWxSR0Z4UlRvb2szcVU4WGlQSVR5RVlMVXZvUERCTTBLTWp0ZVY3ZjJHV0VTb2Y4WDN1VEljampQdFhsVXVLXzA?oc=5) |
+| 'A wake-up call': Newsom's Trump trolling is riling Republicans - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOd2hRNHdQX2FpUHEwZ1ctQ2FYTUcyM3VobmxFNE1QX2h6S29jYzQ3ZUptMGpqQUZDUXhPUDVKUlJBNnNkT0d0UWh0M2d4ZGRuTzVIZHRiTWRVNVM1NnJXdVh2YUlmVFcyeDBzcDRLNVotNEpGLURCckNqb09HMXI3M1RBNDFIdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
