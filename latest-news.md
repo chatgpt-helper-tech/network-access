@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 14:01:07（北京时间）**
+🕒 更新时间：**2025年08月21日 14:13:00（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Sony raises PlayStation 5 prices in US as tariff fears persist | [阅读全文](https://www.bbc.com/news/articles/cy081prg9jjo?at_medium=RSS&at_campaign=rss) |
 | Rugby star Ilona Maher has Hollywood in her sights after offer to join the WWE | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/cy40w4xd9mlo?at_medium=RSS&at_campaign=rss) |
 | Texas lawmakers approve new electoral map favouring Republicans | [阅读全文](https://www.bbc.com/news/articles/cp8z4nj17dno?at_medium=RSS&at_campaign=rss) |
+| 'Ice-cream man' in fatal Wembley attack named | [阅读全文](https://www.bbc.com/news/articles/cx23g97vk9mo?at_medium=RSS&at_campaign=rss) |
 | China's Xi touts unity and development in surprise Tibet visit | [阅读全文](https://www.bbc.com/news/articles/cjr19770x7lo?at_medium=RSS&at_campaign=rss) |
 | Delta and United sued for selling 'window seats' without windows | [阅读全文](https://www.bbc.com/news/articles/c754k7d0z51o?at_medium=RSS&at_campaign=rss) |
-| 'Ice-cream man' in fatal Wembley attack named | [阅读全文](https://www.bbc.com/news/articles/cx23g97vk9mo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
