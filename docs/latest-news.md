@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 15:25:30（北京时间）**
+🕒 更新时间：**2025年08月21日 15:37:48（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | NH mother killed husband, 2 kids before fatally shooting herself, state AG says - WCVB | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5KZER5cFZkZG1OUldzSGhIbzJGaGo1YklMb05ZSTU3Xzg5aTZPNldhckFoa2g1UDRIMUVHX1BHMERJZmcxTnE4bFljaDRsVnlJcER5Z3VrdGdXV3ptUXhYWnhuYXAwQVBXU1Y4MUg5S0JOeHZGQ292THBR?oc=5) |
 | Obama supports California redistricting, says GOP can’t ‘rig the game’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNdVc0SWxSRDFMVFZxbFFtTFdFYUdyeFdlanlmRk1vaEJQemFCNWZPbkplVWFYMnNFWlJ4Nk9wMHVfLWszYzc0S1IxTVNESHZTclFFNU9qdElZNDk1UUlwU3JZRjJLUGNlaERiT25oRVNFQmt4RWkxak5rbkEtWC0zc1NsQUZFamJCaWJySGQzRnJWLWNo?oc=5) |
 | US court blocks Texas law requiring Ten Commandments in school classrooms - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPOFdnQlZnUDFjV1J4WnFRWFBKc1ZLZDc3cEM3dVYzWmhrRV80TEl4cEphdjNNZEFtdlRoX2Q0X242bExXYjl3S1hKY05hNHZJTU9qTHFTUGNlSmEwUU5hd2swdm10WmgzdzVjamVSdnJ2Wnd0a0JBTVJvamNXaGp0cDhCd2dFY1hBeUVIM1VmdURyb2xGeHdFSmVrb1o2MHpxQmRQeFdTVEdhaGVLZ1YwNVliWXbSAboBQVVfeXFMUHpiWGhnb2IwOXo2TXhSYTBsWUZXVXBXalh4WHRXbTFDd192b2FhUllIV2RKNlRUNk5XdEpTWFQ5RElrR2s3UjRZMDR4SGlmcVZYU01KMXJuTkpNTGFtVDhQeFU3Ynhxd25FbUFzb0FUT2Fsdi1CWTBOYkxNNUQtb0tFaGtDczRaQzB3ZVJlZ1RCR3NFX1lKUzNpaGR4OGVRc2s2Wll3UDZJTFhRbldWczRtNVlWalZUZTJB?oc=5) |
-| Camp Mystic Parents Demand Changes Before More Children Are Lost - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1qdDdHdjEwX25kTDNtTEVudnM4ZnpxaWp6X2NvVl9lamJyR1liYXlMOTZsNG9jNFJaUm1iNUxsRmQ1VVNENDJBa1NvZGZZZ0dSRHFDUTJCNTBYZWpzblQyWGRUaXZabVJZQWNmV0NIS0hCamh3ZTBkektlUQ?oc=5) |
+| Judge Frank Caprio, known for his compassion in Rhode Island court, dies at 88 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTFBrX04yV01IcUp0Z3M1dmY2UFRCd1Rkb3pKbWNvOE14bGpjUm5rREFkWDBpWHhNM2I1LXBUMEphQ1h2ZEo0X0lwcGgxdFBVTHFBdGtwcmhKR2xGWkRlRDZQZjk0a3RFWEFJWjVn0gFwQVVfeXFMUDRLczNYQWlPZVkyTUktRE5ua2xDUEhxYmhSZnRDb2tEb1QwQTczUnVxdnRzMmExV2FUajRhTzFKZGsxRkNBb1ZieTluVEtmLUdBYWtaTFdtU2drSUQ5U05SNmQ2OXNjel9ldVpsMnJGNg?oc=5) |
 | Tulsi Gabbard announces plans to cut intelligence staff by half - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBSb3podkw3TnZaYW1JWlFYVjkzS1MxdGtaWnJLTnVQV0RCaDVjX0lCcUJSZTJGLTZVWjF4cENweHpRclV4UFZBS0J6TXFWRDB4Q1diRVhnaHlRd9IBX0FVX3lxTE1HVk9UcjlHV0U0QXBwYTJSVW9UWUJ3TDFUV0dMY1BKOXBqZXJUd3Z0X3NsV1RJVFdqd2xrdkNKT2NwdmY4cFgtOFRYWHBfZHV2NXJZb05DbTBxcWgzSzU4?oc=5) |
 
 ---
