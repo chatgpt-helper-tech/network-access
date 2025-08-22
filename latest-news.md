@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 22:37:18（北京时间）**
+🕒 更新时间：**2025年08月22日 22:49:06（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Powell’s last Jackson Hole speech could chart Fed’s next move - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQX0VWdFVqMVI2Z09Idk9XVlVWODFxRmFKX0pPUUpQUlIzR1BNOTFKQ0E3ZlZUMVAyMUQ5S2hFLTlXQWVwcW9IWEFidVB5Qlp1ZzFoSVMyNDVlb2lvdXhqYkdvOWhWOHExUXFEUENEUGkzR0FIamFjQmNvUEZiM3RqWm1BRG9pS2FU?oc=5) |
+| Fed's Powell: May be time for another rate cut amid "unusual" job market - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFAzRGV3RmxnQWlkRnRuaFUxMnNEZnc5UlNoQmxESmx2alVQSXlrZzcydmRybXhLWVh2NEIya0xDZWhkeEluYlFzcDlXczRQZHFraTFoLXRSSWJNbzVIR3VBUVdFd2NWa3FXcWt6OUVSYUJwQQ?oc=5) |
 | FBI searches home of former Trump adviser John Bolton - NPR | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE1NRTctZ0VTOURadWhZVVFlNkg2Zl81NlZJSUlLUGxyejZRZlg4WFVNaFplblppQ0t5OVVzU2QxUFVsVXJkTmZJdndEU2lPUFNhQ0h6UWVZdV8tbHVOSDBUV1hWQWtvR0IteU9VSUx2VQ?oc=5) |
-| Federal judge orders closure of Trump’s ‘Alligator Alcatraz’ immigration jail ｜ Florida - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOUC1sXzgwZk5FU1B0LUZ5X0xhVlREM0V6MTMzSDdnN1JFTHc0cVR2c0hnZDFEUXNtbEVrWkc5YlZWbkExOWxmVHNTbWJaeXZMVnh5VE96bTdabUppcUF0RkNrU0ROT2hjUko5VF9TSnBiMVI0ckVDVkE5TThhZ1dFV2tsUEhUTFZlWm9sOTlR?oc=5) |
+| Florida ordered to dismantle Alligator Alcatraz over environmental impact - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPVHlZMmU4X3RpYUgtcmQzQ1RMOGo5alc1N25aWUJuLW9LTjNVNXR5OThpNkdQQVBZaEEtY3BDQTlISmJCQmNkX293SFpwREc1TGJGWGp4MlhKLXpzZ1FvbjBsVXJKVENBZW45SkpLaG4wWFNwOFhzSkJlNDVYYlphSktWWmdSR2tOd2FYTlBKYlJzNjduOHJMM2pUUUdOVm8?oc=5) |
+| Love it or hate it? Poll shows how Californians feel about Newsom's redistricting fight with Trump - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPcE03TllHQlVfbUc4MXQ0YmE4RTdpcnl6OXlPcVdENjIxZ2FjUjUwb0xxTWpJZHNKMGY3MDVWQjBFT3AyanptSy1xQmJHM1hDUlBqU2lVNE1Edm5OM3dCaF81UzRLQU9vSG9mYzJKRjNCX19UOHEzbElZNUpjdFItQXdrVDluOUlKcW9fT3hwMXhoSENHQWc?oc=5) |
 | Gaza City and Surrounding Areas Officially Hit by Famine, Global Group Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNUFFRZXhrY1VyWl84SHVEdmFHcTNLVUJkRFAzUVZZUUNLa0tGMnJ6d3FReE5Sel9kbzJuUURpZDVLV3g2b2M3UDU3MVJrVjQ4UndxdDZxUWZYSzVzN29uSUlmZzU4ZmZLT29pRFN4SV9zWTZkYlgzRWRyM2c2NFFQMHIwREtxRUE?oc=5) |
-| Newsom signs California redistricting measures in response to Texas bill - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxONDZ0NXNMS1Z5aF9DM0hIN0ZIVnBxZWg5bjE0WjlST0I3SGljQVhuM0M5TXFtRGhUaTliLV9MUUFSUU0xRGFfNHpVcE1RdzVTQTVXUS02RFdJQjJoNzl3SWtrbWpJT3hycG9LUE52YTJWeGotWXF4U0toemNUU1Q0aGpTNG90eVJvV0tBUHR0NTIzZ2pDRmFv?oc=5) |
-| Active shooter report at Villanova was a ‘cruel hoax,’ university president says; no injuries reported - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNUVpmUXU0QTdHVDNpbGIyQmFGbUtUaXpnOFM3RGpnTzMzcktMUHltRkVqSWdVcE5vTm9Sa2pueHI2b2RsbkVnX0VRNzNmNHBwN2N4VnRFejY5YlRFTmdTelB0NTNBajZOS1FZUExDdDVWVWxRVlFUdUM2Ylc4OWdnRUhIVWVmQnNNNlF1ZF9DTks?oc=5) |
 | Erik Menendez denied parole after decades in prison - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQbjlHSW1obE9QNGhBT2tNeVV4T2pzQTBqZVhhRV9USnNQaGROQjFSQkI0cDhiX0lWODdOcmMzM3o0SEtrRzFWVkpmdkZDa0VGbzdUbDFNY0VaQXpkM2VNR1g0Y0NFamVmRGRVRmNzeVNOZXlRcWxXWHpKUmVUQVhiN0NZeXN3V3NENlpfTXBuZW8?oc=5) |
-| Trump administration to vet all 55 million foreigners with U.S. visas - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOUG8zTVgwSDI3YUYtbzQwRHBWR2NQTXhjT0tMSng0UEc2Yl9SWWJsTUdDXzBMazlXYkZ0T0dXdW9IMmNFNjVTaF9Rb1U2N3RMNGZGRWJQS2I1SEdMeWJiWk0xMHVBM0owT0RycG1ubWQ3REVRNzRRdEowYUVWalJNOHhKMWNvcUNOd29rV1lqU2x5TXBlb29qMDdwa2Z6dnI3M1pNS09TdkthcEU?oc=5) |
-| Congress is set to receive the first batch of Epstein files. It's not likely to quell the drama. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNeUVhblk3eDNqNlc4WTlsTXlZVVZDNUlRRmFKUzRxTER4N0taNGkxZE1yaXBOdDRDZmtaXzUxeHQteVgwZ1RERFI1eWllQ0lubEQzRlN5b2g1XzA0U1FtbEdod1dsNHBXNGVYR01OSnVPb0NLVHdfSDFtTVd0eFJVVE1GNnNBS1RRYWc?oc=5) |
+| FBI director says ‘no one is above the law’ amid raid on John Bolton’s home – live updates - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNVU5rREZuTXJfSjZNVFd5RkN6MFptajlrclRCUHA4eW5ibk9aU3UxYndTVmtLX2JpckRPY3pGamNpMmdaQ0FYOEdIZ1dUeEdjaU5GNjlLNEZlUjJaVWpmT1NkcmhXWGdVN2J5UDZiMW9Falh5UGpZSTMydDdOOVBXQUFWX293c1MwckRJcXNZb0xicEItczU5M2doME9WWTcyemFEOW1MUjl2NTJXZ1d5Zy1NRVlNNmlPckZNTjZ1NUIxZzVCalkzNVRJZ0I5SFpq?oc=5) |
 | New visas paused for commercial truck drivers, Rubio says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE0wcFprXzBaS3Yxb0NRZmZ0ekZYV3VJcnpnak5IeWV5LVVVSTcwY1h5VmhJNFRZUVowa1FZV3pISFRIZURqN1VGd3ZERXRWMmFJZjJZa0hUSVhHaEMwVDZLcnVzNXZxSTRQZFdoZ082RGU5WTlZX2VDaDhn?oc=5) |
+| Minnesota DFL rescinds Minneapolis mayoral endorsement of Omar Fateh - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE4wbW9zTkpIdFFuSERUdTBUbk5CaWpaNmw4YVRqZUFNTEhQUTNHYkZOT3Ffa3RkbGlUZURxaW5oZGJHX0QzZ0RGTU9mV2dUWkk1Ny1ZNnN3Z09TNmI5WTFqaXpJS1U3T2phMlNURmhZWFJwZkNWODlYR3FMSWZfZw?oc=5) |
+| Shooting at Ingalls Shipbuilding, one victim reported, according to Jackson County Sheriff - WLOX | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNUlkyeVBqaXpoMG81a0VCTmxzY2ZFc3dic3Nfek92QTZrY2c2TU5IcnhBbVlSOUxoUi1nbkd4Ump0NHRBTzd5SHRoM0paSVptZ1hZT0M4YVFMa3JkYmJiU1JTeTN4WklJME54U1MxS0ItaklPenFoZjJaYVlza0lMbUFLVWhTTHRxVkZSV2owUmtqdERvcU16Nl9SeUdSc3hWVUM2Q0xLVnduajNleVZGSE0wZDFldw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
