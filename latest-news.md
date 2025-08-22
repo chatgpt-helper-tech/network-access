@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 14:24:23（北京时间）**
+🕒 更新时间：**2025年08月22日 14:36:08（北京时间）**
 
 ---
 
@@ -14,9 +14,9 @@
 | Erik Menendez denied parole three decades after killing his parents | [阅读全文](https://www.bbc.com/news/articles/c3wnlldjp20o?at_medium=RSS&at_campaign=rss) |
 | Crackdown on people wrongly claiming child benefit abroad | [阅读全文](https://www.bbc.com/news/articles/cr5r1zpl39jo?at_medium=RSS&at_campaign=rss) |
 | Proposed Ukraine land concessions are Putin's trap, EU's top diplomat tells BBC | [阅读全文](https://www.bbc.com/news/articles/cp8zdezm507o?at_medium=RSS&at_campaign=rss) |
+| Why Rugby World Cup 2025 will change game | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/cx2983p0vqzo?at_medium=RSS&at_campaign=rss) |
 | Travellers warned of bank holiday disruption | [阅读全文](https://www.bbc.com/news/articles/c1kzrxwjnryo?at_medium=RSS&at_campaign=rss) |
 | US judge orders shutdown of Trump's 'Alligator Alcatraz' detention centre | [阅读全文](https://www.bbc.com/news/articles/c5y3lwze2njo?at_medium=RSS&at_campaign=rss) |
-| Five key takeaways from this year's GCSE results | [阅读全文](https://www.bbc.com/news/articles/c70x5j8z34do?at_medium=RSS&at_campaign=rss) |
 | 4chan will refuse to pay daily online safety fines, lawyer tells BBC | [阅读全文](https://www.bbc.com/news/articles/cq68j5g2nr1o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -32,7 +32,7 @@
 | New visas paused for commercial truck drivers, Rubio says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE0wcFprXzBaS3Yxb0NRZmZ0ekZYV3VJcnpnak5IeWV5LVVVSTcwY1h5VmhJNFRZUVowa1FZV3pISFRIZURqN1VGd3ZERXRWMmFJZjJZa0hUSVhHaEMwVDZLcnVzNXZxSTRQZFdoZ082RGU5WTlZX2VDaDhn?oc=5) |
 | Minnesota’s Democratic Party Revokes Endorsement of Mayoral Candidate - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPZDd6WlNSaGE3bWhqV3BKMGllZ0FJMlRCWlVFQ2F6c3c4UmI5WE12aVRBaUthWExqbnVOcTc0dE9nY2d2VklEM2tnbkxZSjB2Wjd5QVFiTEZNXzh6VmRwVW9WYm13aXVEYWFTWjBrSkxjV1VuOXFGSnJxSEVoZ0dwdW1xSjBCMjllWFE2TmdoZi1WTEVSVnBwNmRudC15X3Q4MDZNNEJXZlI5V3VuUmRjLQ?oc=5) |
 | Six dead in accident at Colorado dairy - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9ScnEtZC1lMG9Fazk5MnlNVGo2djZvU1dpWGxVdnZoVEZXelNVNnNYMUhKZEdkZEVmcXJ3NXkzYzZXbWU2Ylp5NGZIcURvTEtudEFESFdKcHdVRHhqcUJ0d3NYbUk0SjAxREJmSnR1a2IzUm11UkY2LdIBVkFVX3lxTE1qeVVmTU1yMXpaZ291WXhWUFRPVjlZamFRMDUwc0RFY1o3TjBTTEVXMlFVS3NWWFNtV3M3TnpTZ2FuR01OYVc5SkljcTJnR0hibUNOaUl3?oc=5) |
-| Judge rules former Trump lawyer Alina Habba was unlawfully appointed as US Attorney - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNZ0piZTZ1ck4wbGRjbGMtd0JON29CMm42V05TQ1ZLanVjQ3kyTzhSc2h6QmJLRE1TQ3d4cFNQUWotT0sxNnVUZFdlRGUyWjh6YWtIcXBIZWx5SnZNdUh2eHFTakVRYWZPWk1peGtlekQzZTdBeVFLdGstQndVX0R1d3Zzb2ZJUlJ5bVliYW5Ha3BiZWRJc2dMTHVHa1o0MDZIVTkweEdaV3VueUtXaXlubjNtWnZpcTFoT2NVZ2wwNGxvQWVVN0xRdDA5Y2RKQQ?oc=5) |
+| Judge rules former Trump lawyer Alina Habba is unlawfully serving as U.S. attorney in New Jersey - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPcWJ2LUUtQVBZR0lucXNKRm9GSlRoM3BPYlJGcGVMZXV1Rl85SGxtbmpWM2Rva01fQm91QWJkVERRS2N6QXVhRlRFTGt2dFZHZ0VkSXM4VklCQjZLbXlBWkxtSmg4WXJhVGNvNG9VSXlmUm0zdkdXS0t4LVkwSjNiZXZSYlVaZHhoSDhoc0dRQ2ltMURHbnBHQ1B3QlZGUEZGUlVNdFVvZFJTSmc5YnhsOUVjWDR6WjZLalFqNDd5QWdUYl9PSUFnQWRURzFGd9IB0wFBVV95cUxNb3FRalo1Yjl0bmUyY3h0ejNUSFRZc3BRX2h6bUJZQnYyVDBuUkttOFhSa2lhcDhJNFd0Wm1RLVRoX18yd3M5aWY0T2VJZTJ2TXBEN3p0NHFhc3NrLUZRX0tlelRBOGhtTWFWeDZvZ3dUajdBQ1ZIZU9MRm9aYVU3OXhnRDlKcFBZMlVNXzJadFhsOGc4eVA1UENLS0tVRDF2dFBPQU1WNElVV1FobWtBcHlya2wxX1A1NWNNaFBtd21sa1hONXF2TGFmd2VtT1hPQ3BJ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
