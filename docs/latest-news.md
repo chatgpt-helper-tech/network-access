@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 13:49:01（北京时间）**
+🕒 更新时间：**2025年08月22日 14:01:24（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Baby food firms told to cut sugar and stop promoting snacks for under-ones | [阅读全文](https://www.bbc.com/news/articles/cvgpld8p9rqo?at_medium=RSS&at_campaign=rss) |
 | Erik Menendez denied parole three decades after killing his parents | [阅读全文](https://www.bbc.com/news/articles/c3wnlldjp20o?at_medium=RSS&at_campaign=rss) |
 | Proposed Ukraine land concessions are Putin's trap, EU's top diplomat tells BBC | [阅读全文](https://www.bbc.com/news/articles/cp8zdezm507o?at_medium=RSS&at_campaign=rss) |
-| Travellers warned of disruption ahead of bank holiday weekend | [阅读全文](https://www.bbc.com/news/articles/c1kzrxwjnryo?at_medium=RSS&at_campaign=rss) |
+| Travellers warned of bank holiday disruption | [阅读全文](https://www.bbc.com/news/articles/c1kzrxwjnryo?at_medium=RSS&at_campaign=rss) |
 | Five key takeaways from this year's GCSE results | [阅读全文](https://www.bbc.com/news/articles/c70x5j8z34do?at_medium=RSS&at_campaign=rss) |
 | US judge orders shutdown of Trump's 'Alligator Alcatraz' detention centre | [阅读全文](https://www.bbc.com/news/articles/c5y3lwze2njo?at_medium=RSS&at_campaign=rss) |
 | 4chan will refuse to pay daily online safety fines, lawyer tells BBC | [阅读全文](https://www.bbc.com/news/articles/cq68j5g2nr1o?at_medium=RSS&at_campaign=rss) |
@@ -29,7 +29,7 @@
 | Supreme Court clears way for nearly $800 million in cuts to NIH grants - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNNTJOb0JfclE2UWxfcS1ubkRPQThPeUxSYkozby1fS284TExPYUd5SDh3dU4wM1hscGliVm1oeW1oNEwxZVZrSE9icExnQjdLazZCbVdRWHBJVEtlQnU5ODFVYllrdHVCSHdfOEJYeVZKeTF3R1prRlJfLXRlRXQ3UkpZLXh0WDdVSlFTeC1DMk5RQ1NjczJfb0MxNktaUUdCUWZyWGJxck8zTUZQWXc?oc=5) |
 | Trump hands out burgers and pizza to federal law enforcement amid D.C. police surge - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE03aWZiS19NYklPeEZiLU9DNk40SnQ2VWhPT2tlZWNyLW1uSlFHTnYxcEIxV0Q5Rm80OVVwMU94VndoZTBXMGFfT2VCNmtNb09ENDNwcUl3YXNnMWIwZU1yWmNzdnFESnQwZjVJbWUtX2I5bVZoMXfSAXtBVV95cUxQSWFZLU15UVQ0OElRV0ZGeWhsSlFDdWVjR0NmMGsxVUVWMWJCTDNkb1NWUFNSVXdjUl9USU5GZG1jWjYteWZubUxQdjRSZTVaMGNDUzJQNG1uQmhSdHNyZG12TzZYNUxGbm9Yd0ROOVRTWjBXbVVTQlp3Um8?oc=5) |
 | Trump admin vetting 55 million U.S. visa holders for potential deportation violations - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFB4UWhwZEptOTRPbVRzMUlFdFVMejMwYTgyOE5SdWZKZUFJNjFzdUdzenM1T29uVWZQUXZ3WTlRaDF6SUZaajVvZnNGbFhsOTBoTDczNkVlbW5ZQk44T2g1bFlPQ3NUcWFBN29LalN3QmNBcWRQVGxOSG1ENjIwaUE?oc=5) |
-| U.S. halts issuing worker visas for commercial truck drivers - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOYmExcE9VMWhHQjNGODlSdXVFcVVkRk9WMFo1M3pPVHlfU2dIN3htQjZsb1d2WlZRaW9rUXl1Y3ExTzZydkpDTzRNNFhib2RPcTF0MXlhd3Jta2M5MWYwb1h6TGNwM21KWjdsUDJjaHZuYXdZUzktam1LQmx4NV83c0FNVlR1bTRrV0RuUVU3MlZBaFnSAZgBQVVfeXFMTS1vZGxsSDFvcWZRMVpVUmNHeXVvYjJKSFoxWGxLdmRySXVsaG5USHQ4TU90dTVLTEN2QUlQU2RVQVphbkRsY0xOeWRjWVduMzlLWHgwZVVMUk9GVFkteDdFeER2X2JiOFBLTGZ1eUVTOHVWY3ZFQmtiQjVaYUVVYW11bU9mSkNNbG5Na1ZzNU5nVW5IaGd4c1o?oc=5) |
+| State Department halts employment visas for truck drivers - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOQW5NeklMRzFQVWZCR0gtOVlzM0VRdndLOW1kMWpCeUROLXBYeEhCRnRhd0FUWEZ6S1FCNzI0WnZfdTBQcFRCR2R0QS1XQ1NFRzE3S0hwdWZvc19vUDJuNlJIX1hJZ0s2aEdRSnRTdjBlRUgycExXbExhaUowaDIwRjNLcUhMa21ac0xocjJlNUZNRG9HOWwtaHFKSDVSUQ?oc=5) |
 | Minnesota’s Democratic Party Revokes Endorsement of Mayoral Candidate - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPZDd6WlNSaGE3bWhqV3BKMGllZ0FJMlRCWlVFQ2F6c3c4UmI5WE12aVRBaUthWExqbnVOcTc0dE9nY2d2VklEM2tnbkxZSjB2Wjd5QVFiTEZNXzh6VmRwVW9WYm13aXVEYWFTWjBrSkxjV1VuOXFGSnJxSEVoZ0dwdW1xSjBCMjllWFE2TmdoZi1WTEVSVnBwNmRudC15X3Q4MDZNNEJXZlI5V3VuUmRjLQ?oc=5) |
 | Six dead in accident at Colorado dairy - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9ScnEtZC1lMG9Fazk5MnlNVGo2djZvU1dpWGxVdnZoVEZXelNVNnNYMUhKZEdkZEVmcXJ3NXkzYzZXbWU2Ylp5NGZIcURvTEtudEFESFdKcHdVRHhqcUJ0d3NYbUk0SjAxREJmSnR1a2IzUm11UkY2LdIBVkFVX3lxTE1qeVVmTU1yMXpaZ291WXhWUFRPVjlZamFRMDUwc0RFY1o3TjBTTEVXMlFVS3NWWFNtV3M3TnpTZ2FuR01OYVc5SkljcTJnR0hibUNOaUl3?oc=5) |
 | Judge rules former Trump lawyer Alina Habba was unlawfully appointed as US Attorney - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNZ0piZTZ1ck4wbGRjbGMtd0JON29CMm42V05TQ1ZLanVjQ3kyTzhSc2h6QmJLRE1TQ3d4cFNQUWotT0sxNnVUZFdlRGUyWjh6YWtIcXBIZWx5SnZNdUh2eHFTakVRYWZPWk1peGtlekQzZTdBeVFLdGstQndVX0R1d3Zzb2ZJUlJ5bVliYW5Ha3BiZWRJc2dMTHVHa1o0MDZIVTkweEdaV3VueUtXaXlubjNtWnZpcTFoT2NVZ2wwNGxvQWVVN0xRdDA5Y2RKQQ?oc=5) |
