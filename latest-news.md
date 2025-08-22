@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 12:24:20（北京时间）**
+🕒 更新时间：**2025年08月22日 12:36:08（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump hands out burgers and pizza to federal law enforcement amid D.C. police surge - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE03aWZiS19NYklPeEZiLU9DNk40SnQ2VWhPT2tlZWNyLW1uSlFHTnYxcEIxV0Q5Rm80OVVwMU94VndoZTBXMGFfT2VCNmtNb09ENDNwcUl3YXNnMWIwZU1yWmNzdnFESnQwZjVJbWUtX2I5bVZoMXfSAXtBVV95cUxQSWFZLU15UVQ0OElRV0ZGeWhsSlFDdWVjR0NmMGsxVUVWMWJCTDNkb1NWUFNSVXdjUl9USU5GZG1jWjYteWZubUxQdjRSZTVaMGNDUzJQNG1uQmhSdHNyZG12TzZYNUxGbm9Yd0ROOVRTWjBXbVVTQlp3Um8?oc=5) |
 | Appeals court throws out Trump's $500m civil fraud penalty - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE44RngzQWxqQTMyRzJGa2FBWTJmenRQZTlGbzVheFVKaVBuSnEzYURSek9rMWRWQUZKZEl6UFhrZ0p2b2dzWlUySXdjSHRiUUFDbUlwQVpLRk96QdIBX0FVX3lxTFBxSXNCREJoZzdVeDVBQ09OUE9xcXM3VGxvdzVGcERENGR0TXpqODF4TXBFTzhDTDJQMm9MZ2hiQ0dKQ3drRk9hamZfS0JlQ3FTbVN6ZlZpeEE2UmdtVWZF?oc=5) |
 | New visas paused for commercial truck drivers, Rubio says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE0wcFprXzBaS3Yxb0NRZmZ0ekZYV3VJcnpnak5IeWV5LVVVSTcwY1h5VmhJNFRZUVowa1FZV3pISFRIZURqN1VGd3ZERXRWMmFJZjJZa0hUSVhHaEMwVDZLcnVzNXZxSTRQZFdoZ082RGU5WTlZX2VDaDhn?oc=5) |
-| Trump news at a glance: 55m US visa holders in potential limbo in fresh immigration crackdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPSnNFRVh5YXFZRXJNUFM4ck1VcXNXeHVYMTcwQlRkX1hOSXpGYXZnLXhRTVN0dGdaWWVRZmpRdFEwREpXb3JJbnNBQlBFWXU2MzBuajdNYmltaVpGUFl4cXJRNXR3TEF5VFotUE11Szg3MmU0SFZnVjdleVJyVHZlTFg2ZkpVZw?oc=5) |
+| Trump administration to vet all 55 million foreigners with U.S. visas - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOUG8zTVgwSDI3YUYtbzQwRHBWR2NQTXhjT0tMSng0UEc2Yl9SWWJsTUdDXzBMazlXYkZ0T0dXdW9IMmNFNjVTaF9Rb1U2N3RMNGZGRWJQS2I1SEdMeWJiWk0xMHVBM0owT0RycG1ubWQ3REVRNzRRdEowYUVWalJNOHhKMWNvcUNOd29rV1lqU2x5TXBlb29qMDdwa2Z6dnI3M1pNS09TdkthcEU?oc=5) |
+| Minnesota’s Democratic Party Revokes Endorsement of Mayoral Candidate - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPZDd6WlNSaGE3bWhqV3BKMGllZ0FJMlRCWlVFQ2F6c3c4UmI5WE12aVRBaUthWExqbnVOcTc0dE9nY2d2VklEM2tnbkxZSjB2Wjd5QVFiTEZNXzh6VmRwVW9WYm13aXVEYWFTWjBrSkxjV1VuOXFGSnJxSEVoZ0dwdW1xSjBCMjllWFE2TmdoZi1WTEVSVnBwNmRudC15X3Q4MDZNNEJXZlI5V3VuUmRjLQ?oc=5) |
 | Judge rules former Trump lawyer Alina Habba was unlawfully appointed as US Attorney - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNZ0piZTZ1ck4wbGRjbGMtd0JON29CMm42V05TQ1ZLanVjQ3kyTzhSc2h6QmJLRE1TQ3d4cFNQUWotT0sxNnVUZFdlRGUyWjh6YWtIcXBIZWx5SnZNdUh2eHFTakVRYWZPWk1peGtlekQzZTdBeVFLdGstQndVX0R1d3Zzb2ZJUlJ5bVliYW5Ha3BiZWRJc2dMTHVHa1o0MDZIVTkweEdaV3VueUtXaXlubjNtWnZpcTFoT2NVZ2wwNGxvQWVVN0xRdDA5Y2RKQQ?oc=5) |
-| Minnesota DFL revokes endorsement of Minneapolis mayoral candidate Omar Fateh - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNTWgzYTZuck9HZDc5S09VUWYwLURETkN1Uzd2SHdhZHVQME5KWEZGVC1paGpMYS1tUEtHUXllNldvaUt3VEtSZ0Vab0FjME9DdGJ0eXF1VDhPS012Sk9iTVRZV1p4UHlKTi0tTlNmREc2ZjE1blFjeGs4bmVRVUx1aXFOR3hpN2Fab210Z1V5NWZBYVFkSmd3Nk5qQzRFMmlLb2pJUmpBOVhzNE9XQm9ERzVZcw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
