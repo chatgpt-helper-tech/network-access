@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 14:12:28（北京时间）**
+🕒 更新时间：**2025年08月22日 14:24:23（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | The race for the two miles-a-second super weapons that Putin says turn targets to dust | [阅读全文](https://www.bbc.com/news/articles/cgeqj1q8gj4o?at_medium=RSS&at_campaign=rss) |
 | Baby food firms told to cut sugar and stop promoting snacks for under-ones | [阅读全文](https://www.bbc.com/news/articles/cvgpld8p9rqo?at_medium=RSS&at_campaign=rss) |
 | Erik Menendez denied parole three decades after killing his parents | [阅读全文](https://www.bbc.com/news/articles/c3wnlldjp20o?at_medium=RSS&at_campaign=rss) |
+| Crackdown on people wrongly claiming child benefit abroad | [阅读全文](https://www.bbc.com/news/articles/cr5r1zpl39jo?at_medium=RSS&at_campaign=rss) |
 | Proposed Ukraine land concessions are Putin's trap, EU's top diplomat tells BBC | [阅读全文](https://www.bbc.com/news/articles/cp8zdezm507o?at_medium=RSS&at_campaign=rss) |
 | Travellers warned of bank holiday disruption | [阅读全文](https://www.bbc.com/news/articles/c1kzrxwjnryo?at_medium=RSS&at_campaign=rss) |
-| Five key takeaways from this year's GCSE results | [阅读全文](https://www.bbc.com/news/articles/c70x5j8z34do?at_medium=RSS&at_campaign=rss) |
 | US judge orders shutdown of Trump's 'Alligator Alcatraz' detention centre | [阅读全文](https://www.bbc.com/news/articles/c5y3lwze2njo?at_medium=RSS&at_campaign=rss) |
+| Five key takeaways from this year's GCSE results | [阅读全文](https://www.bbc.com/news/articles/c70x5j8z34do?at_medium=RSS&at_campaign=rss) |
 | 4chan will refuse to pay daily online safety fines, lawyer tells BBC | [阅读全文](https://www.bbc.com/news/articles/cq68j5g2nr1o?at_medium=RSS&at_campaign=rss) |
-| Do asylum figures show if government's strategy is working? | [阅读全文](https://www.bbc.com/news/articles/cx2x371g2k8o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
