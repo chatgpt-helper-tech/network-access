@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 13:25:15（北京时间）**
+🕒 更新时间：**2025年08月23日 13:36:42（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Parents of missing baby Emmanuel Haro faked kidnapping, now accused of murder, officials say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOTGFYdkNzYjdfZmYzQzFQakp4R21VUG9QZG9zbDkwbkJoZjRDN29LMjhjQmF1QTBrWnlHZlV1VHluWVR2bEo5R2hqSjZSSUtoWmd1S2s4aGtSYzhrTkRQRzBPRkhoS0dkQ3VCbzJOQmwtZ0liTTVmVTFxRW1mSUl1ZTlPYjJSMURMcGo0eVhuQnEzS3c4WTN1THdTeXh5OUZ2cnlrbkVMSlZGNW5uRThla0NDR2t6UGVILVBzWHdR?oc=5) |
 | Famine is declared in Gaza: What does it take to make this pronouncement? : Goats and Soda - NPR | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxORXotSTVJOHJaRkZGTjFNV01KanhJcUZQNlJDQjJlRUxZVTRFeHZvV3h5TU51dEVPWUdaNzREZlY3amhVTGRtcVpING1tOFBMbWMzLUlNem9LR1AzWFJYZUhDQTA2dDJ5ZzRYQlpUd2RCaEtFcndhcHluRGV3NE1SX2FSY1hZd0ZGWGxyNHF1YzBWMDgtRXRsQVU0Y19zMTJ0ckJNMng2czd4V08zVl9WNHNoZWk0VXdvcDNaUWpDOGxmMUgwV1Nyc1lTOENzelIyWE1r?oc=5) |
 | Independent redistricting champion spends millions against California gerrymander - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQcGJsZnpSYjNOT3hwU1NjdHdSVGlYLWRDSExha2ZEMXZ2T0Fscm1mU2NSRlZSOFlXejg1VURiRm9UYS1RT3ZJNm5tTm5vbUgtSW9KU0R2WUFkaXNyTU5mTFA1S3VPaS1qaEE2eUJ1UDVYNERqbzdWaTVMVl9fWDFldnlDZG90ZGhOWnFEaHhEMEVpV0ltYXBUdW9lQUc?oc=5) |
-| Kilmar Abrego Garcia could be deported to Uganda, official says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPRFk1STVmeVQxNGFqS1E4UE1jRU5YU2wwaExUVmE2bGFrNF8yUjYxRnlNREhRanhwMEZtblEzdlBtN3dHVUVYU29aTmtBT3UwajZrUTk4WGxOVV96QVpCT0UwU0VFeEpZTEpFWENSU1dobFpvbTlRREdyYTlFMHZwYjh6R2_SAYoBQVVfeXFMTmlBUXgzMW9DdFdtMzFXdHpPUHctcmNiSmQ3N1ZGSXdJeU9OVlZUX0hJNjA0c1IyRDhwWFZSY0NhUlpmdmhzdUZWTWFwMmo2QWp4b2o3a19YUFVmTk1oamFXUDZVZEtwdzktQUZFbmtIcS1NYVVhQWZlTUF5UERweEpjd0Ywb0o3VTFn?oc=5) |
+| Wrongly deported migrant Abrego released, may be detained again - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZk1SaFNrNFpzVjdXV3ZJaTBQVDB1MjN5T3NVN2ZkVmN5MFZzWmtTb0xaV3JHd2J1SV9nQmh6SHJoU3lvX1hkZlNwUHdZM3Z1dVhSOGE0X3gzRktDX1VIby0tOEhEQ3MxU09DNnN4YUhwS0ItdURtWkpQUHdsTzRLU3V2ZmtaLWxXMTlEc0VOZmI1SFFhRy1HVFJkS0F6M080dWpmSko5MnF6SG8?oc=5) |
 | Trump makes deal giving U.S. government a 10% share of Intel - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQTjlqZW4yV0JCVzJQOXY2ZXlGWU1wTExTdllQWGc0VGJnQ0NkYmdBRkg1Z0RSQkdZSG9yamZMLUs5bUtFano3cTd2dkZoZWJGU1Zja2QxbkFSUW93RXhKR01yR2ViXzB4R2o3SmNteGRYekwyQzVQZl9FLVdmTXJYdlNBSXpxTi0tWVUyd2t3akNvV2JMSmlBNFkxZ09KeEluT2F3a2N0VHdGU2l2TVRWcg?oc=5) |
 | F.B.I. Searches Home and Office of John Bolton, Ex-Trump Adviser - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOc0QxdHJoOVZSQ3FFZ3BQTER4SWdWM01hcGpUbWJ1cktjZG9NdTg3TVFtOE1mUm1pcElWc0FFUG5RbEh2b3BQNllaU0JxYjBpVm9ZczdMTl82Q3ZqdW5zVlNIZnkyWmxvZ1NFMVQ1TlJhbEk4c3Q2QWdUQmk2ZVRZWEE4MjE?oc=5) |
 
