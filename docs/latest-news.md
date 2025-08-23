@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 01:01:05（北京时间）**
+🕒 更新时间：**2025年08月24日 01:12:09（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Farage vows mass deportations to tackle small boats | [阅读全文](https://www.bbc.com/news/articles/c9vd3rx33g1o?at_medium=RSS&at_campaign=rss) |
 | Turkish first lady appeals to Melania Trump over Gaza children | [阅读全文](https://www.bbc.com/news/articles/cn47ppy382wo?at_medium=RSS&at_campaign=rss) |
 | UK to bask in 30C heat on bank holiday Monday | [阅读全文](https://www.bbc.com/news/articles/cj6yp0j7znxo?at_medium=RSS&at_campaign=rss) |
+| Scotland stun Wales with record six-try show of solidarity | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/c99ml5zmx9jo?at_medium=RSS&at_campaign=rss) |
 | Three people in life-threatening condition after restaurant 'arson attack' | [阅读全文](https://www.bbc.com/news/articles/cj6ypd547j8o?at_medium=RSS&at_campaign=rss) |
 | 'Two laptops, six plugs': The South Korean cafes grappling with students who don't leave | [阅读全文](https://www.bbc.com/news/articles/c80d9e8ep7do?at_medium=RSS&at_campaign=rss) |
 | Trump's plan for DC homeless is giving San Francisco deja vu | [阅读全文](https://www.bbc.com/news/articles/c2kz4d0vwlzo?at_medium=RSS&at_campaign=rss) |
 | Fans loved her new album. The thing was, she hadn't released one | [阅读全文](https://www.bbc.com/news/articles/clydz8d03dvo?at_medium=RSS&at_campaign=rss) |
-| My ex stalked me, so I joined a 'dating safety' app. Then my address was leaked | [阅读全文](https://www.bbc.com/news/articles/ce87rer52k3o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
