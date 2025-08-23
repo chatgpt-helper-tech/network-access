@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 08:00:34（北京时间）**
+🕒 更新时间：**2025年08月23日 08:12:17（北京时间）**
 
 ---
 
@@ -28,10 +28,10 @@
 | FBI Agents Exit John Bolton's Office With Boxes in Raid: Live Updates - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE90U28wbkFrVlBBLS1ibmV0X18ydHJiQW02aTBEQm1janQxWXdnWVN0TUppWF9KRXlPcUVfYlRlM19FckxBYmJxU1Z4MFNGR1htbno5NVdWSmlYNlZVTEwybndPTzkzencyVWY2dDNCVWhOMUdQMGZMZEFKUQ?oc=5) |
 | Hegseth fires head of Defense Intelligence Agency - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNdVMwdGx3Xy0yMTY5VUhwVzRSa0pVQmQ3X0hfWVRkSmc3Zmp1Z2dvbHgtSE9KOEJRQkVvNVRwYXhIVm9ZaGQySTFFTndzenJCeENZOFRaNFRwUHc1bUpNVWlTU3RGVXhlbVV2aU51MXZMVDVteEI1QWU2d0VORkc2bW5hSU1UTEk2dXVNMTlXSm5SWl8xeFowaUFoQmtaUFFFd2Q0b2hqQ1pHcXgw0gFWQVVfeXFMTTBfUlBYaHliZVZONTZQUUlPWExQVlFqeUpZQXlPNlUwTWs5ZngtVzlId2s1dUpadXRvVjBBaTh4UHlrSXRKZHlON3J0c3BQdm43OE4zd0E?oc=5) |
 | Parents of missing baby Emmanuel Haro faked kidnapping, now accused of murder, officials say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOTGFYdkNzYjdfZmYzQzFQakp4R21VUG9QZG9zbDkwbkJoZjRDN29LMjhjQmF1QTBrWnlHZlV1VHluWVR2bEo5R2hqSjZSSUtoWmd1S2s4aGtSYzhrTkRQRzBPRkhoS0dkQ3VCbzJOQmwtZ0liTTVmVTFxRW1mSUl1ZTlPYjJSMURMcGo0eVhuQnEzS3c4WTN1THdTeXh5OUZ2cnlrbkVMSlZGNW5uRThla0NDR2t6UGVILVBzWHdR?oc=5) |
-| NY bus crash live updates: multiple dead and passengers trapped - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFAtbXRjN3NJY0pScUpaNGE5d1NJR3YzcXNBYW1uVjZxc2hiYk9Nc05yYUg1OEx2dVFwLXZaaUI0M3JGbVd5T09KeWxYdm90RVVYTDc5eQ?oc=5) |
+| Tour bus rolls over on upstate New York highway, killing 5 people, police say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPYkExcFpfZUp2LWozNWtaT1FTYlQ4eXhJcE1xTmNCUGlfYXllRWsyQ2pmRnpIVGc5c2xiUGFaMFhwWHFhMXVuLUY1S3BXeklBcG8yZW5QVl9VaHpDeThZT0pmVEpIR1ktdWxzeDk5QjJaVkp5cHB3ZFUzS3JDUTBlc0Eyc9IBiAFBVV95cUxPR3huNlZ0cVFoenVoUHhDa2lKNTJqWU52U2VjLXJrNTMxU3hXclVONUhMem9IWVlLb3lsTGtCYTBxMFFPZmJma1p3NFU2OUtsVlFzX2gxZ2Z6UHU4c1ZkRnh6QXNlSUFlaHdTUzhyQWpoelI1ZzlLcmxtbGhCamFMYWYzeGF6a0wx?oc=5) |
 | Menendez family stunned after Erik denied parole; Lyle’s fate still uncertain - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxObHV5bTJwQ3JnQVpWUzB2bnF2d0xWLWVTczdXN0J0NVJETEI5OEtkM19PUVM5YmV1Wk1rb2FRajFIazAyaElmcHpKd3RwRmR2bTRHdWNFZkszXzVPcFRZVmdPalhwcGpraTNNT1VXazY0VFlvckZiazFTdW5zMGpGX2JjMzhKZFc4ZnhsUk1KTE1pckU?oc=5) |
-| Trump will appoint personnel chief Sergio Gor as ambassador to India - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9aYWM5YTZ5ZXd1RTlQaHdPeC16U2hDSkhUWDUxZWlGTmNONFR6MlVRMWJwbHFQQkZvOWpJdEUxdWxoZVdtWTZSTmlOM0VhMkFDVEFZb04zdTFpbDZVcXZzZ3FPbG8wYUJjSmUwVWttZzhueFkzQkkzZXFiNmg?oc=5) |
 | Florida ordered to undo Alligator Alcatraz due to environmental risks - Axios | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPWUhCM2s4UW1VcWF1ZVRXeU1la1ZVeFM5dWFEOU42WkZkYzBKdUZhTHl4UzlxdXF5MXhqVU5NOXJPZ0NINHVRaWY2VXh6Z3k3ZmdDZUlTTjRBNm91VW1vaW93SXp6SG1EY1d6dURhQVdlOUYtbFRtckVCajZ1dENLejNFcU8xSWtKYUxlbHExMnF0MU96MzN6RA?oc=5) |
+| Trump says he may send National Guard to Chicago, New York - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUGJmWk1rbUxBMDQwWnkwcUswX1Z5RVRIQ09HaVo5RHBmcWZ5MUJDUkZuUlV1VnlvN1IzSTloX1pJVDJ0ZVNmTnZ0NEh3eGF2Mkd1bm5pSHhXendFaEtCWmM1T0pVUTdzS3d6QWdfSVJFQkJFR3FpQXpFQ3lqaXc3ZHZJSHVoX3RlbTAwU2FmMWM?oc=5) |
 | Canada to remove many retaliatory tariffs on US, Carney says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOTUFBZmpMdWFnUDFZdU96SFFrcWhYSkJtOXlsZkxGQ0JST21JZXRGbG9uTTNXQ0d6YlVrcTFsYXFyeWVvUVVra1BzaG5VcmRxZFZNTDE5UXFOd0g2NDNlWWprZEZUek5HbGNpUFhEZWtSVFNXUWdkN0tnVy1waHBsS0hmWFhkRWdaOVJldmc3UjVvcFVZbUVPd3ZWVkx6TzRaV19CRVBfSQ?oc=5) |
 
 ---
