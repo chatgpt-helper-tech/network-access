@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 07:24:19（北京时间）**
+🕒 更新时间：**2025年08月24日 07:37:11（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Maps show Tropical Storm Fernand's path and forecast in Atlantic - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiZ0FVX3lxTE42cDRXSDhGS3dWNWJwVUg0cXU5MzV5M2NzWllhc1dCc0dyYWgzaVRRUTh5dGs2ZkZRTldPZTlaOTBfUjBfUVFwQkVvYjVQa1V5bW4yN3ZVY3NmcUxDcV8zLWRUM2VHMjTSAWxBVV95cUxQQncwZUNpajJEN3NtVFhwaVZxUHgzRzktWmEwX3RJU3VmWUtraUhLVWRiWWFhZENxcUlUenFKUGpyOWZiejlDN3RtNFhjVXlsS2N0NWNtTzkzQlNmelFJRW51NjFLbk8tQWhWNkk?oc=5) |
 | Unseasonable heat causing severe conditions in SoCal, new wildfires starting to burn - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOSzFMTjVyQk5sbmlfQmlGRFY0U3JiVkFFWURlUnFxZmRtdGZ1Zi1weV9YMkZxaFk4WlVFSFc2UnhsWTJERHo4MkNSZFBIWVQxLUdLQzQxVnR3eDVfN2xMRG1CeGptVTJrLWFlNER2ZU1SSTBTeXBwREZUb1RFY04tdDBpOFRzMDU4dmRTclBWc250UQ?oc=5) |
 | Columbia University student among 5 victims identified in deadly New York tour bus crash - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPc2hqRlNOT0pReFVBcXA5bkdnemc3UF9MNy1JV2tHdWZRcmlUdVFoTW1PeEprZFBvR2JFVzdETjZoUjVRZUZldWd1ZlhoZDBIX3FIcFF1RzEyTWc5SlE2RG51alpMMzdmUmN1Mm1rWF9GYWdZb0xjci1Hbm1GeFdTd0JPc1JuQl9ucGYwd2s0SjZRUEV50gFWQVVfeXFMT0l0N3QwTjJpUHJ2ZWFiUUl1Y1Z6WUxBQUdoSmFOOU9SUEtPd3J2YWZTUGd0SndCMlpmcWNXdXhMREpXLVF1NVBkUDROakJ0UW1pZ0l6RHc?oc=5) |
-| European post offices to stop sending some parcels to US over tariffs - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPUEl3NmFwUW1nbU9YTDZabllTN3NBbUtUU2J2SU43a2NkT2Z3RXJfZndnZmZSUHZQZ21PSzIyN1FNRWhxd1JUcFdDdGZwelFfa2JUUDhTMElYMTNzZWtmZ2JwVXRLc3NVVUxKbEpnYWtjM3A0VGIzQVVSLUN2N3BPQnY0YXVYRlNnUHM2ZzRR?oc=5) |
+| Europe to halt postal services to US after tax deal scrapped - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPQzBkZUNCMHkxREEtclZ0VHF5cWRzNXhBdF9GOTNEYjRIdl9iVTc3T1FJVUo3bVJIT0tGbE9HMDU1RTdNdkJfeVB4cU1nLVFPWjNZY2JDRHlHSkoyQkdaYk9QQnB2STgtemo1OTBLdlVGaEdydlluclhpa09BMUxXdUJua19qZ3pJYk1HNWdibV9mbHVkckVQYnUxOU1Dd1ZzM3JjZ1hZc0tOQQ?oc=5) |
 | The redistricting war between Texas and California is about to jolt the midterms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNaUk3am5pZzJ3SjlYa0kwampkX1VpdWRRVmNTQy1CbGQxRjhTOWNZbDR6OTlra2hYalNPZ1FXTFliQTNvbkJkWW1TbS16ZENLQ0tpWExfZnBrOW9Fb3JmZE9kYW9JLUVCbTJSNXFNWll3d3ZFMVNoTzNRZ0lCdWprVVJkU0xtbjVhTW9fWVEtbU82WlBUVUVLYzlpZ1ZUVW8?oc=5) |
-| Judge blocks Trump from cutting funding over 'sanctuary' policies - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOVkYzS1VQUnE2WnlJZWxfYUVQUlhtemhJd3Rxc1NTOEg5OURGc0l4OTlNbjFJQmNPeVlpaFR5cWVFbkNlQzAwRHE0SXJkR2JNc1lqQzdkVGxVX1I5c3h2TUJpX29kZFlTQmJTUnFxWUJ2Um50cm14cGgwaEVid3JhVHZQZlBGQTdpQUNweUtab29KRElEZTZ2OFdKUXRYS3c?oc=5) |
 | Fresh off Texas Senate’s approval, new congressional map is target of lawsuit - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1IYnloYUpTM1Y2bnFKV19PQVJHd2tMRUhYTnU3TUJkMi1pZ29tcXNHR3NWWTMybzRZaC1Jb3ZfaWF3czJSUnhLUE1QZE9iWWFOUkV0VFNoaGJEWGIzM25uckJ1RFU1SDdpWEVhUWw3R2RGWFFYc3BQa2dKTUE?oc=5) |
 | Truck driver accused by the Trump administration of being in the US illegally is denied bond - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxONDFzbW42UDJ3eEQxM09lcngyZ1F1bFdXM2JES3hpTnFQeHRsUU1JSTVRdS1mNHc3NjQzTWR2cldtSkJVMEp2eEd5R3N3blhsNHFCTFk0SHhYb3hWTGIyTDFGejAxUmJiTHgzazBvN0h2REpXRVhYYjZIVjN3RkgxeGFZYjEycHhnTXBvWjE5OFhJVFZuUEJ0M0hRUkl4UkxNSHJoTlE3NDJmeFlmWnJZSjZR?oc=5) |
+| Judge blocks Trump admin from withholding funding to 34 cities and counties over 'sanctuary' policies - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPaGxpT2RaM3JWNllHUHdGWUw5cUpJcnFKV0szTDRab29JSDYyYTNQSE0tazZobG5EYU93NWtvd2xKOUt5M21QTzc0alJ4T3dhcGJQSlRzTmFIenV1bHh0aG1JUGdsYjdPUUhLTjFBTjB6NV9SSmRLbmV0ZGFaNFBMMVZKX0M1eDNSWV9RRFFnbTFSVDMtcU1nS0Z2clZqdjk20gGmAUFVX3lxTE9ackw0OW1GQVJhRnJuVnRwdkJLTmlhenhoS2NGUlNlY21xa1FqalVxX0lyRTRZb2F6RWFQZ3JhZldwVjJGME1HNHZmMnNWOVRqMlllOU9EeXlRYVV3dmlpZUdNNldsOHFQbXZFMXhzNjdROGJxei1oNXJ4bDZCLVRUaFBXLXVsTUNwcnFLU0QtNlY3dGtCUFJRMlhvTk1mX2NteTFva3c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
