@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 16:49:17（北京时间）**
+🕒 更新时间：**2025年08月24日 17:00:32（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Trump's plan to send troops to Chicago is abuse of power, Illinois governor says | [阅读全文](https://www.bbc.com/news/articles/cd7yperjxneo?at_medium=RSS&at_campaign=rss) |
 | Man dies after 'workplace accident' at seaside funfair | [阅读全文](https://www.bbc.com/news/articles/c7vl9yn00g3o?at_medium=RSS&at_campaign=rss) |
 | Why I started getting anti-wrinkle injections at 23 | [阅读全文](https://www.bbc.com/news/articles/cr5r1qyrl78o?at_medium=RSS&at_campaign=rss) |
-| For orca left in limbo, zoo resorts to sexual stimulation to stop inbreeding | [阅读全文](https://www.bbc.com/news/articles/cedvp89jy4do?at_medium=RSS&at_campaign=rss) |
+| Orca 'sexually stimulated' by zoo staff to avoid inbreeding with mother | [阅读全文](https://www.bbc.com/news/articles/cedvp89jy4do?at_medium=RSS&at_campaign=rss) |
 | Pierce Brosnan felt 'huge responsibility' towards Thursday Murder Club fans | [阅读全文](https://www.bbc.com/news/articles/cn47gkpywk2o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
