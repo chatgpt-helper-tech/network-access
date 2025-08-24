@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 04:24:04（北京时间）**
+🕒 更新时间：**2025年08月25日 04:36:31（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Israel pounds Gaza City in preparation for planned offensive | [阅读全文](https://www.bbc.com/news/articles/cvg478y8l09o?at_medium=RSS&at_campaign=rss) |
 | Worker who died at funfair 'will be loved endlessly' | [阅读全文](https://www.bbc.com/news/articles/c2djy596rezo?at_medium=RSS&at_campaign=rss) |
 | National flags have started lining some English streets. They may say something more | [阅读全文](https://www.bbc.com/news/articles/cx271162ee3o?at_medium=RSS&at_campaign=rss) |
+| Watch: Fernandes misses penalty as Man Utd draw at Fulham | [阅读全文](https://www.bbc.com/sport/football/videos/c80d2pj8x52o?at_medium=RSS&at_campaign=rss) |
 | UK could hit 30C on bank holiday Monday ahead of rain | [阅读全文](https://www.bbc.com/news/articles/cj6yp0j7znxo?at_medium=RSS&at_campaign=rss) |
 | Israel hits Yemen's Houthis after reports group used cluster bomb | [阅读全文](https://www.bbc.com/news/articles/c0kzy7r8pl1o?at_medium=RSS&at_campaign=rss) |
 | New Zealand beat battling Spain with 13 players | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/cn85q4nnjglo?at_medium=RSS&at_campaign=rss) |
 | Boy, 15, and man held over restaurant 'arson attack' | [阅读全文](https://www.bbc.com/news/articles/c1dxy4e9q49o?at_medium=RSS&at_campaign=rss) |
-| Three sisters drown in migrant boat in Mediterranean, rescuers say | [阅读全文](https://www.bbc.com/news/articles/cp89rqgjq1no?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,7 +30,7 @@
 | In Washington Crackdown, Making a Federal Case Out of Low-Level Arrests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNcHNMb3NDV1M0MWswVEN2SzFNLWYwUTFrekFlUmRqaHNFZU9xeW5SWXprVW9oc0dHbkRzTmxnN1AyRkgzRW4zNHI4a0p3VWo2b2F2Q3lTU2IxbkFDSXM2SWx4Q0ZGSzJORlRSR3JlTjBKYjBKaEdVTkR3RXZvS09pX0lBUkhDbXVhUXFNXzM2VFdURE0?oc=5) |
 | At least 64 Palestinians killed in Israeli attacks across Gaza - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPMXFHcGdGNjFjcjJUU0c1LXJRTFNHYWVMVlduVUFGanJZWVZFZmE3dUhpYkN1THVFY2R0N0xVNjFMZWlKaWVhY1p0eHBxeU9ldjZoUVJfUkdkelNraDlnVWF6UUhlNXZoUEhRSWZjZVNqY1dxQWV1SGp5TmZ6Y2c3anVoNzFXU0JaSjBwanJYOWRvQkdKVHllQlpaQm9fNEdveGg1eEh6b1NseXVrS1hGcXJjUTdqcVhLV0c3c1VhbW9TWG16?oc=5) |
 | Kilmar Abrego Garcia’s Lawyers Says Prosecutors Offered Costa Rica Deportation Deal - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi_AFBVV95cUxNR2wxRkhxYzVvYk5TdzF1RGE3YThfWnVLZnhab21zVHBULWhCTUVSd1o5QnZQUU1UZ3JFOUFTN3U0bFZCeXIxYTcyQTF0RTZuNHhSdHdXdWZGdjMtWUpyQlBKOXd2dUhlalFvUDl5YmFlM0taSUNCWE40SUZ0V1NpTWxDckZUV3B4Y0plWUpNSUc1YnlrT3ZBWXRlMk4zLU9LZFNsWWhaWTNDcHVUNFBJVDdRelBLM05COFRsOWxZNGM0akV6WWhXYWNVNWxKa1BvS3ZseFZDd2Ytc0w1d2lkTHVZRkxXQ1VkNVg4ODVHZHlQWDZuS19zNndJRmI?oc=5) |
-| Trump expands cities targeted for possible military deployment to Baltimore in a spat with governor - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQS3JzZEI1TlM3WHRUX2xCYWx4RjF5SmNkSDlPaWxhWVc5RHNZM2otMnRBcWdkWTQzTFZFa0xWS1dkWkR1UEZmNXBNbkNGRXN5T0NDUDJWT0ZkOWVKcVMtaU52R3VRYVNTM09zd3JET3lzT2hsbWlPOWEza2Frd3p0RlJPY05xRUNMLXFTb0xwTjBTQkhtTHZuQTNzZEZOR2Rya2tNY0QzWUdqUDQ2UXc?oc=5) |
+| More than 50 million on alert for dangerous heat - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQNjdEcVlfZVdOTTZnWG1MUW04Q0tnTXlKTm1maVlJM1pra2NkWHlvWFg1VExTWUgxTDVNZGFpTC1oRzQ0THpYdTNjRG0tcUxGWnBWVHF6X3JQVFpRNDJaM0xFTFhLTmg0cU44RlFNNnRZR25DTkNxYld0NjVDMHlEUDRn0gGHAUFVX3lxTE43SUd2b05uMFRpUXRBQXluZzVsZHVNcmtGVVFKWGphZ1pER2h0SlFUcm9GcjNXNE9YME5xa0FxRV9kU0tpQ0IzR1JVRnJZQWtGV3dwMTJBMTdteWNBZC1xV0tZbU85Sngydmx3ZFIyY3g4X3N1bmFFdGpiMmNDV0hNZnZZUTJYbw?oc=5) |
 | California’s lightning-fast push for partisan redistricting reflects Trump’s new America - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQbElfWGJwcUxpeFFXQ3VHQkhtS2FTQlNhaktpb3hiNTN6czRsU0gwY1NGQUd3cXNfU0FHcWloSTQwdzUwb0Q3cGRtdkxRRWNuWGxza2NZVFBreURSRlFrSGZQRkFYcHpmNmFHeXdieloyS0IyaTlYdE5rWmVPOF92R2x0VGQ4em1YVnhRbE81TlhJRk04cktUbnhiY3Z5N3RWQXJjVi1MaW45X3ZJdHJLOG5VbXVqSVNqQzlPVzBMeUc3Vmc5aW1KbE5jazJFUlJxTVE?oc=5) |
 | URMC provides update on patients after deadly Thruway bus crash - 13wham.com | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQcUtNd3V5TzRMTFNMckhZcDJRRnlqOTBLa201VjNicnNuVUY4bklSWWdsNTZkYzVPaUF4cGNCQlVMR1BMRElBN1ZqMGp0RzQ1Q2lpTVVrTk1hX3NRQ0tjOEpud2Vfa0pDWDBjUWtQb29aX2VfMTlqNktiUnAtVlkxZnUwZWY2X0J2Nlg5NGttRVZoZ0RnNi1zUFNkVUJFR1k?oc=5) |
 
