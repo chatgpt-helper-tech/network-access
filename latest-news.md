@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 14:12:15（北京时间）**
+🕒 更新时间：**2025年08月24日 14:24:04（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Columbia University student among 5 victims identified in deadly New York tour bus crash - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPc2hqRlNOT0pReFVBcXA5bkdnemc3UF9MNy1JV2tHdWZRcmlUdVFoTW1PeEprZFBvR2JFVzdETjZoUjVRZUZldWd1ZlhoZDBIX3FIcFF1RzEyTWc5SlE2RG51alpMMzdmUmN1Mm1rWF9GYWdZb0xjci1Hbm1GeFdTd0JPc1JuQl9ucGYwd2s0SjZRUEV50gFWQVVfeXFMT0l0N3QwTjJpUHJ2ZWFiUUl1Y1Z6WUxBQUdoSmFOOU9SUEtPd3J2YWZTUGd0SndCMlpmcWNXdXhMREpXLVF1NVBkUDROakJ0UW1pZ0l6RHc?oc=5) |
 | Pentagon plans military deployment in Chicago as Trump eyes crackdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQQW5fNEk1QlNxYU5rOF9yMDYyTTY5a3YySElOQVZsR0dCTXhDakFhdVVMeDcwOGt1T2xGZnMwN00zRVdZeGdPaGpoT3FoOUlZeWJKMmVWckFka2hnd2Jpel80a1VpNlhsR2UyV0l4ZktIaVBSN2h0cFo0blVTQmdXNzhlZUNEell1blE3UF9JM01mN1FWTC1qM1FDNGk1a00?oc=5) |
 | Justice Department gave Ghislaine Maxwell 'a platform to rewrite history,' family of Epstein abuse survivor says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxOS2k4bkc3NVhMLUN2dVpGcnljTU5BbkZCcE5HMGEzV3dtRGFKa2xJYl84WktvdmppcWxzNF9OSEZTYklRTWpFdkxNbmEwQkUxM1dBSkt0b1ZkeTh0ZDM5RndUYUhvZ0E0Z1owbXdPT203VlR0b1FrRlc1OTRCSHh2cWlHLWJtamlYV1paak42aGs3b2NGMEVodXphb1I1WXFtcGFPelpiWVlKSVdxUWs3SXdVMVREcjNYUFdwcVZjeXR5UnVxZFdwUllEWlI0UdIBVkFVX3lxTFA3bk9SYmtGekNBU29PcEVpcW9MWlVGdzBYdWc5WjRfUU41T0Z2bTNBVTBxcWpuRUxoUDhvaTlYcWtCOFhHbnA1ajNSRHE1dXk4a0dNZWtB?oc=5) |
+| Survivors of Bus Crash Near Buffalo Recount Harrowing Ordeal - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOQnZmV3gxY3Bid3M2OUQ1cWtqYjk3ZXp1N2JGM3F1WjZyeXl6eWQtUURwYXlPVlg3aUFDUVhjU0xQM3RJS2l3WlhyQmhlVFkyR1RwWWpkLUx5QVhvZGItQVRYOGc2UDloa3l4bGVZWVVjRkpraDc4aEItcVBGWW1ITQ?oc=5) |
 | Abrego Garcia's attorneys say government trying to coerce him to accept guilty plea or face deportation to Uganda - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPR284UmE3bWhGVC02WmE5b20wTjdXenZZMzBHek1JX3l6VHV3RWx5dTc2LW5tVDFibVdSekpVLUxENmwwZFltd0hzblFIZElrS2FEWmg0UnVtVzhnNmpJVnpNNUE5UVVoWEdORFN0b0E0V1hpVXY1d3JyQnUzbl9mQUdyeDhLWGp5cW5qTE56ZE1CWGFibnZyMjU1SXQ4SDlRNTdlRVRXaGxCZ9IBrwFBVV95cUxQc1ZaVXBMTDJFN243WEpuNi1YSFcxT3Y0SUMzVkpMcXhzT2Y0VlpDZXJ2bkUzM0QxcjFlWmI3Qll5REQ1Xy1kVTFMTWVoOUdzRWktekxzc2xIeG9fVDZ0czNaeDFYQzFyd2Z4RTR6RnpvbGRITlpEZTJqOGlTR25vemZ4dmlhSWpKVnZvcW1zSS16UVRvLXNwYU9ud0sxUmc5Tmd6aWRzY2FIM1loekpV?oc=5) |
 | Wildfires spark across California as state is hit by heat wave, lightning storms - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOSFpEdEVRUXkwUU5QWVFHT2hzdndWaksxdTdYd0d4b1RGTVlubHVES3l0RTF5QXdQbTg5Q21Gb1BIM19FZGdHbFBHTEZzS2d3eFBrNWJtc2tqbXo1SGc2a3RoSV9ZREE2SnlsNFNMMjNDS2w2cS1aSmJ2TldJaUZvNGZrOHJGLTh1UVRzQVRMMFYwVFN4TWIxQ2ZfYw?oc=5) |
 | Boxed in by shifting tariff rules, European shippers pause some U.S.-bound parcels - NPR | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBpZl8wbnRzWjdnVW9YY2tCVGRHMEg3c19HLXY2cnRsTUYzRGgzenhYeWE3bk9zMGFLUUtMNjJ0SllHdkhBX0w4WkpUVFd6d0MwTlFmOUNwNXdZVkdON1BKWnBHSkh4NDV3Q3RDTmNCaGQ?oc=5) |
