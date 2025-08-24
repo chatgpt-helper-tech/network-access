@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 12:48:03（北京时间）**
+🕒 更新时间：**2025年08月24日 13:00:50（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Evacuations ordered as wildfire blazes California's famed Napa County - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOY2NHUTFTMEowal92SG40SjdTNjQ1emlNMzBkcVdMc2NkVDAzS2VlbG51Q0g0UDhJLU93TnpQbzN6aWpQSkRRMDhib3Y3YU9fN0g1SFdpUDFFUTRLZHN6dDZqanhlekZPVTJWbFNidkM3QmgyaDQ2TWxhcFVtQ3kyb3ZDOXVZbExQRVVnZGcxNU1tR05kWVU0V0pwbw?oc=5) |
 | Fresh off Texas Senate’s approval, new congressional map is target of lawsuit - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1IYnloYUpTM1Y2bnFKV19PQVJHd2tMRUhYTnU3TUJkMi1pZ29tcXNHR3NWWTMybzRZaC1Jb3ZfaWF3czJSUnhLUE1QZE9iWWFOUkV0VFNoaGJEWGIzM25uckJ1RFU1SDdpWEVhUWw3R2RGWFFYc3BQa2dKTUE?oc=5) |
 | Truck driver, accused in fatal Florida crash and by Trump administration of being in U.S. illegally, denied bond - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOY1I2U0NDd0k2Ujl3OEdzWGNpQ0d0VGRURUw3MnFpU294dmV4VGFhRnVIcnNmdEVFQmpaRHBaSFd4YzkyNG9md0FUSlRmU3JER0hYWmN4WWpUOEJmMzRpekdOaWQ0Zk5JQjFOMkltSjJBOWsyVDNNWk9rRm53SUJUTThSX2IzZHlnNUVpT0Vxc0IzMUtqdkkzaGNyWHJzRU9RRXJpQVFoZFI0eXIxdEdobVlVMGZVUjltaUZNTjJkQkNvZ1JDaUlV?oc=5) |
-| Judge Blocks Trump From Pulling Funding to 34 More ‘Sanctuary Cities’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOeGJwR0pNcGtVdFlyODRkdUp1WFZYV2drcTQtc3lLNzZHekJMaXBKTjdIc2JKd1EzMGszR3BZNEFyVTlnWUotdG5KTnFiSDM4U01adlhXWldOa3hwdUxaS1U0OTdqMkVOQ2NtT2NGQWtjRXFsQ1NGQTlxemtYcEcyWTQyWVcxbmxQT2c?oc=5) |
+| Judge blocks Trump admin from withholding funding to 34 cities and counties over 'sanctuary' policies - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPaGxpT2RaM3JWNllHUHdGWUw5cUpJcnFKV0szTDRab29JSDYyYTNQSE0tazZobG5EYU93NWtvd2xKOUt5M21QTzc0alJ4T3dhcGJQSlRzTmFIenV1bHh0aG1JUGdsYjdPUUhLTjFBTjB6NV9SSmRLbmV0ZGFaNFBMMVZKX0M1eDNSWV9RRFFnbTFSVDMtcU1nS0Z2clZqdjk20gGmAUFVX3lxTE9ackw0OW1GQVJhRnJuVnRwdkJLTmlhenhoS2NGUlNlY21xa1FqalVxX0lyRTRZb2F6RWFQZ3JhZldwVjJGME1HNHZmMnNWOVRqMlllOU9EeXlRYVV3dmlpZUdNNldsOHFQbXZFMXhzNjdROGJxei1oNXJ4bDZCLVRUaFBXLXVsTUNwcnFLU0QtNlY3dGtCUFJRMlhvTk1mX2NteTFva3c?oc=5) |
 | Trump Is Holding Immigrants at a Former Japanese Internment Camp - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQU0RfMG9VVnhHaHl0NWxGWFNPcXE2Z2ZXcmlBWkN5WDRqc1NtUi1JSVprWTRsQVJsRFBrNWdTcjlHVFlzLVp2TGVfTFlTbzdYWi1fM0J0V2k4UWd3bjNQc3dtUi11bWlPN2drN3hwWFNjbEJicXhKUzFjUm1qLWxKZzI2MzVnWWVaZVJzdjk2bWt0cTFrNUNaRThhcE5hVjJKUmdUOVZCc2daejBrVWQtbG9HQUxmWURpVG94cEFfSQ?oc=5) |
 
 ---
