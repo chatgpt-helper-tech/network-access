@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 05:25:40（北京时间）**
+🕒 更新时间：**2025年08月25日 05:36:23（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | In Washington Crackdown, Making a Federal Case Out of Low-Level Arrests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNcHNMb3NDV1M0MWswVEN2SzFNLWYwUTFrekFlUmRqaHNFZU9xeW5SWXprVW9oc0dHbkRzTmxnN1AyRkgzRW4zNHI4a0p3VWo2b2F2Q3lTU2IxbkFDSXM2SWx4Q0ZGSzJORlRSR3JlTjBKYjBKaEdVTkR3RXZvS09pX0lBUkhDbXVhUXFNXzM2VFdURE0?oc=5) |
 | Smithsonian artists and scholars respond to White House list of objectionable art - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5WS2tENks1dUtwQ3poaXJJQ3RjcXNCcXdabTlZSzg5M2JfOFI0bExSSWs4ZE9NQjlPSDlFZ1RscDVsdVdWMTNvZmRIQV9RdnpGNngwYmZaRXloTXRLRFpHVWxONjBVdU1aT3RpUXhfYWFBaG1KdzZ4MG54M04?oc=5) |
 | Illinois officials blast Trump's threat to deploy National Guard in Chicago - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQV2lGcVpJTVlhTTN3eDAxYkFSSEw2UWE1amQ5Sm1vcGxhUWRLUFI2bjVmUm9yYVlhMXdXc2MxQjQ1eTNMbE1DT0l5aWNCTTB6N25kS0lBM1E4S3BmbUdfNXY3WWozeHdaQ3MzZUZlSjhaa05XaW9MTG02akN4TDZfTURGdVZxUmNwVks2YnYwRmZQQ1NBdjQzd2tWb25QbUNwbzdiWnhLUzhpSHNQMmgzRFBsczk2QXZKbEM0?oc=5) |
-| Alina Habba slams Sens. Chuck Grassley, Thom Tillis over Senate's blue slips - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPQ3V3aTZ6X0swaUw4c0F4eER0UTM4RXZLZG04bnNCQnE3NmNlLVVOYlEtNlI4OE10S0VpdENjVGk2anpJNER0QldldzhMMXhId1Ezc1pJMkQ1V2hpX0s1OEE5Z2Z2RktiWWEzR2QySGEySk9KNzVBOGRKajJxSmpLUnBCY2t0NkFmM2lVSXFn?oc=5) |
 | More than 30 million on alert for dangerous heat - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNMU1SRjl5RXV0ZVhmZUdhMXpHSFBKaDRqVnpSRXQzZW9zUExOc29jYzc3TjdRN3ZBMUlicXFNTGtKMWVUTllOTlQ2Z3Nwc3lSejFwbFdtS0hNTmV5YlpaOEV3d2VOdDdoaGFZSXlHZ1ZCcDhuYWFlZGhDOElVZG9qVU5n0gGHAUFVX3lxTE9XZVFYLVZYc0g4Yzd1RTRqMEM1YlpXS1UxeWhTT080V0hMeVVEcndoWDRvMV9NNUhPdjU0WWQtREFEdGpzdnd2a0FFejd5NjJ1VUs3Q1hMQ0RRbDZBQVpjVkhLaE1scm1DdWVVcXRiNkdsaGpORmYyUXZGYWVhZ3c2Zm5xT0dYZw?oc=5) |
-| URMC provides update on patients after deadly Thruway bus crash - 13wham.com | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQcUtNd3V5TzRMTFNMckhZcDJRRnlqOTBLa201VjNicnNuVUY4bklSWWdsNTZkYzVPaUF4cGNCQlVMR1BMRElBN1ZqMGp0RzQ1Q2lpTVVrTk1hX3NRQ0tjOEpud2Vfa0pDWDBjUWtQb29aX2VfMTlqNktiUnAtVlkxZnUwZWY2X0J2Nlg5NGttRVZoZ0RnNi1zUFNkVUJFR1k?oc=5) |
+| Alina Habba slams Sens. Chuck Grassley, Thom Tillis over Senate's blue slips - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPQ3V3aTZ6X0swaUw4c0F4eER0UTM4RXZLZG04bnNCQnE3NmNlLVVOYlEtNlI4OE10S0VpdENjVGk2anpJNER0QldldzhMMXhId1Ezc1pJMkQ1V2hpX0s1OEE5Z2Z2RktiWWEzR2QySGEySk9KNzVBOGRKajJxSmpLUnBCY2t0NkFmM2lVSXFn?oc=5) |
+| Pickett Fire burning in Bay Area grows to 6,800 acres - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOSFpEdEVRUXkwUU5QWVFHT2hzdndWaksxdTdYd0d4b1RGTVlubHVES3l0RTF5QXdQbTg5Q21Gb1BIM19FZGdHbFBHTEZzS2d3eFBrNWJtc2tqbXo1SGc2a3RoSV9ZREE2SnlsNFNMMjNDS2w2cS1aSmJ2TldJaUZvNGZrOHJGLTh1UVRzQVRMMFYwVFN4TWIxQ2ZfYw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
