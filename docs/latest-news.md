@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 00:00:50（北京时间）**
+🕒 更新时间：**2025年08月25日 00:12:51（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | National flags have started lining some English streets. They may say something more | [阅读全文](https://www.bbc.com/news/articles/cx271162ee3o?at_medium=RSS&at_campaign=rss) |
 | Pub and travel bans proposed under sentencing rule changes | [阅读全文](https://www.bbc.com/news/articles/c5ypej14j2xo?at_medium=RSS&at_campaign=rss) |
 | Boy, 15, and man held over restaurant 'arson attack' | [阅读全文](https://www.bbc.com/news/articles/c1dxy4e9q49o?at_medium=RSS&at_campaign=rss) |
-| My trip to North Korea's 'Benidorm' - flanked by guards and full of rules | [阅读全文](https://www.bbc.com/news/articles/c707d1ez0kno?at_medium=RSS&at_campaign=rss) |
-| Pierce Brosnan felt 'huge responsibility' towards Thursday Murder Club fans | [阅读全文](https://www.bbc.com/news/articles/cn47gkpywk2o?at_medium=RSS&at_campaign=rss) |
-| Orca 'sexually stimulated' by zoo staff to avoid inbreeding with mother | [阅读全文](https://www.bbc.com/news/articles/cedvp89jy4do?at_medium=RSS&at_campaign=rss) |
-| Mum noticed my wrinkles at 23 - now she regularly gives me botox | [阅读全文](https://www.bbc.com/news/articles/cr5r1qyrl78o?at_medium=RSS&at_campaign=rss) |
+| UK could hit 30C on Monday - but strong winds and rain lie ahead | [阅读全文](https://www.bbc.com/news/articles/cj6yp0j7znxo?at_medium=RSS&at_campaign=rss) |
+| Three sisters drown in migrant boat in Mediterranean, rescuers say | [阅读全文](https://www.bbc.com/news/articles/cp89rqgjq1no?at_medium=RSS&at_campaign=rss) |
+| Controversial barracks to continue holding asylum seekers | [阅读全文](https://www.bbc.com/news/articles/c5ypzlm5yv0o?at_medium=RSS&at_campaign=rss) |
+| More than 500,000 ordered to evacuate as typhoon heads for Vietnam | [阅读全文](https://www.bbc.com/news/articles/cx2pw5ypwqeo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
