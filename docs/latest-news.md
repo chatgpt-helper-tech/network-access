@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 21:37:07（北京时间）**
+🕒 更新时间：**2025年08月24日 21:49:09（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Fresh off Texas Senate’s approval, new congressional map is target of lawsuit - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1IYnloYUpTM1Y2bnFKV19PQVJHd2tMRUhYTnU3TUJkMi1pZ29tcXNHR3NWWTMybzRZaC1Jb3ZfaWF3czJSUnhLUE1QZE9iWWFOUkV0VFNoaGJEWGIzM25uckJ1RFU1SDdpWEVhUWw3R2RGWFFYc3BQa2dKTUE?oc=5) |
 | Kilmar Abrego Garcia’s Lawyers Says Prosecutors Offered Costa Rica Deportation Deal - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi_AFBVV95cUxNR2wxRkhxYzVvYk5TdzF1RGE3YThfWnVLZnhab21zVHBULWhCTUVSd1o5QnZQUU1UZ3JFOUFTN3U0bFZCeXIxYTcyQTF0RTZuNHhSdHdXdWZGdjMtWUpyQlBKOXd2dUhlalFvUDl5YmFlM0taSUNCWE40SUZ0V1NpTWxDckZUV3B4Y0plWUpNSUc1YnlrT3ZBWXRlMk4zLU9LZFNsWWhaWTNDcHVUNFBJVDdRelBLM05COFRsOWxZNGM0akV6WWhXYWNVNWxKa1BvS3ZseFZDd2Ytc0w1d2lkTHVZRkxXQ1VkNVg4ODVHZHlQWDZuS19zNndJRmI?oc=5) |
 | Unexpected release of audio file causes drama as Menendez brothers are denied parole - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQaUpMZVl2bXlpcFYzWE15NTdVV0R5Y2FfQlk3c29IaDJQeXJNbk9tNjNMV1NtazVLdUJCLWtPbF9EMlJfanY1Q3FfLWZ2Yy1Ka0JWUnUyVWMwV1FOcXFIQTIyeU5BbFpuckphVm5GMUtWM3NieHZhbDRZelpGOENTNkF0ZE5CeEZtanlDWllVbzc?oc=5) |
-| What to know: Four ways ICE is training new agents and scaling up - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOZ3N0SnYwUGxjcDE2ZjhZWWozNDdTRFZULTF4MjdISlhfQkhTVlJhOVgxZzFicDdIX2ZCX09JQ1d5aWpGUHlqdThIR0sxSDZaUUYwUGU3c3VQYWFieG85M0JPRVFheXNIeTdwYWFKSTIwdnp4SmVkTy0zYzVKRVFDTF80N1dWTlAxM2dBMmJaOHJJVEkyUVFMcnoyWm5iamFuVVJON1ZITjE?oc=5) |
 | The key to the Trump administration’s rapid detention ramp-up? Republican governors. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNSjBGR2daR1lNQUVIQUtadVpyOTVYLXZEX19sWkxzY0VmU0FYU0didU5DTDZRR3h6V3RlSi1vX0xXZ0NiTWVqeklqZF9lM1ZKRnF1NHlQN0NvRDA4OFJvQmpDaElic3dpRlpLQlBpcVM1TzhXVmcyNkpzRk5kOTZab1BrMVdINE4t?oc=5) |
 | Redistricting war between Texas and California is about to jolt the midterms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNaUk3am5pZzJ3SjlYa0kwampkX1VpdWRRVmNTQy1CbGQxRjhTOWNZbDR6OTlra2hYalNPZ1FXTFliQTNvbkJkWW1TbS16ZENLQ0tpWExfZnBrOW9Fb3JmZE9kYW9JLUVCbTJSNXFNWll3d3ZFMVNoTzNRZ0lCdWprVVJkU0xtbjVhTW9fWVEtbU82WlBUVUVLYzlpZ1ZUVW8?oc=5) |
+| The tragic end of Emmanuel Haro: Demanding ‘answers for this beautiful, little baby’ - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxNUjg2b0NrY2p4RGxJTWNENTZvQlRPZFZ5UUJyejBsVHpPbmlQaThOMC13T3ZqWkt1SWVTWTJWVGNzYzVESmEyODBLQmo4Z3R2dGFyTXFMM21SWHloTnFRblFNeGtwQTc0V011M1g5T3RVTVl4WnNCdGNEUjdqSHlsLTJrMnlScV92NXl0ZjlNdUNobVJUYWM4TVMxODRYTzNKR294cHJNM0VKeFl6Y2Rfam9QSXM1a2c0Vy1NWTQ5Zm5JZm1nX2NvNGszT1c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
