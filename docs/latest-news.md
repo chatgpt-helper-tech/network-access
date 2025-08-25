@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 08:24:33（北京时间）**
+🕒 更新时间：**2025年08月25日 08:36:19（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | 'Once-in-a-lifetime chance': Gaza scholars await UK evacuation to pursue studies | [阅读全文](https://www.bbc.com/news/articles/cx2x16y2ppro?at_medium=RSS&at_campaign=rss) |
 | A cut-off finger ended her comfortable family life. Now she's hiding from US officials | [阅读全文](https://www.bbc.com/news/articles/cvg4kd385e4o?at_medium=RSS&at_campaign=rss) |
 | Chinese property giant Evergrande to be delisted after spectacular fall | [阅读全文](https://www.bbc.com/news/articles/c14g7r44566o?at_medium=RSS&at_campaign=rss) |
-| Worker who died at funfair 'will be loved endlessly' | [阅读全文](https://www.bbc.com/news/articles/c2djy596rezo?at_medium=RSS&at_campaign=rss) |
-| Government plans to overhaul asylum appeals system | [阅读全文](https://www.bbc.com/news/articles/cg4xp4ywk47o?at_medium=RSS&at_campaign=rss) |
+| France summons US envoy over antisemitism claims | [阅读全文](https://www.bbc.com/news/articles/cq58102wz47o?at_medium=RSS&at_campaign=rss) |
 | Watch: Fernandes misses penalty as Man Utd draw at Fulham | [阅读全文](https://www.bbc.com/sport/football/videos/c80d2pj8x52o?at_medium=RSS&at_campaign=rss) |
-| Women aren't just 'cosy gamers' - I play horror games and 600,000 watch | [阅读全文](https://www.bbc.com/news/articles/cm21xy23npyo?at_medium=RSS&at_campaign=rss) |
 | Watch: Notting Hill Carnival kicks off with the children's parade | [阅读全文](https://www.bbc.com/news/videos/cm2krzrz2xgo?at_medium=RSS&at_campaign=rss) |
+| Women aren't just 'cosy gamers' - I play horror games and 600,000 watch | [阅读全文](https://www.bbc.com/news/articles/cm21xy23npyo?at_medium=RSS&at_campaign=rss) |
+| Government plans to overhaul asylum appeals system | [阅读全文](https://www.bbc.com/news/articles/cg4xp4ywk47o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,9 +30,9 @@
 | California’s lightning-fast push for partisan redistricting reflects Trump’s new America - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQbElfWGJwcUxpeFFXQ3VHQkhtS2FTQlNhaktpb3hiNTN6czRsU0gwY1NGQUd3cXNfU0FHcWloSTQwdzUwb0Q3cGRtdkxRRWNuWGxza2NZVFBreURSRlFrSGZQRkFYcHpmNmFHeXdieloyS0IyaTlYdE5rWmVPOF92R2x0VGQ4em1YVnhRbE81TlhJRk04cktUbnhiY3Z5N3RWQXJjVi1MaW45X3ZJdHJLOG5VbXVqSVNqQzlPVzBMeUc3Vmc5aW1KbE5jazJFUlJxTVE?oc=5) |
 | In Washington Crackdown, Making a Federal Case Out of Low-Level Arrests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNcHNMb3NDV1M0MWswVEN2SzFNLWYwUTFrekFlUmRqaHNFZU9xeW5SWXprVW9oc0dHbkRzTmxnN1AyRkgzRW4zNHI4a0p3VWo2b2F2Q3lTU2IxbkFDSXM2SWx4Q0ZGSzJORlRSR3JlTjBKYjBKaEdVTkR3RXZvS09pX0lBUkhDbXVhUXFNXzM2VFdURE0?oc=5) |
 | Floodwater engulfed a Tennessee hospital. Then came the megalaw. - yahoo.com | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOQThfemRMQS1TZjFuWFlOWWFqeEhVdklORlo3V2hNN0dqMF9GRjBNVUNUaHkzd1RxNXQyVTVHeEdpWm9fQlltR05UNXhLa3A1blZBOGZPQWp4dEc0WFR1ZkdzUkFfb1pYenVkRUlTdHhTNk05MlpmWlpNS2VFRndkNUZkT2taWHNBSWtNMURielFzR0dacEpIQUZn?oc=5) |
-| More than 30 million on alert for dangerous heat - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNMU1SRjl5RXV0ZVhmZUdhMXpHSFBKaDRqVnpSRXQzZW9zUExOc29jYzc3TjdRN3ZBMUlicXFNTGtKMWVUTllOTlQ2Z3Nwc3lSejFwbFdtS0hNTmV5YlpaOEV3d2VOdDdoaGFZSXlHZ1ZCcDhuYWFlZGhDOElVZG9qVU5n0gGHAUFVX3lxTE9XZVFYLVZYc0g4Yzd1RTRqMEM1YlpXS1UxeWhTT080V0hMeVVEcndoWDRvMV9NNUhPdjU0WWQtREFEdGpzdnd2a0FFejd5NjJ1VUs3Q1hMQ0RRbDZBQVpjVkhLaE1scm1DdWVVcXRiNkdsaGpORmYyUXZGYWVhZ3c2Zm5xT0dYZw?oc=5) |
 | JD Vance defends federal investigation into former Trump adviser John Bolton - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9uTVEwV0lYdTI3ZzdLZVZCRG9mc1VkTzlsLUJ3T2tlX2lpYlVqdXVEa2RHZG1nZVU3V0dSeWJqUEs2VTBaTzIzV3BDanpoUkRVRnlBaFFmVHZIbnNUVXAtc01uUGYtb0xKbjBBOVNMZjJJNVRtbHEtdjVn?oc=5) |
 | Release of audio recording interrupts Menendez hearing as brothers’ parole is denied - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9LY2UxaXQtNXlsSk9kQ2xyYUdhWkhNYVFhUjNRRUxaQXNCUUFEUFl3Uk9BTDdaXzg1VXlyZzh5cnlYbWJJeGFPQnYyZFFyMjFVZm9zU3gyb3BQdzE4VTFOd3ZORlYtYmhyQlhNdl9NRHJHMksxdm5GTg?oc=5) |
+| Pickett fire in Napa County grows, threatening homes and wineries - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQeDkwc0NxaEZDOEVpdWhnYjRkdnViZDUyRERXTl8wYmh2MkJmMGxZNER2a2hIbkFuQWhpQ3hONGpHYnExLVMtb0UxVTdFQTJlRUg4bEZkYloycjZWWnZiNUlXUHJ3enhhOGx6WDR3a2FXY2xDd05Iamx0UWxPVllvYkxR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
