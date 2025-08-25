@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 13:36:35（北京时间）**
+🕒 更新时间：**2025年08月25日 13:48:09（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Johnson, Pritzker, other local leaders ponder steps to counter potential Pentagon plans to deploy National Guard in Chicago - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPR1lIQ0t0eVZkYTZRc3FRcFVmY2RWSDRDZWlIZkxyekZmVy15SC1GZmM0b1RoeVNyQXdzYnFWVm0zZDR1SExyWmNHM1JuZHhtV1BCTWdOVm9GZkY2bFpGU2lTU3pUSjhlcXdEdHR0SG1kTmloOHUxbkRibW5CQlB4dEtzYUN2Nm9qTnFfVmtuajZ0b1J0UXlQXzg0bWlLT3VDa2RHbzhFclk?oc=5) |
+| Trump Planning Military Deployment To Chicago, Report Says - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPX3lXVVVSVXhMVklPQWpVLTI0UFhrdEdzUVloT21nOHJYQWQyUVNMd0tpTzZCUnZUN2lDOEpoY25BTmQ1aEE0T2RIWjJDWjdjTExYT1V5NkFZVnpUM3o4ZldObGlNN3hMNzFwbGdfcjQ1SWRMaXhvQm5xLVBXZmtLNUhPOW5YbHdiMm5fSlZOaTB6bnY1aWp4aDJvUVB2XzQ?oc=5) |
 | Kilmar Abrego Garcia expects to be detained by ICE again, attorney says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNQThWWmFRZkxfR3lhU2lNNFNCV0pxN3VKR3gzRkRKNzVINFpCRjM1WXpuZ010Y05SVDNtWVpSN1h3T2xNX052eTcyb0g0TGN2NFUxX1pmOVhtUXJNOGw1cG45UGVnMVNoNURPUENpN1VSc2JFOFEzR19JbEVzbUVLeU5yaWc3RlhNTm5vRnBWUUEzanVXUnN1SGpEcldMMHdLSUM2V2NZM09Kb1BJckpJ?oc=5) |
 | Photos: Scenes from D.C. as National Guard patrols start carrying weapons - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE11QUZJcmNEUk00YXpGb2pMVHR1R2tKQWJ5NlBSMTJMa0RuU1lNMkV1aXp6ZTdaYzdmSjQ2X3hSNVRMRkp6VHRndXYtUFJJWEM1RVNGelZqbjRPaDhMcjF0UHBhYl9jWUk2ekxaYnY2Vm90TmJ4WE9ITjdR?oc=5) |
 | Trump's redistricting push could bring decades of Republican rule to the US House - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNWjhra0pRc0FkM2pFYjRvRHJiQUtPdEVKRW1IM2gtSnpoTzBoQkpSSlhYdlAza291SHlYVnY3U2xPUzVWZkowOGNFXy1OV3YxU3Vibk4xUlp5SHVLcXYzYjJEVzN0bm4yQ2VwelFfX05meWNxWWd1Qjk0WlJ1Y1E3eExOLVlySHQ5TDZmNVpUN281Tmp0X3YtZzJpbEtYV3l4am9tMV9GN0Z1RU9BdXB5TW1salZBZw?oc=5) |
