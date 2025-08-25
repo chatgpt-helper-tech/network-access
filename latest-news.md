@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 22:13:21（北京时间）**
+🕒 更新时间：**2025年08月25日 22:24:29（北京时间）**
 
 ---
 
@@ -8,13 +8,13 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Inside Donetsk as residents flee attacks on Ukrainian region Putin wants to control | [阅读全文](https://www.bbc.com/news/articles/c209yn1ygz6o?at_medium=RSS&at_campaign=rss) |
 | Hospitality hit by half of all UK job losses since budget, industry leaders warn | [阅读全文](https://www.bbc.com/news/articles/c05ey2ypp92o?at_medium=RSS&at_campaign=rss) |
 | Virginia Giuffre memoir to be published months after death | [阅读全文](https://www.bbc.com/news/articles/c2djy7048pdo?at_medium=RSS&at_campaign=rss) |
 | Medvedev has US Open meltdown after photographer interrupts play | [阅读全文](https://www.bbc.com/sport/tennis/articles/c0qly4k97q0o?at_medium=RSS&at_campaign=rss) |
 | Scotland is known for its rain. So why are experts worried about water supplies? | [阅读全文](https://www.bbc.com/news/articles/c0qly7g9pepo?at_medium=RSS&at_campaign=rss) |
-| Mushroom murderer left me half alive, only survivor of toxic lunch tells court | [阅读全文](https://www.bbc.com/news/articles/cp8zr04wzz9o?at_medium=RSS&at_campaign=rss) |
+| Inside Donetsk as residents flee attacks on Ukrainian region Putin wants to control | [阅读全文](https://www.bbc.com/news/articles/c209yn1ygz6o?at_medium=RSS&at_campaign=rss) |
 | Get ready for fracking, Reform UK tells energy firms | [阅读全文](https://www.bbc.com/news/articles/c74172wlezwo?at_medium=RSS&at_campaign=rss) |
+| Mushroom murderer left me half alive, only survivor of toxic lunch tells court | [阅读全文](https://www.bbc.com/news/articles/cp8zr04wzz9o?at_medium=RSS&at_campaign=rss) |
 | Women aren't just 'cosy gamers' - I play horror games and 600,000 watch | [阅读全文](https://www.bbc.com/news/articles/cm21xy23npyo?at_medium=RSS&at_campaign=rss) |
 | 'It's terrifying': Thousands evacuate as typhoon batters Vietnam | [阅读全文](https://www.bbc.com/news/articles/cwy0kqgxwwlo?at_medium=RSS&at_campaign=rss) |
 | Lives torn apart by fatal crashes on one of UK's longest roads | [阅读全文](https://www.bbc.com/news/articles/c70xn6pnx0go?at_medium=RSS&at_campaign=rss) |
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Kilmar Abrego Garcia taken into ICE custody at immigration appointment - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQOXRJdkpYTTFsTmlPRXF4VVh2MmpvN0Nzc1kyWTJOa2w2dmxqOFEtMWkwX2pmNUtUQjV3ekVUZHluaXBEZWRjNkllS05wdFlTN0xFZmpUVTJFaktLOW1yN25FQVFHTzh6cnRiUFdDNU82N1RHaEpjVjUxYkpyUlllaXZsNDhtNzBn0gFWQVVfeXFMTnlDdFhJUXVQQ1JkeUJHS1paTGZCcmt0cldDcjBweGJSYk93OUowOHVYZGVuV3FPUDlVQm9qTjNwTk1rTUE1MTRleXlXLTBKZGpybGRKalE?oc=5) |
-| AP freelancer among 4 journalists killed in Israeli strikes on Gaza hospital, health officials say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNTDNRUGFPdmxPclVMZW5GU2l4YUJSZXBuckF2TEU2VkFBVjQyOWg2SmR6aC1sU0RvWG10a2h1QnU3cUdDVlFta3EtcTJqSmt5R2J6dUs1R1IyRXVTOFBrN1J0bEtCUWZUOE1pZS1kVzhDRzc2OUEyeElyR0poNmV2NWdNdEFtNnJpZVBGeEVDVV9pY2lIcVYyc0UtZkU?oc=5) |
+| Kilmar Abrego Garcia detained by ICE during Baltimore check-in - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNSGdmX1JjVFN3N1JXLUpvTENDcFN2ZTBMdzlUZFVQbHd4WWJxdlk5dzMwcm9BamJTOFM1RFgtR0tfS2NMZXRfNjhFZnY4ODk2eXN6V0wwb1YxY29zcVU2dUFXVy0wQzktanllQk16dkVJSjBjU1k3d25ZREwzREdzOEFhckE?oc=5) |
 | Governor JB Pritzker to speak Monday on President Donald Trump's plans for possible Chicago National Guard deployment - ABC7 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMi3gFBVV95cUxNMlVnQ3lkNmNtSG9NMllWTUZHNGlwTU9MTU5zcll6bWo1VFdON0MzY081TFZ0X3JuQmNNSVQ2MjJzbHZ3Rkx3RFVZRjJZQ1RaSmNpclR6T1J4Q1B2ajJhWEtpWndyb29nN3pNOVd4TmstMEpiS3ZFNml4Zm55UWtObFFmUjRBOVFqNmZzY3VpMUFCOU5lZ1ZwdmRybFBqemo0bndYNGZ0eXNGOWdPbDJNbV85RzB0Y0FaUFpDSG5idVY4RUlWdTRUOHdpU2JnNzN3eEpQZkVOSnIyRWladHfSAeMBQVVfeXFMT29ROXB4STdQMVpGLUx4T2R5UEprckZuajZDVm42dzlXbHBvckEyMHAxZVQ5NFRzZkVxbk1qNV9CSHg2WUxwa3ZjblFmMkpVX21uVXVtOVZRcXJOMXo4Y0RfdXgySkJUUWFVOElfczJQbTFRQm5MYXVZLUN3UFRITWxqVGRPZUNMSHMxM1JKRFBRWGUyQXIxZU5aVm00T0VnNWhyVHVMYUwwb1d4ekotaXVlZG9mRVBRdXplSWl5X2ktQmZ1OXFTd1BhbjBIdDM2VzBjbkVDMDdkYnNUejU4VGZPUVE?oc=5) |
+| AP freelancer among 4 journalists killed in Israeli strikes on Gaza hospital, health officials say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNTDNRUGFPdmxPclVMZW5GU2l4YUJSZXBuckF2TEU2VkFBVjQyOWg2SmR6aC1sU0RvWG10a2h1QnU3cUdDVlFta3EtcTJqSmt5R2J6dUs1R1IyRXVTOFBrN1J0bEtCUWZUOE1pZS1kVzhDRzc2OUEyeElyR0poNmV2NWdNdEFtNnJpZVBGeEVDVV9pY2lIcVYyc0UtZkU?oc=5) |
 | National Guard Patrols Begin to Carry Weapons in D.C. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQel9OejB5ME9uUk5fdVRZd1lHWVlfTjBSVzNrVTdhMHlBSUo2NzBnQ3UzWTh6UU5HM1RFRG5XRTVYcHZuRTF4S0YxSmZrZktUSmM0TGpJclBNU1NnODhhV2JRZnFqYmpMODA0al9KVU1kS3pKbGpfTnA2dXVsT2dPNUpuRmpzWloxUlE?oc=5) |
-| Scoop: Trump plans order to end "cashless bail" in D.C. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFB0RFdkVEYxeG45anFfMHFNOWZTS2x0RVBsNFBRS1NrY25UbkpsSkI2U1FDX3dlX0FKSlQxSFVMd21LOXh0MUVVZHctOGN4UXhQQ2RvcmZKMVgzS2NpYjhRRXFKWUNrZXRYdk1DeWxQMmRTdjI5bXhTeVpzZw?oc=5) |
-| First human case of flesh-eating screwworm parasite detected in the U.S. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPcHlyZURDc3hLNE16VnhfVDVXQ01RTlZfTnNJR2dOVkZ0MFJLLTVWYUNtMnp3SHVmMkVPRmE5U1NGWXN6bHZYeEZWM0FOb1B0enc5UFF2dF9zT0FmTVNyRVNsaUNoRkhEUFV5ZWQ5TVd0U2ZSbC10Qkp4S3o5RWJyeVVuOXdWb3hySV8tdm1EdlpTZFdNdmczMk5WYnhZNnpBZmJGYnZHSHEzdG5q0gFWQVVfeXFMUENrOXZEamhmeTBzb0NZanJyWElzQ3dURExQUm15N1Z6a0VMcXdSUU1hNTZGcTBmdWdkSHBNWkc0LU8yUEItNlhVMVpCYXYxVkhQUDVhWmc?oc=5) |
+| Trump to sign executive orders aimed at ending cashless bail in D.C. and across the nation - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNUnE0RGVZSndJc2pLT2tHQ3Z0MWhOYUViYVVqTXFsMXJpT3Z3S3BFMUpjNzZUakxteGJ3Yy1TMmxMWS1SWUZtN3RPdWNQanJjWXpXZnMybzhOSGhGUlViZXNfc25yTEhRMzZGN21URDVJeTRlbzF4YzhzdV9pSm1SZVVZQVJqVVN1X1VlclF5dXNNN19ybDlUOWh2MUFLYkRiUFRIZEhB0gFWQVVfeXFMTlRWdmtWa1RaSkZuVnFPdDN3cXdLMFQ1NHZiMlRDb2RBaF9DZmFWWEZpak5UZnlEc1NJbklvR3JoLWk2Y01XWXFYTVNSSUZ4VWJwZDlXNVE?oc=5) |
+| Flesh-eating screwworm case detected in person in U.S. for 1st time in years - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOQ1lBOFdPdWphZ041M3BqTkZVR0dUV0YyUC1ybXFuOFVBdXhiVXB2NlVFZGtsbnZrZGxfVjVRcUFQQWpHd2lWMGlQbGpDS2d3dTQ2SGVJZGVUMldHX3plYmY4S2VhaVpJbWlRa212VjlTM3hQNkxUanZJZEpFdTlPNUFFdEVlblh0Q1NCTkZ6OA?oc=5) |
 | Trump responds to Maryland governor's invite to Baltimore: "Clean up this crime mess" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNMlpiSXFsZU9mSU1FWl8yNXI3WVJyQnIzX3VQMUpvcEMtZHF5TWxMS2pJa0lwX3hIc0dNVzlpZUFyUjRtWkFvanpxRG1nNjAtcHYwN01fbEM2bnRPcjMxaWtrLUZCd2FJTXJUTkFFcEtqU21nQnFwQ3B6R0lzSmJQdDNpV0h6S3VCS2FGZDlR?oc=5) |
 | Philadelphia Transit Cuts Take Hold, and Commuters Begin to Feel the Pain - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5ZaXQ4a0dva0ZlQUZNVWh4bUptUjNMczdGZWNWMVJpeE9jRGZvejdlRF9uYVcxUjZXYTNMWmJsd3ljZUFKNlIzbDhoMlYxUV9pUFp4MmtxSlJpVngta19xZS1wY1BBZDE4TnRCTC1yejBlZmExTDU0?oc=5) |
 | US fighters intercept Russian aircraft off Alaska for third time in a week - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNemVJQXd6YXZVY3VXZzM4UzFnOEQ4c1pHaUtlOFg5WTNlMEFzWVY3WDRuQUNDdmZCZVF2STR0UjVod0w0enJIOTlEVnhYSmZzaUgzZlBtWmNxMklnUVRVOEFRRXhIY1ZBSjRqeHJPNm9tYXJwZnBDVUR2bTZxejRIRXRQdjl2VVA2eFdscTZwTUkzcDlvRTVrSmE2M2JQM1MxeFY1Xy1JX0w1Mmxva2RB0gG0AUFVX3lxTFAwWHdsQVRSTDcybXJqUG5fQVBVOXRGaGI1V2pZcHdtbjBRUWh0bFVsVllRSXFjZ0JTWGNxSnIzQThRUDROMDlDMUhIRFFBRE1DWFNRR3pRUXJ1N291Q3pLdUl0VndZWUNteHBGX2VSZVVRS0FJSWpSb1ZsQVpITG9kb3RVOUV6UG56NlpzVUNSTUxBQW9GeDhmVGoyTHFmZmo0U3dfMU9GdG1LQzBUTEx3S0FDVQ?oc=5) |
