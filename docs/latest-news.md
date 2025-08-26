@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 00:01:24（北京时间）**
+🕒 更新时间：**2025年08月27日 00:13:18（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | The DOJ sued the federal district bench in Maryland. A judge just dismissed the case - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPMjcyTmlLeTJmZUs1MU1fb0ZJSVVnMERtRXAwdDBlQldlTE4ycnh6NExkRDBjUkRXSTZndFg2OTRBNHhYcGhtTi1UOVZuQWc0Y0gyN25FVV90dU81WlpmcTQtR3lmNW9rYVg5THc1RXZEM3d3b1p3Y0NvcFVFWW9CNnBMeXM?oc=5) |
-| Trump says flag burning incites violence and riot. A Supreme Court ruling cast doubt on that claim. - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPZEFrX2JubUNGSFhPUlJlZHVHV0YyeTg2aFBOR2NZcGR5a2c0blg3Yl9fWVJLOC11Wm1WTEhsN1NuWUVaZjhETWlONGRkbGp0YWRkdUVZcmE1VlNNNU9EYzZTUlo4YlZnMGZteGNNOVpCUW5USlZZYVNCUk9FcnUtNFRycDVoSGpBY2ZMSmhrQ3FGX1k4RWRsQ1YtSWY3cEhveHZKTy1BMjjSAa4BQVVfeXFMTV9lT3lnWE52OThQZE1ab3dRRkRWdTB0ak9Gc2pCNm5LMmZ6VjVvYWNyRGE1bDY0SzB5czZYWWozbFo2c2prWkpGMG54QjNyZHNENDU5WWF0ajFLdlpVeDREeThjbWdvNzgwYUNMY2RUMHhDWUJiVjhHZ3J1OElDQ3otQ0d4SnJQMWd2RWtwc2RFelAtZnh6dDUxNUd4SDZsbGVybUdlaURMNUxIcVFn?oc=5) |
+| Man burns U.S. flag near White House to protest Trump order - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxONV9lc3d0Q0JOQXlmV3FfTlJ3MVBrNGlCb1FUUFZtVGV3R3pacFoySzVVSjMxVmVGSXA2Y3NBXzNYV2pQZkhkU0FiTnNrWm02QzFnY1NIWm9GbFhWMm9qOEhUTW5HSzdXT3Uydm5QaEVEenFYTDVTNkpuamE0MWFvdmJEMkpNbzBy?oc=5) |
 | Trump's threat to deploy troops in Chicago raises legal questions - Axios | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOa3RJVnhwOUpCVXV2TFBoYWFWTXpmZVhvcVRBWlVHeHNuVUxKcy1qYTV4ekFwTnBUYm1UeWlzbGxCS0IzOFljQlc5M0l0aVA3LU1hb09vQ2tpWUJ6Q1Q0TkhiS0xQVU91czE3QnRxVGtxSFd0aFV5NE5Ic1hTWUNaZXYzaEdGcl9pdldMYjNCaHl0WU40QnM2TVNOZTluQkQ0MUw1UkRzWVo2VUJG?oc=5) |
 | Exclusive: Trump administration weighs sanctions on officials implementing EU tech law, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPNkFwV21McjBUUkNNZXZDZEJxeDBTLUx4UkNMU3ZqbHZOQXVxVFMyYlVsM1lSODU3SHJkSFQ2Yk50TjFCblE4bURPQTVrWjlEeko3Q2hmQVBNblZYZjhub1BQdFFmTUcyMFNaakNMUllvZzRYWUsxSl96aGZLRUtxaVRGMDFJXy1LN3UyZVQxVGpKTDg3dWVHYkpFaFd5YVVBa3Ywa3ZJTkNDMEZKQ3pyR2kyRmZYd012alg0Sm4xY1hWR0E?oc=5) |
 | Israeli forces kill 5 journalists in Gaza - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5JV0syTHA5U0hpeWJCYXlKWjhZUTQ3M0xpZ2cySDdoalYydWEwWlVuUV9rNWIxRmFZODVRRExoUW5xYkx4ZU5QS3pxSDdMX3dEUm94bEEzbXJ2b3BLS1hXbVpENDdRcHJtQnc0UjVxaDM?oc=5) |
