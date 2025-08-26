@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 12:00:44（北京时间）**
+🕒 更新时间：**2025年08月26日 12:13:11（北京时间）**
 
 ---
 
@@ -9,10 +9,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Three dead and one injured as helicopter crashes during flying lesson | [阅读全文](https://www.bbc.com/news/articles/c87e22ryerlo?at_medium=RSS&at_campaign=rss) |
-| Trump orders removal of Federal Reserve governor Lisa Cook | [阅读全文](https://www.bbc.com/news/articles/cx275n8gx0ro?at_medium=RSS&at_campaign=rss) |
 | Nigel Farage says illegal migration is a 'scourge' | [阅读全文](https://www.bbc.com/news/articles/c5yk4r5e514o?at_medium=RSS&at_campaign=rss) |
 | Child sex abuse victim begs Elon Musk to remove links to her images | [阅读全文](https://www.bbc.com/news/articles/cq587wv4d5go?at_medium=RSS&at_campaign=rss) |
 | Schools, care homes and sports clubs sold off to pay spiralling council debt | [阅读全文](https://www.bbc.com/news/articles/cq87497v8ypo?at_medium=RSS&at_campaign=rss) |
+| Trump orders removal of Federal Reserve governor Lisa Cook | [阅读全文](https://www.bbc.com/news/articles/cx275n8gx0ro?at_medium=RSS&at_campaign=rss) |
 | Five journalists among 20 killed in Israeli double strike on hospital | [阅读全文](https://www.bbc.com/news/articles/cp89rp48246o?at_medium=RSS&at_campaign=rss) |
 | How Taiwan is preparing for Chinese attack with acting, fake blood and mock missile strikes | [阅读全文](https://www.bbc.com/news/articles/cp94v42gmg9o?at_medium=RSS&at_campaign=rss) |
 | Chocolate and butter prices help drive food inflation to 18-month high | [阅读全文](https://www.bbc.com/news/articles/cly4eme0284o?at_medium=RSS&at_campaign=rss) |
@@ -29,7 +29,7 @@
 | Israeli strikes kill 22, including 5 journalists, in a Gaza hospital - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxObm9aZm1XLUxqVWNBRFVFbHk4NWNJZWpzV3h3NTYycHFWZE42Q3ZhYml5alZ5UTg3alM1aU5pY3BvdmFSdnRPY29nSmdoRkliWTVXSTh1Y096UDBfVzhrcEQzRUxlbzd4YzAySVYzVVV3SmFWYS15aF9CSzZhcHY5Z3lKVmhUQmZUSzlxTg?oc=5) |
 | Republicans try again to block California redistricting plan from November ballot - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxPSzJEb2Z0RF9oWFlUMWtXOF84Q3hnd3dYc0JiMDRWR1FPcFJTb0VyU0ZrSnRPZGxlRHlFdlhOOEZLVUx3cEZzMWoya0ZPeDFBYVkwNXBSTGpKUVRaUW5PbDhieF8yUW5xVFpjdDNNeGVBY0QzTTdFMURHQjNwcUd0M0l4Q1dwWHI3MUNPUUFjNU0tNmQxVy1kUlJQXzEwZWYyellIXzZmUDlPVzFxRzlRc2lUQkk5NEp5WVhTM2hLMGtodXRyMUc5Vm5vNA?oc=5) |
 | Kilmar Abrego Garcia fights imminent deportation to Uganda - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQN0U3QmExeTRUTklEcXR5QmI1eWpnNXRxaVhHWG5Oem5tdFcxREU4TGJnUGJMeXZHZXlMUDREbmFodFdRUUdpeDh5VTc1dFpENVcyemJrREJ0MjZxeUhESWdMRTFxdVpMZW5mcDlwZ3hHS3o1WmNKeUFzSFh6NTlaWDNvZzN6SnU1MVNZenZHRFpvQ2NlX2p0SEFSaG9kbm43UFJURzdjdmRQUWto?oc=5) |
-| Trump fires Fed Governor Lisa Cook, opening new front in fight for control over central bank - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQbjJIWVI1WDA1YXFUby1fVlAwYm1zZkRydlRUMVVkSmE4RGJEWnd3VE1JSFZCcWNfcl9SeVBaUE55VUxsUFRrSmczclFtTUIzTXBQTTBYM3dLUTFxX3ZtTHJqU1RqYUczTGl6X2dCZjBnbEgyVVZadHpjYjN5aTZsRXZWYWV1Umo3a2VITmNYTmh3Tm5vOGc?oc=5) |
+| Trump says he's firing Fed Governor Lisa Cook, opening new front in fight for central bank control - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQbjJIWVI1WDA1YXFUby1fVlAwYm1zZkRydlRUMVVkSmE4RGJEWnd3VE1JSFZCcWNfcl9SeVBaUE55VUxsUFRrSmczclFtTUIzTXBQTTBYM3dLUTFxX3ZtTHJqU1RqYUczTGl6X2dCZjBnbEgyVVZadHpjYjN5aTZsRXZWYWV1Umo3a2VITmNYTmh3Tm5vOGc?oc=5) |
 | Philly lawyer George Bochetto hired to sue SEPTA to stop service cuts - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOU2JVX212NkwwOEtua19qNmN1WnlhT3FuNHFUQnNTVTdrV0hMZWs4cUh5N3ZweXB0N05hTGk5ZDk1UF9JZ0RmVGFlSkVBOWRaS09jNTEyeDZ5VTlRMi1iYlhxUzNhbEVjMFlZbkZhbkNBclktLVZGLXhoMlJBVmtpbFpIb0gyN0pfNWoxUTBCZ25oWUplNGJSejNPM3VreDRQalV3Y0dJeHI0SjJYMEE?oc=5) |
 | Utah judge orders state to draw new congressional maps before 2026 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNd1F5U2NhTndKajVLN0JKbVo5YkxzN282ZjBQZUFzS3lGXzZVVThWNmdleTFySVF4ZWdjRDV0Rmc2bUFVaGRrQnZOWEVIVnVTaDBjX3c4amlyQzZBVXRFczRROENBYlVXclZxUmZrZGREak5qbFlXT2N3Yld5bjNvLWJQdW4?oc=5) |
 | Mexican drug lord 'El Mayo' enters guilty plea - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBKSWNLQmtldnVKME9tSEFRRVRKbThaMEltc0VrX0NLa2ZIbTZsUG9sTTQxWHdTMmkxSV9YcHA2a1VmSUtpRnVmMWM5cTM2TEFvR2RtbmV6SThfQdIBX0FVX3lxTE9DNUctSlRDd1lsaWtFVmpYUC15VHVNNU9qaEhuRGRrcmZ0SjkxbWFKWEhyeHNPb3hwMEdzS1M5RDNpNEJZTjhJX0tpUW4xcWNKTmlObkl6aThzWEExaF9F?oc=5) |
