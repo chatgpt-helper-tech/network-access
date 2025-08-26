@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 06:13:47（北京时间）**
+🕒 更新时间：**2025年08月27日 06:24:45（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump seeks death penalty for D.C. murders - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOWlJldmxQQ08zU2hBaEVFcUl0eTZXbV9renEzMDhGWXdhRzBQaEhxa1dpa05selgyejdUUGxnUEVfSWpqaGMxeHFRMF9HZUlHT3NGRnVNbTRBV1pqV3hELXRQdS1CM01HbXQyR09CS05SVndVY1dWdHo0YVpYNlo0aTZtNUpTM3A4NVBTMG9pWDI?oc=5) |
 | Whistleblower says Trump officials copied millions of Social Security numbers - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1RMWtUQXdmdUtjV1R3b3l0aTU0bGJOcGg2VzFKYVRITkZOTDBBRVJSMDUydUFOZl9BZzI5V2JtVDJaRnV1c2oydmF3M25TMnlxX2htSGpoMXdoWlR2QUZZT21EVmJDSERfOXJpMFJGVXRUeFAwR0VESndGZGpTdw?oc=5) |
 | Kilmar Abrego Garcia fights imminent deportation to Uganda - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQN0U3QmExeTRUTklEcXR5QmI1eWpnNXRxaVhHWG5Oem5tdFcxREU4TGJnUGJMeXZHZXlMUDREbmFodFdRUUdpeDh5VTc1dFpENVcyemJrREJ0MjZxeUhESWdMRTFxdVpMZW5mcDlwZ3hHS3o1WmNKeUFzSFh6NTlaWDNvZzN6SnU1MVNZenZHRFpvQ2NlX2p0SEFSaG9kbm43UFJURzdjdmRQUWto?oc=5) |
+| Towering dust storm known as a haboob plunges Phoenix into darkness - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQbmNHXzRvcXhNVDBCNFZqdjFWeGlnaWJoQVpZTEMwOE9FQWxkS1pyQUM1Zk5iMF8zZUdIUUZtMXd2UGlDem1VNWlWZFhyYmZaeWtaYzNLdTczNEJpSEQ5LVlYTVhwWEZUQ1pFYTB2dmJ4VTE4YnJMclJyWDRXaG9OSG1Yb2wyYUVscDdJSEFoQ241VWQySTh5b0JVbTQ?oc=5) |
 | Steep US tariffs set to hit Indian exports from Wednesday - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNREI5OEZ1STJwa0FIeEJfaldmQ2lLRm90OU0yVjc4Nll0Tk95OF9veVpaak5yLTd0S0FhWHc3bnpwaEN1dnhpcTJrQXpFdlp5a3N1U081N1dzWVhOdEJOUUJ0UTVSaWY3N1laSU9YaTZxWTV2aUhFTHI2VGpGQjJIWnJUMVVXazVNSU84Ml9qNGxWdjlMR3JaanVvY1RNQQ?oc=5) |
 | Federal Judge Allows Case to Proceed Against Wisconsin Jurist Accused of Obstructing ICE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5YMnVBbTBRYlZYWmd2NDJHUHF3czh6aEt2RjkxdHV2LTQwX0FVQUNhWG04UGk1OHY2aDdsVHpoVFk5UTJfT241ODk0Rnhtakp3N19TVkZPV3ZEcWNTWHY1dURUcWJPSTNyMDFnakx1amNKVzFyQnpHbnFNbw?oc=5) |
 | Trump's DOT threatens to withhold funds from states that don't enforce English requirements for truck drivers - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQSXA3R0FwREg1QmdyM2l6U3FZUnV2bG83SnlYTVpOdGxmY3k2NjRRd0FJeXJ6dWxuMWJyTTlOY010ZzUzVjVzTExndmtSTE5QNVYzM2ppMW9rajhscG92YlhnRTZxN3NQRHFwbUNKeWFPMTh3b2U4U0U0NTZjV0tIbEVIdWxPRkZ5cUZoWVc2TE5tUVZ6VWhPR0JpWlBrdGw1SkNKemtkS2Y0ejRhaTlUbE82TVBiQ3V1VW82aGV5TFdydFpT0gFWQVVfeXFMUG5MdlFsUmFHWGdoQmtZT2VkTHAzdWcxdUFfZzZFNnIycW8wWmRvaVl3Y2lHQUNTb2xLSHM3bXlpY3RXa3N5dDdfV0RhRmVJanBTeE4tdUE?oc=5) |
-| Towering dust storm known as a haboob plunges Phoenix into darkness - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQbmNHXzRvcXhNVDBCNFZqdjFWeGlnaWJoQVpZTEMwOE9FQWxkS1pyQUM1Zk5iMF8zZUdIUUZtMXd2UGlDem1VNWlWZFhyYmZaeWtaYzNLdTczNEJpSEQ5LVlYTVhwWEZUQ1pFYTB2dmJ4VTE4YnJMclJyWDRXaG9OSG1Yb2wyYUVscDdJSEFoQ241VWQySTh5b0JVbTQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
