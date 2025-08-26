@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 13:25:56（北京时间）**
+🕒 更新时间：**2025年08月26日 13:37:13（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Gazan students granted approval to study in UK | [阅读全文](https://www.bbc.com/news/articles/cgqnjqgp719o?at_medium=RSS&at_campaign=rss) |
 | How Taiwan is preparing for Chinese attack with acting, fake blood and mock missile strikes | [阅读全文](https://www.bbc.com/news/articles/cp94v42gmg9o?at_medium=RSS&at_campaign=rss) |
 | Nigel Farage says illegal migration is a 'scourge' | [阅读全文](https://www.bbc.com/news/articles/c5yk4r5e514o?at_medium=RSS&at_campaign=rss) |
+| Sitting up straight isn't the only secret to good posture - here are three more tips | [阅读全文](https://www.bbc.com/news/articles/c890kejpg34o?at_medium=RSS&at_campaign=rss) |
 | Trump orders removal of Federal Reserve governor Lisa Cook | [阅读全文](https://www.bbc.com/news/articles/cx275n8gx0ro?at_medium=RSS&at_campaign=rss) |
 | Five journalists among 20 killed in Israeli double strike on hospital | [阅读全文](https://www.bbc.com/news/articles/cp89rp48246o?at_medium=RSS&at_campaign=rss) |
-| Chocolate and butter prices help drive food inflation to 18-month high | [阅读全文](https://www.bbc.com/news/articles/cly4eme0284o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
