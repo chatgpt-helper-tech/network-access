@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 15:12:38（北京时间）**
+🕒 更新时间：**2025年08月26日 15:24:32（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Attendees could be in for thunderstorms, dust and hail at this year's Burning Man - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQXzVUWG1EeHB1WmxKNDRacHg4MDFQN3VkQWhyM2VBdWItNnptcm9RMC1keXZJTlBHMG8xRmZDR2ZvNGZDWmloNzRvQTVtd290blJfdERKdUJ0LTRpbXhqSTJCRmpHSjlhVGlUT3RuVlRIbnRwUVIwOVN0Wlg1U3BEWHNB?oc=5) |
 | Epstein Accuser’s Family Takes Issue With Plans to Publish Her Memoir - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPVFFmTlNiT1NUa1haZmZybGJBX0RzZzJNaUZnbjdjZlZWVmZsX2taMDV4Q29Zdk1mRkZuRWtIcjJHbUxJM05xMWVoRWp3a0lQbnU3cmgtandZbUxPMDVNdjJJeE9QX0JraUxuNGIyTXNQeDM5VHE3a0M0S0hhWXZkUS05Rzd0T0E2QjNGS1ZVT244ZDZB?oc=5) |
 | 20 years after Hurricane Katrina, a barrier island in Alabama is disappearing - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZjA1a25TX3BmVDFwX0cwMGltNENsa3Zkd2wxUFlOVUNVcEZNbTZrSFQyQ0lDamVPal8yLXp0bTZEdkN1Z1BNcjJ1clU3ODJ1NGZmaXBndzRqOFhJd0lDbGVVd3RERVludjZISHBXaGNKQTdDMGhXZnpwbUNURzFJd1F6a9IBiAFBVV95cUxQbjROaklrYngwaDZMeWlTOXBNckpjaFV4Tzc4RE1uRi0ycnItNmFOdlNpN1Z6endhRVRiUnFJbGFteW1PQUdIWlNqa3VySHktdjZYbHg4Qy1pemViNjA2Qms2RkVpdzdRZ2lrcG8yRXNpRGxQdHdlcmZuaEplVXVZQ1VaSHdaNDFN?oc=5) |
-| Trump Admin Arrests Kilmar Abrego Garcia Again, Ready to Deport Him to Uganda - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQYmljMlczZW1ud3I0Qm1qeWhrX2VVTXFHa3hqNDZjb04ybVl3azVMMW9ONTlIclowYmZmYVdQQWpkbWViVmJNbnhDSGp6YkZ6WEdEOHlpeElpWUw0MGtnVk1tSkxXZ0FvVTFLM1RPSloxa1BUZ2ZUTGxFOTJaTUtVLXY4TFRUYmt6YUxKSklIeUFUVUlOS3FRanRQY0JLdUJOQm1tUkVVXzN3UQ?oc=5) |
+| Secretary Noem Announces ICE Arrest of Kilmar Abrego Garcia, an MS-13 Gang Member, Human Trafficker, Wife Beater, Child Predator and Criminal Illegal Alien - Homeland Security (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQb1o4V0cwZDlwZUtTN3Q4VFExeC1JakNpLXVTbmp2d09IcDJlYTNyQTVfZVNfZFJ2MC0yUUhTUXR0OWZHNVJyaTZ1SXFfM1c3b3d0aGZ5X09ldW1HWmhXRzZleENORXFpaDVDWWtBV0VPZy04QTlUR2RQLU9nQnBLYjJvRUF4SmZoYlFaTjZlSTlvQ1RhYXhZS1lNUFJkUmhHdVFuYTBQSzJhNWwycDFUbmd1Y3VkMTA?oc=5) |
 | Philadelphia's mass transit cuts foreshadow possible similar moves by other agencies across US - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPVURhZlVBVlpCazdTaDVTbDhtdjNsR3IxaHZaNlF3Ulhrc0ZjSXZFVElXcjBwUkNNOFVWSkxKaGppdEd4bzl0X0wyUDl4ZEYtYTVSLWpDOVFIWmhzazYwVkFTYTFVTHgxQUJaWWFTekh0ODhrY3JsZHlFeGQwR3h1SThiRktjMk0zTElSQW9vSThCYzF6UjRhMVpGbHVDQnc?oc=5) |
 | Colleges across the country deal with shooting hoaxes as classes resume - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1LSWxiNHVzRlN3ejBmZklmbGRmRnZFOS1INm44R3d5N1NDU3lMSDJ3LU9zN1hodTJ6YXY1VXE0N21QY0xlQzFocmFGRnRWb09GdmU5a3FFc0F4MTc5OTZmekZ3MEpZNG1ndS0zMF9zZ1FjSWMwUXdqcl9aQzDSAVZBVV95cUxPSUhzcElmTHRnSm56eHZ6NG1RQVNmQTBMajJJeXlEWUx6TVFjY3hWNWUzRi01c2phck9JYXE4WWQzSVliN0o5eW84bU96NUpEX0VPLUg3dw?oc=5) |
 
