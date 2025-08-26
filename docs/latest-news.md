@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 23:48:18（北京时间）**
+🕒 更新时间：**2025年08月27日 00:01:24（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Israeli forces kill 5 journalists in Gaza - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5JV0syTHA5U0hpeWJCYXlKWjhZUTQ3M0xpZ2cySDdoalYydWEwWlVuUV9rNWIxRmFZODVRRExoUW5xYkx4ZU5QS3pxSDdMX3dEUm94bEEzbXJ2b3BLS1hXbVpENDdRcHJtQnc0UjVxaDM?oc=5) |
 | Judge orders Kari Lake to answer questions about Voice of America under oath - NPR | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQSVRPdG94Tmk4YXExT0NSd0d3MlRNMC0yR3ZWa1d6QkFMUWkxUkZfaV9ITGpGR20zOVZZN3U1SXA1Ym03SWwxSVRtamtiSVhoeGlRelNqYjlVSHUtaFpRWExjVk9zWkFadzQ1d28xTFM2SWh5VmFTVmxwaURkNEp1akp6MGZZeFA5VnFWZEhhaU9KdXVfS3laU25PM1JVeUlPNTFqazFJU2xsZi1fOFpHdg?oc=5) |
 | Towering dust storm known as a haboob plunges Phoenix into darkness - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQbmNHXzRvcXhNVDBCNFZqdjFWeGlnaWJoQVpZTEMwOE9FQWxkS1pyQUM1Zk5iMF8zZUdIUUZtMXd2UGlDem1VNWlWZFhyYmZaeWtaYzNLdTczNEJpSEQ5LVlYTVhwWEZUQ1pFYTB2dmJ4VTE4YnJMclJyWDRXaG9OSG1Yb2wyYUVscDdJSEFoQ241VWQySTh5b0JVbTQ?oc=5) |
+| Scoop: Dan Scavino takes over hiring in Trump's White House - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE0yTmJ2Mm54UkNLcUxTaHZfMlBQUG5zajdYcVdVS1F4Vk5kVmswSE8zdGk0NGlBRE4wOGhVZEM4UHJPSnVZcnVlUTNJN1FLd0NaWXdYQnRmNDA4MG5uUmFUanJkT3V4QjYxaXVxY1F2bm1hQVk?oc=5) |
 | A wave of active shooter hoaxes at universities brings panic and turmoil to the start of the school year - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQMmozZGJYWVc3dXJ1MzlMcGFUWFV1RW5QZjRndjFhRVBNYzBCVFpwR0w3c09kX3hBdzVJYWZIMEp0Q29yU3R6eHBpY1RuS1IxT2tOcXg2OF9OaDM5TTE1WEdpdzN4VG5JTkJONXNSRS1yQkkxNWI5by0wVE1jV0xkVjVVajNsYVJH0gGOAUFVX3lxTFBrS25qcXo5RTZycmFvYjlzaHgxYWFyek1uQXNoS3FYZkwwYW45YUVfQ0NvV1BQWmRselh5SjJnVE1vRGFhdDA2NjVqYjFMd2d1LXM1dTBCWGJpZ1hIbFI1NGVneHNzaXBhWEJEQ3FPdkZDZy1YNk54akdfOWRIRDVvTzBPTm1mTFI3RTJnWkE?oc=5) |
-| A lesson learned after pets were left behind in Hurricane Katrina: Save the animals - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPWEFCLVZFZDVHOGxFMGYxMmlKQzZSa2FJVzRqSHBxc3N3dXZXXzFCSzVfaFNlc2RqSkZaSmthWWFNSzVfSzRUSDVGbFpZeFFab0tpS2hfRGxWaTlMRGVYY0ZjcE1MMGpUZG5mRTRMUVhWRUxpMUIzWHBOdmNydWtiV0lwMnpFcGVEcjRpV1lSaDRlT2Fn?oc=5) |
-| Person in U.S. diagnosed with flesh-eating screwworm after travel to El Salvador - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNS25FR1F2WG1hTFMzRlpfaFZDaEZWN1p6N01mTGFXOW1ncG9DZWJRMFpsaWdWd0Y2bjZEVWFzeDNEanhlSk02VWtMWVE1eTZmUmczN3lnSjBfRWRiRlNqejltQkpmX0hIazZWY0pNQ3lVMDBzeHJfMlh1ZlhLdENiUUNpMGxtMXcxRnZ6VG1fVmNMTGhTLUg5RFcxbGFEX3EybVBPcUdOVjFPMmpObHB0QVRMMEd4QdIBuwFBVV95cUxPbmtYalZUUU42T3k4enF5emJ6S1FzWUtmUFY0NXBzdDZNQm1NeWt5RFp6NTFDVHEyYzkzb0RyVmpoSXd2TmhpRE5lTFFJODhSTTFlVWYyaFRkd2l0Ul9IVmNGZnYxVHp3LW82SUdlTENOSFpjczN6X0hiSFBRWEliZjlBUUlVQzFqVjlXWDMzQ01ZanBkTUhWeUl1c3FmUVB2ZHk3OVJ0ckpkSDdrTFloNGswbGluLXR0eGU4?oc=5) |
+| ‘You had to fend for yourself’: Hurricane Katrina haunts New Orleans as Trump guts disaster aid - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPc1NjcGNkUUZud1JXUDNPa2ZxdEZONi15RWZNeThMRmJ0bzdEUkZfUUhKbHkzeGpzRng3amUxLS02R1huYlNBRkQxMTF3b3I2ZXU0d0Z2YlRZZGdCX0E3T080UkRkNGJoNDM2R0EzSEY1S2NCNUIxcWNMR2NJSjNZeGlzbnF0VDR1M3ppalJ6SmpVbjU0T21VbzNmS3ZZY25oYjc0RUdR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
