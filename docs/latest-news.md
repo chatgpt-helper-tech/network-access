@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 11:36:23（北京时间）**
+🕒 更新时间：**2025年08月26日 11:49:25（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump meets with South Korean leader after public blast - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPY3BmSHFta3hWVUc1QTFBVjRVY2U0YlNkdkRLeEpjdGxGa01nTjItTzJQUS0taEpWSVdrOUZGSGIxODZ3OWRTTUY0bHZXYWw0VXFEaXNEM1FJakt2TW1ldk5BT2paVXltZnRVNXg3SnVjVXBYNmpiQmtheHhhWHBLUEI1T1NCazVSaEh5MUdn?oc=5) |
-| Trump signs executive order targeting American flag burning - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9ibENMX1ExaHlESXg3eXBPYlBGaGRfajZ0QkNOUjhBS3RyR0kxVTcyUU4wWEhFWTdQMzRVdjY4blBjSjQ4b2d5X19ScjM1LXdqZXZtR2RGel90eVJhOVhjWVU4cFE0RmlTS050SkhlbFhQenExMEE?oc=5) |
 | Gov. Pritzker Challenges Trump’s Threat to Send National Guard to Chicago - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxONVVQczZSdk5yTWt1Ukk0RFdCdTFrY21OczlZV0lodkNSNmhZbW5kdng4MXBDQThQSV9xRE5ZTUV0R1llMzNQX0RCbmd1QVV4bVYtbjY5bGJSVTBZcllTc2RGLWR0TERvTDRTaHJ0NDdIQXQ5R192S0lScUhaY2JCWGI0QnBwaEVmaHpDNFYtYmxWcmM?oc=5) |
+| Trump signs executive order targeting American flag burning - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9ibENMX1ExaHlESXg3eXBPYlBGaGRfajZ0QkNOUjhBS3RyR0kxVTcyUU4wWEhFWTdQMzRVdjY4blBjSjQ4b2d5X19ScjM1LXdqZXZtR2RGel90eVJhOVhjWVU4cFE0RmlTS050SkhlbFhQenExMEE?oc=5) |
 | Israeli strikes kill 22, including 5 journalists, in a Gaza hospital - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxObm9aZm1XLUxqVWNBRFVFbHk4NWNJZWpzV3h3NTYycHFWZE42Q3ZhYml5alZ5UTg3alM1aU5pY3BvdmFSdnRPY29nSmdoRkliWTVXSTh1Y096UDBfVzhrcEQzRUxlbzd4YzAySVYzVVV3SmFWYS15aF9CSzZhcHY5Z3lKVmhUQmZUSzlxTg?oc=5) |
 | Kilmar Abrego Garcia fights imminent deportation to Uganda - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQN0U3QmExeTRUTklEcXR5QmI1eWpnNXRxaVhHWG5Oem5tdFcxREU4TGJnUGJMeXZHZXlMUDREbmFodFdRUUdpeDh5VTc1dFpENVcyemJrREJ0MjZxeUhESWdMRTFxdVpMZW5mcDlwZ3hHS3o1WmNKeUFzSFh6NTlaWDNvZzN6SnU1MVNZenZHRFpvQ2NlX2p0SEFSaG9kbm43UFJURzdjdmRQUWto?oc=5) |
 | Republicans try again to block California redistricting plan from November ballot - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxPSzJEb2Z0RF9oWFlUMWtXOF84Q3hnd3dYc0JiMDRWR1FPcFJTb0VyU0ZrSnRPZGxlRHlFdlhOOEZLVUx3cEZzMWoya0ZPeDFBYVkwNXBSTGpKUVRaUW5PbDhieF8yUW5xVFpjdDNNeGVBY0QzTTdFMURHQjNwcUd0M0l4Q1dwWHI3MUNPUUFjNU0tNmQxVy1kUlJQXzEwZWYyellIXzZmUDlPVzFxRzlRc2lUQkk5NEp5WVhTM2hLMGtodXRyMUc5Vm5vNA?oc=5) |
