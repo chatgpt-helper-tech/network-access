@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 10:24:21（北京时间）**
+🕒 更新时间：**2025年08月27日 10:36:29（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Forgets He Hates Taylor Swift When He’s Told She’s Getting Married - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPX0tfUDNOYXVpYTdqTDVfTmRIdUJ2aDZFR3pzMXFMU2tGTXlGekdENFBzTE9WcnVQM0pKTDVCX1Nwek50WGt1cDdZYngxdUo5d3VjQlREQWZsYlBWeWYtbkx6MUNxN2ViYzk1TFdIR1ZldWdmNTMxUWhZVzMxNmYzRHR0QUZfS0lraHlQN0JNQWNUUEJ3MURfNjhtUkFsSHJxWlRNbzdDSzlMY00?oc=5) |
+| Taylor Swift engaged to Travis Kelce after 2 years of dating — see photos of the ring and proposal - yahoo.com | [阅读全文](https://news.google.com/rss/articles/CBMi-gFBVV95cUxNV25kdEt5YXo2SkJPZWViblFlRmozZ1pJWDR3N0EtYVNpM3o2QXM5Z180OGEzUTAxOFJqZHkzTTBQWDRuM0ZzdUF6d0h0OWpydUQ1NG9vZk5hOGhxMHJRRzRZOFBxWHIxMlI1MExHWUlhZXhiQzdxRkhQbFlMbXFMZFdZME9lcTFMOUhHMDJ4bDZ6WWNpR29JUWV5cE0zVHFPbktEbnA2X0U1VFcwZVQ3cTlyRllRX0VSckFzQlVUY1EyZ0ctbWNIdFMwZGxWOS1US1Fqd2ZhVUZZelY4ODU2TG9XUW9oMzZicXdBRWc2RjVoUjh4ZlpjaVZ3?oc=5) |
 | Abrego Garcia's attorneys ask to reopen his immigration case to seek asylum - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQVWxrVG5TdDNFNEduVlJ3VGlhNHhoVVB3TEVwdnAwLVF5TG1peHNrZWZFcmplbHd3NGh3Qm1CbmtwaHhoS0t0WG1sTHVtbmM4Qndid2hLREdxcFFZb0NKQWI3eVpjUmRoR1VWeVdoV2xhcXdSalRTSVdtUHpRTHZmcTNYVnlvaEFOeVhVMDdJSDVDQmxhdUJ3d1BVT2hBLUNNN0VPcG1MZ2VuWHZIU0R2eNIBtgFBVV95cUxOeVJvZHROLVJvNHd6NGxqWUNieHdYTS1TUUFkSEgyeXR3R29KWlBickJzU0FYNmh6YmJnTmZtTzBqVjAwek1wRHVXZERWWlBNZWtESzREd2VjNk1rdThvUVdDWlZhNWhRN2RLUjVodGh2Um9FZ0hWcndPSlVwTkpMM0dSR1lfM285alhfbWxIZnJQTkxCcWxSLWdRV1pxelNLOEkwTWxJdVlmOTFpZ0l3R25ETHJhZw?oc=5) |
 | DOGE put Social Security numbers and other data on a risky server, whistleblower alleges - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOLTVsRXZrdllQd3BYZEVwcy1sWXpuUlNpWFRUdW8xUm9lMGdNcXVTb2VES3J2S1h6OUprZzE2NGctMVB0cUlsb2g2NEJjeEJYZkVtUUJzVDdkOVpvMjdBN0d5NFFsUHg0VDJEbW1uLTk2YmJrZTlnSUI3LUdkNHJpSmt0OHdWLUVMMDVLakxNdnpHWnpMS21EZmZwalBFTjkzV0N5X0RxLTBDZWw2cC1pTExuMy1NUDM2YWFF0gFWQVVfeXFMT0RxblhSRXdPb0NPM1N6S3Q3SEZXMVhwMnJiRnN5Ukl4aE12Q3J2UV9URms2YnIwYnJvWVByLUVqSVpLUm9TWkJsb3NpOGRmNS1qTGZZMUE?oc=5) |
 | Illinois governor hits back after Trump mocks his weight: ‘It takes one to know one’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQNF9sYzIzZWh6UjR2SEk0alpMS2paVE9ZSGlMZlYtUnp3UlM5aHF6V295Z3diazhSNkgzNFVMZUxsV1RFYUxRX1JxNTdqd0Jxc1dOREtkMDloVzVWTzQyY21RbjNQNWRZUERTNGhUeHJfUUZPalU0UnFTQTdiY19mSk9OWnk0ejNEbVJwaVFR?oc=5) |
@@ -31,8 +31,8 @@
 | IDF claims hospital strike was aimed at Hamas camera, as hundreds of thousands protest Gaza war in Israel - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxORnBzLUxmUEcxZXZmSjBuYWg2bmxERlJ2aU9kSDlHOTVOdnZWeThEZTloeVZJemg5ZjdBRU1nU0h5UXVGTjJQQ3pFOXR6VWpUVnZadzJadTBVT1B3dW5XeWdvNVdjMjVtMDd1QTlVQTAtbFVxU0pSSm9SQU81N05OTVN3U0tmQmFpUHZOSDFhWmV2MjQ?oc=5) |
 | A kayaker faked his own death to meet a woman overseas. He’ll now spend 3 months in jail - CNN | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE1zYnNqamQyTU95cjRwVDBYRldUOXJpWk5ueVhNTXBoMFdWUnU5X0s1d1lFTHZCM1d6eV9jMy02T012dHNYbEZmREtSdmk5ZmVkOWM0WTFDcWhGM05xYTYycUlhVlZFMEptTU5J?oc=5) |
 | Spate of hoax calls about active shooters stir fear at college campuses around the US - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPMEl2SlBRUGJ5MmlSWE9sQmVvYkJOalRGRWd3WjRxZ3ZzZTN4ZWt3cFJURWVxZnFBN2ZrWkk4M0dWbTBSc3NCb01WQ3ptUXZfdTJLWkhUM2NqU29sa1NBMlgxRzNLMXppQXNJazNUYkkxbDBFYVZoQmNrRHhMMFA1aWpyUlpUczR4LXpKcjdJOHBRcmh5NzRiZWxjNk04VHEzV2ZjWVNQaXFIN1VwOGVBRQ?oc=5) |
-| Towering dust storm known as a haboob plunges Phoenix into darkness - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQbmNHXzRvcXhNVDBCNFZqdjFWeGlnaWJoQVpZTEMwOE9FQWxkS1pyQUM1Zk5iMF8zZUdIUUZtMXd2UGlDem1VNWlWZFhyYmZaeWtaYzNLdTczNEJpSEQ5LVlYTVhwWEZUQ1pFYTB2dmJ4VTE4YnJMclJyWDRXaG9OSG1Yb2wyYUVscDdJSEFoQ241VWQySTh5b0JVbTQ?oc=5) |
-| Justice Department asks Supreme Court to allow Trump to withhold foreign aid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNRDh6Sm5uVW5WcjVhMmU5UW5PR21zRWt3V192X0MzYXBuTm1vY3NRNWRGMnhxR2JtbEQ3d0ZiNnRjeVJRYzRPM1p5aXdtaU5IckU5NnNGaUZoWFVOOHNSakQ2OGxJb0tQTHE1UGVIVGVHTk9naDc5TDlkZl9LOHQ5ZjZMdG1lUTZ4WnQ2M29uT1lFaXlxU3ZsV3lR?oc=5) |
+| A haboob covered central Arizona in dust. But what exactly is it? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZDlIQUNnbm5QLXpDaFIxQ3RtZW1JRGY0MU9OLXBIVk9sWGg1SUY2ckUwanpyU2l3ZzdocWU1MzRxd2dBd1BrR0N5Y2l4Zy1ubXJmSGVSdThoV3laY2cyQ0Jwb2YzejROUklnTnp0WWlDdEJLN2YzaFRSRldLMkhxbTlfVQ?oc=5) |
+| Federal Judge Allows Case to Proceed Against Wisconsin Jurist Accused of Obstructing ICE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5YMnVBbTBRYlZYWmd2NDJHUHF3czh6aEt2RjkxdHV2LTQwX0FVQUNhWG04UGk1OHY2aDdsVHpoVFk5UTJfT241ODk0Rnhtakp3N19TVkZPV3ZEcWNTWHY1dURUcWJPSTNyMDFnakx1amNKVzFyQnpHbnFNbw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
