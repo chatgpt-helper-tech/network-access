@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 14:12:26（北京时间）**
+🕒 更新时间：**2025年08月27日 14:25:35（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Abrego Garcia's attorneys ask to reopen his immigration case to seek asylum - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQVWxrVG5TdDNFNEduVlJ3VGlhNHhoVVB3TEVwdnAwLVF5TG1peHNrZWZFcmplbHd3NGh3Qm1CbmtwaHhoS0t0WG1sTHVtbmM4Qndid2hLREdxcFFZb0NKQWI3eVpjUmRoR1VWeVdoV2xhcXdSalRTSVdtUHpRTHZmcTNYVnlvaEFOeVhVMDdJSDVDQmxhdUJ3d1BVT2hBLUNNN0VPcG1MZ2VuWHZIU0R2eNIBtgFBVV95cUxOeVJvZHROLVJvNHd6NGxqWUNieHdYTS1TUUFkSEgyeXR3R29KWlBickJzU0FYNmh6YmJnTmZtTzBqVjAwek1wRHVXZERWWlBNZWtESzREd2VjNk1rdThvUVdDWlZhNWhRN2RLUjVodGh2Um9FZ0hWcndPSlVwTkpMM0dSR1lfM285alhfbWxIZnJQTkxCcWxSLWdRV1pxelNLOEkwTWxJdVlmOTFpZ0l3R25ETHJhZw?oc=5) |
-| Trump's 50% Tariffs on India Take Effect, Among the Highest in the World - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxORUppQnJXWW1VUFpKTnU0VUFXcGJpcGpieWctd0huRHkyYU5FdnNzUEpPR3kybHJqc3I2VW5MZjQtNXJWQjVzSF8tSDRGc01mdVpha21UY1FyNjZ2NnVwU1I4b2VQTTBCa3RiYmRyeDdnVDFiaGRRRHFRbUhXbFl0ODF6NmNReGJWbExuODlRQzJ2Q2I0MlRRdVdXQlFQSlAxMjFDUjhSU3VPVUE0QTBuWXJzdw?oc=5) |
+| Donald Trump's 50% tariff on India kicks in as PM Modi urges self-reliance - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9lcmd1Q25uVVVoSUZXS0o0RzFsQ0NVdDZDc2UxZnVmSTRLclpGZ2EycWNRVWxDV2FPOEdiWXRLTVYybU1kNTBkQ0JUeHBYa05uaGtHdHRvRlZUQdIBX0FVX3lxTE9sQjU4SkZLYzBRektSMTRsd2tIUEJGQV9zTTFKV0llNU5vMDN1Tl9wS2RXNEZ6cmdnWmx3aWc2NTlfa25DNmNmVmhjYWxORTNnNmtoNXJ3LU51QnBhNHJn?oc=5) |
 | FEMA employees put on leave after criticizing Trump administration in open letter - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPbXRObUxKSFFyS3F0ZnRvVGxHWXhqcG5mdkFLOTl3VnIzbWk2bmtHLW8wdll1Ny1CWTlyZHU4ZENBNW1fNEpvQmd0UlZ5WnNqZnR0MDU0WDFJZE1uTlBhN1hJLWVMUjVubUIydE8xWnMyV0xfREV1bXBqcUgybl9wWm5TbFVjSVloUllmRWNaR3c1bUlLcVdubDA0azNyTUFiRHF3X2kyclJjTDVfaHBFOA?oc=5) |
 | DOGE put Social Security numbers and other data on a risky server, whistleblower alleges - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOLTVsRXZrdllQd3BYZEVwcy1sWXpuUlNpWFRUdW8xUm9lMGdNcXVTb2VES3J2S1h6OUprZzE2NGctMVB0cUlsb2g2NEJjeEJYZkVtUUJzVDdkOVpvMjdBN0d5NFFsUHg0VDJEbW1uLTk2YmJrZTlnSUI3LUdkNHJpSmt0OHdWLUVMMDVLakxNdnpHWnpMS21EZmZwalBFTjkzV0N5X0RxLTBDZWw2cC1pTExuMy1NUDM2YWFF0gFWQVVfeXFMT0RxblhSRXdPb0NPM1N6S3Q3SEZXMVhwMnJiRnN5Ukl4aE12Q3J2UV9URms2YnIwYnJvWVByLUVqSVpLUm9TWkJsb3NpOGRmNS1qTGZZMUE?oc=5) |
 | Illinois governor hits back after Trump mocks his weight: ‘It takes one to know one’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQNF9sYzIzZWh6UjR2SEk0alpMS2paVE9ZSGlMZlYtUnp3UlM5aHF6V295Z3diazhSNkgzNFVMZUxsV1RFYUxRX1JxNTdqd0Jxc1dOREtkMDloVzVWTzQyY21RbjNQNWRZUERTNGhUeHJfUUZPalU0UnFTQTdiY19mSk9OWnk0ejNEbVJwaVFR?oc=5) |
