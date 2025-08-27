@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 02:49:21（北京时间）**
+🕒 更新时间：**2025年08月28日 03:00:37（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Two children, aged eight and 10, killed in shooting during Minneapolis Catholic school Mass - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFBJQWRESFR6QVh5OEo4TVBHUXllYktWR3Q3QzNJRjQ0NnhNaUhoMHNFU3F3a0VRTDZuc0lPNDdmcWRkaVdnZFljN2JVTzNTcEdpUG8tQg?oc=5) |
 | India Reels at Trump’s Highest Tariffs Yet - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBqZ1p0c2tpS2N0a05uRWZ3UFVMZElPXzFQUlRWYVAxWU41UFFndEVLZUU0SGNITWRlVFY2dU44Qkl3TnhWUVhqTEFPNkZoNmpNNDFIQ2stRDBheDl2bHpDbVJrSEtwRTRBSHBzSWtBQ1llSGdZUWNF?oc=5) |
-| Denmark summons US envoy over suspected influence operations in Greenland - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQWWM0WWlvdkNRRS1WZzU2bVNEN3FyVjI5VWNvdTBwS1VFcEpGTGE2dEctcGNKWU9QZF9GZlhlZXp0M25xcjNJdnhWY1lZSXowOGRRdEoyRVFxNG45SlQ1WHZTSEVYOGpaOEpsYUZqbmtlS0V5WVJNeUJaX0RJcHE0bE9mNFFoWUhSRVpsRzVjMDd0SDNXMzBiUmsyUEpxUzB4aTg2M05SaVllcXl6cVNUdFRYa2d2N2gydWNB?oc=5) |
 | D.C. judges and grand jurors push back on Trump policing surge - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQb1o4RUtvbnl6cnhoTXdjY3R0LWw1U0ZocllPXzJGNUhXRkhpQ3NJSXo4VkhYaklrS0hxVnpQbzJ5TVozbWl6NnVIYVJsdVRyN0llMWpnT21Jc1ZhX1RtSzVvaGxBbVRVNTRfaFRCRVZ4RVN4UFZLQTQtZDJST1BlYWk3dnB2M0pr?oc=5) |
+| Denmark summons US envoy over suspected influence operations in Greenland - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQWWM0WWlvdkNRRS1WZzU2bVNEN3FyVjI5VWNvdTBwS1VFcEpGTGE2dEctcGNKWU9QZF9GZlhlZXp0M25xcjNJdnhWY1lZSXowOGRRdEoyRVFxNG45SlQ1WHZTSEVYOGpaOEpsYUZqbmtlS0V5WVJNeUJaX0RJcHE0bE9mNFFoWUhSRVpsRzVjMDd0SDNXMzBiUmsyUEpxUzB4aTg2M05SaVllcXl6cVNUdFRYa2d2N2gydWNB?oc=5) |
 | Trump’s planned Chicago blitz would use naval base to house ICE agents, possibly National Guard - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxNd0tCUF9EM1ROMldtWHFSN2VtUEZxSlpVdzVLQUNZZE9rLTZDdnpLOEE3N0NwMlp5eTI0NnZrSnJsWWdvVHU1ZDdHQUdLWWU3azBaM2pkOHFhMktUclhaSUp1Vy1tV0lYZ2JzTmp2Mnl5LVJZdEpJWFhDLWljaG5oVFN1ZEdSWExpV2VBcFhrTWMyNDQyOG5EXzdBU2xjcDNSM0hmRUFrUnVzLV9uVm1uMExCYjVORUZKRnhWNDJpbGgxVVVsVVJjM3RiY2c3N3Z3aGJtNHlJXy04UQ?oc=5) |
 | Trump extends control over Washington by taking management of Union Station away from Amtrak - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxPS0pRbzhRQmJPZHVvUmtVVnNLdHhfOTRUMmpqZnduV29zQThiZzB2RTBuZVBSanNNSW9oNk42WGtUTm0yaV96aVhmMDZNWFBJQ1VQbXBVdEVwb1kycUROUjJoSGZaWHd0MDB3djRrQlY2eG9YcHdQelROa29rakYtQXF5TmdPcEkzWk1BTDBQbVRaY1J1LWd2R1kwSmZlX0Fka3VLRFlEVWFKdHhNOFc2clZoR292TExiTnNYNFl6MUhBdGpRd3VzMGlqRQ?oc=5) |
 | Democrats celebrate special election victory in Iowa State Senate, ending GOP supermajority - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOMGdCQVkxVVZPcnpJUmluN0dOYVlwWmt0TnpoZ0hqT0JsaTFHenhJeE5wb0ptNUQ3RjNuLURPaUEteVNGdFVZaVZzZ1FQU3NmdjdPWi1raVJud3NNQWh6VzJ2d1A0OHpiTXEtcWt2T25QWEQ0UXdJYnFTb1pYcVJyNDBXbmdieGNlUzJSWW1BeUdkSS1sTEstV01IaDdwZEtrRFlNc1JJVFVYT2xqeDFsWmtmUdIBuAFBVV95cUxNZTlrSlRPVDhhWWhvMVhheUhod25fel9MYzFfZ25hSUgySXpwckZWYjZwbGExeEdCT0RSLXNWcmV0LWxsUWxWQWhFZXo5eVk1bm10LS1keWZTNE00WHhzNlZXUFVNczBhckk0bkZVWkxnNDloVDdfa1FSVmlYdmphOV9FTFBDVjRReWYtNlVoNVhtX2lEaWp0aUNVTWFCOW5KZDdEem43RUd4QkpNcWl6Y0lUZEFIZEVL?oc=5) |
