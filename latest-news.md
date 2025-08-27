@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 18:12:35（北京时间）**
+🕒 更新时间：**2025年08月27日 18:24:02（北京时间）**
 
 ---
 
@@ -11,11 +11,11 @@
 | Energy bills to rise by more than expected ahead of winter | [阅读全文](https://www.bbc.com/news/articles/c78zgz7j576o?at_medium=RSS&at_campaign=rss) |
 | Mum's anger after funeral director keeps baby's body at home | [阅读全文](https://www.bbc.com/news/articles/c4gjr0ylenzo?at_medium=RSS&at_campaign=rss) |
 | Denmark summons top US diplomat over alleged 'covert influence operations' in Greenland | [阅读全文](https://www.bbc.com/news/articles/c0j9l08902eo?at_medium=RSS&at_campaign=rss) |
-| Wasp 'riding a broomstick' among top entries for wildlife photography award | [阅读全文](https://www.bbc.com/news/articles/c70r7plrdndo?at_medium=RSS&at_campaign=rss) |
+| Wildlife Photographer of the Year 2025 – the best pictures so far | [阅读全文](https://www.bbc.com/news/articles/c70r7plrdndo?at_medium=RSS&at_campaign=rss) |
 | Parents of teenager who took his own life sue OpenAI | [阅读全文](https://www.bbc.com/news/articles/cgerwp7rdlvo?at_medium=RSS&at_campaign=rss) |
 | Taylor's engaged - what we learned and the new details revealed by Travis's dad | [阅读全文](https://www.bbc.com/news/articles/c4gzdpk3xwjo?at_medium=RSS&at_campaign=rss) |
-| Watch: SpaceX Starship completes successful test flight | [阅读全文](https://www.bbc.com/news/videos/cd0dxg4kxg1o?at_medium=RSS&at_campaign=rss) |
 | How achievable is Reform's plan on migration? | [阅读全文](https://www.bbc.com/news/articles/cx29l0wqlgeo?at_medium=RSS&at_campaign=rss) |
+| Watch: SpaceX Starship completes successful test flight | [阅读全文](https://www.bbc.com/news/videos/cd0dxg4kxg1o?at_medium=RSS&at_campaign=rss) |
 | Watch: World's tallest bridge completes key load-bearing test | [阅读全文](https://www.bbc.com/news/videos/c5y3rrvl3r2o?at_medium=RSS&at_campaign=rss) |
 | 'I thought it was the end of my life': Inside Israel's attack on Iran's Evin Prison | [阅读全文](https://www.bbc.com/news/articles/czd0e23j9q8o?at_medium=RSS&at_campaign=rss) |
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump's doubling of tariffs on Indian imports takes effect, hiking tensions - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOeVpvMkc0dHYtY1ZSZzBZd1NwSXNFQ1VfbGJHeURVenZBOGhQZkVxU0tFREZVQlZ4NXA2TnhNVF8xZU1GMTJmOXN6RDBOaVpPRjZ4NHhhX3BNM25nVWktTkl3U2YzUl9DUzdXWld5TnBJRWQ0Vk9PZ0IwdTRpZ2tEQ0xvd0VKMnI1UWhsOTl6SzJBUHFCcmdzSmdKS2Q0Tk9CWnAzWXlFdnVPZzc1T3dkQzlnQWUtZw?oc=5) |
+| Trump's doubling of tariffs hits India, damages relationship with US - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNN2hncmZBUmgtUHNnUUliUERpYUg2R3BGTmVaSzhhWWF5SEE0OUJGNWdLNnpOOE9mTmlyUElZRkhfdXFjMy1UQTRlbFBzdElRQVJ4TmlnTl96ZHFPakhEXzBmM05HVDdLYlBSQ2dxakdXWnAyV2UzWVdBRlBRem5CUjFMY0NXTUxSVGgweXpzM0tRWDdMSnpjVEM2aFhkN1ZSb2FkYlNKbjJsSTR1UUFfaw?oc=5) |
 | FEMA employees put on leave after criticizing Trump administration in open letter - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPbXRObUxKSFFyS3F0ZnRvVGxHWXhqcG5mdkFLOTl3VnIzbWk2bmtHLW8wdll1Ny1CWTlyZHU4ZENBNW1fNEpvQmd0UlZ5WnNqZnR0MDU0WDFJZE1uTlBhN1hJLWVMUjVubUIydE8xWnMyV0xfREV1bXBqcUgybl9wWm5TbFVjSVloUllmRWNaR3c1bUlLcVdubDA0azNyTUFiRHF3X2kyclJjTDVfaHBFOA?oc=5) |
 | Israel Links Deadly Hospital Attack in Gaza to Hamas Surveillance Camera - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNVFpGd0VoT3Nsd1BVMkpFYlhINjF3XzNMM1B2eUhnNzBUcGdGRTRLLU8xS3JSN09hQWJMOU9RaUoyNHJUNGlJc3VIdmR2NXhBb3Fsa3JHcERYb1ZQVVhQN2NJQlhiSkk1VXUxUFl1QXhZYnlzMldjSm9CQmkzQWEtVDNXM294UWpENC10dkxpWVBoQnBzc2UtcHotRGFGdw?oc=5) |
 | Trump Administration Celebrates Successes for America’s Workers - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNUmdMM2h6NXhWSlNMRUhpaTIya3YySkFyOFo4RGRkZWtzWmEzS0xadmlXaHprdUIxRzRjTlpqTTZGVmhMalBGWmttN2dHRXh0UHB5eTZ1SmNYNkdZa0tTSERTY3pzcWctc2VRc0s4alV2d0EyaExtSXFLajNSRVA1WnNTdmdVYnYtM0lVVjVLWGJybGJlZ09mQ2xyOWlfZ2pBaWhKdkRiRFJhcUE?oc=5) |
