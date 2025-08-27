@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 17:13:05（北京时间）**
+🕒 更新时间：**2025年08月27日 17:25:37（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Energy bills to rise by more than expected ahead of winter | [阅读全文](https://www.bbc.com/news/articles/c78zgz7j576o?at_medium=RSS&at_campaign=rss) |
 | Mum's anger after funeral director keeps baby's body at home | [阅读全文](https://www.bbc.com/news/articles/c4gjr0ylenzo?at_medium=RSS&at_campaign=rss) |
 | Watch: SpaceX Starship completes successful test flight | [阅读全文](https://www.bbc.com/news/videos/cd0dxg4kxg1o?at_medium=RSS&at_campaign=rss) |
-| Wasp 'riding a broomstick' among top images entered for wildlife photography award | [阅读全文](https://www.bbc.com/news/articles/c70r7plrdndo?at_medium=RSS&at_campaign=rss) |
+| Wasp 'riding a broomstick' among top entries for wildlife photography award | [阅读全文](https://www.bbc.com/news/articles/c70r7plrdndo?at_medium=RSS&at_campaign=rss) |
 | Taylor's engaged - what we learned and the new details revealed by Travis's dad | [阅读全文](https://www.bbc.com/news/articles/c4gzdpk3xwjo?at_medium=RSS&at_campaign=rss) |
-| Denmark summons top US diplomat over alleged Greenland influence operation | [阅读全文](https://www.bbc.com/news/articles/c0j9l08902eo?at_medium=RSS&at_campaign=rss) |
+| Denmark summons top US diplomat over alleged 'covert influence operations' in Greenland | [阅读全文](https://www.bbc.com/news/articles/c0j9l08902eo?at_medium=RSS&at_campaign=rss) |
 | How achievable is Reform's plan on migration? | [阅读全文](https://www.bbc.com/news/articles/cx29l0wqlgeo?at_medium=RSS&at_campaign=rss) |
-| Princess Diana 90s time capsule contains Kylie CD and pocket TV | [阅读全文](https://www.bbc.com/news/articles/cgqn5jzn2vgo?at_medium=RSS&at_campaign=rss) |
 | Ukraine admits Russia has entered key region of Dnipropetrovsk | [阅读全文](https://www.bbc.com/news/articles/c17n1p24yv9o?at_medium=RSS&at_campaign=rss) |
 | Watch: World's tallest bridge completes key load-bearing test | [阅读全文](https://www.bbc.com/news/videos/c5y3rrvl3r2o?at_medium=RSS&at_campaign=rss) |
+| Princess Diana 90s time capsule contains Kylie CD and pocket TV | [阅读全文](https://www.bbc.com/news/articles/cgqn5jzn2vgo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
