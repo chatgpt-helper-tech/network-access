@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 17:48:18（北京时间）**
+🕒 更新时间：**2025年08月28日 18:01:58（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Woman says Chinese student predator raped her hours before second attack | [阅读全文](https://www.bbc.com/news/articles/c79l4z3v3p3o?at_medium=RSS&at_campaign=rss) |
 | Starmer to replace third top aide in less than a year | [阅读全文](https://www.bbc.com/news/articles/czr6zmd5d0ro?at_medium=RSS&at_campaign=rss) |
-| FBI investigates Minneapolis school shooting as anti-Catholic hate crime | [阅读全文](https://www.bbc.com/news/articles/c7760x87r4po?at_medium=RSS&at_campaign=rss) |
+| 'My friend got hit in the back': Witnesses describe terror of Minneapolis school shooting | [阅读全文](https://www.bbc.com/news/articles/cev2w1elx7wo?at_medium=RSS&at_campaign=rss) |
 | What next for Man Utd and Amorim after humiliation at Grimsby? | [阅读全文](https://www.bbc.com/sport/football/articles/cnv7lz9nlq5o?at_medium=RSS&at_campaign=rss) |
 | A charity is giving people money to stop homelessness - and it says it's working | [阅读全文](https://www.bbc.com/news/articles/ce83716edj1o?at_medium=RSS&at_campaign=rss) |
 | White House fires disease control director as other officials resign from health agency | [阅读全文](https://www.bbc.com/news/articles/cwy3zjxy3dwo?at_medium=RSS&at_campaign=rss) |
