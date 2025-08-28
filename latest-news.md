@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 00:25:07（北京时间）**
+🕒 更新时间：**2025年08月29日 00:36:07（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Minneapolis Catholic school shooting: What we know so far - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNUE5jVFhSTE8tQWJHNF9aNXRjTEJFSUhqMThUU21GUmlId19mRnVJUUI3R3dubTBjajkwM256SGNGbWc2UWtwN2h5WTFSVVRiYWg4UzRoLV9DcUJoZHN2bWJxMUYzaHUxdW40d0I5WXB1NkJLQTI5eC13RGpoeTNxYzdxaTJSNE1ucGJPaDg4Q09hTGh4ejFB?oc=5) |
-| Bernie Sanders condemns ousting of CDC chief Susan Monarez as ‘outrageous’ – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNS1FLaU5uY191OWVLVlY2Si1TblNGX3pYZlh3TFl2WUxGWFg5WFR1XzdzVTB5MGRlSk00dG1WSmlISXBZN3hYbXNmQnd2V1VsNTVLT0wwaC1xSk5nTVdycERRM29tTHpUWWhfVWJlY29RcVFxbV9YUWR6b3lTUG9WVkExQ1BBUWc1VXpPa3c2M1lmb3lxZlpQSjQ1NXlLLTVSQm1acDItcW85dw?oc=5) |
-| Europe furious as deadly Russian attack damages prominent Kyiv offices - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQV1NiY1lOaHZ6RmdoQU51U1hHX0czai1EN19ValloOVptaVFkRHBJai0tYkJULVl0aWFKVmVjUWFyMFk3LXlnNms2UmhJTnJMY2RyQkxNcm53OTRFYk9EMUROYUhXMGtGQl9DNWtPQ2N6bnJEdDJuU1dyM2RBV29CbVVKWWRsQQ?oc=5) |
+| White House fires CDC director who says RFK Jr. is ‘weaponizing public health’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQOEpkdkw4QWxqWHJJV0hHU0o3eTkzSnozVVJGcnZtTUFuSm1PYWw0ekZqYmp1REU2b25UZ2dRVlhJSEdTaEt4dkIzX2Rfb2xZV1E2X2o2S2IwNTZKV0JUWEtDMV8zQWFiOWpfWnJfWnpvZTBEYWdWUW1HeThhZGFhNEswbWg1LVNlb0Vz?oc=5) |
+| Russia launches second-biggest air assault of Ukraine war, killing 19 and damaging EU building - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE40OF94eFhmOTJQUjd1dHdtMU52a0xIMWotbDkyY3FmYnZtQlBGQlh6eFJxMFl1RFdJYzV0Z2U0dDRhSFJxSWZOWWp5T3hwdmZBLXl4Y3VCZEcyNUJabzZKa2xqZUlPMHFyOHRhWUpRMTRvU184OFY0SS1RZkNLdw?oc=5) |
 | 'We didn't do enough': How U.S. policy failed Palestinians in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE83WmpFWEtTTWpGNXpKeXNYTjRzUENjT0xqVlBqbnhHT1lWY3VBSFFmQnpzTmw0b2NXU1lhd05xa0d0WF9yLTQ5STEtdUNTWDZPMWppVkZ2cHpXY2VNRHpiUzNhU3FNRV9jY3VjZjdIOEItTXY2TTRhSg?oc=5) |
 | Trump admin. moving detainees out of "Alligator Alcatraz" after judge orders facility operations to wind down - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOTEp6eklqQVBVaFhsRE1RbHdDU1NYay1DdDdfaHR4UlVIUnVhZmRKeUNnSUNOT3lBZzlLOUFuZ3VGT2h2bTJTUy1Vd1RqQ0RJaWdmQzZTNVZWWEk2RWgzb3NKSkJyYVhqcVNjVHJwdk9ta05JaHNZMWN2WG9taWZhLTdhUlJrYzhYSExIUzF1V0lsLXViVWfSAZsBQVVfeXFMTzFyMWp3QldPNl9Ndnhldml0LWw2YVV5VTV2VXoteV9JeE5jWWxITnN4NkhqZF9jQ0JyUjF0UjVPWnRHWEMwRGxHdVc2ckNkYUs3YjRlSjd4eVY3MWVJcHNjeEYtRkdFSUdlczdIMTNjTjV1dFRaY1RxNTBqMmpKbDktd1RnNGFCQk5UUnhMLWYwOXFTM2RWVWFYSTA?oc=5) |
 | D.C. mayor: "Masked ICE agents" and out-of-town National Guard are ineffective - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQbkFlOERkeXRscTBmd09TMVJGT002QkJEQ0FyaGctM3ZMTkxGdy01WmwtMWRuLWp3RWdubHQ4cGtvMHoyVGxCLV9Bc1NVMWFJa08tUGF0dGZ0NUhIQjd2aGMwY19xYm9SN0dBdVdQc3l0ZUVMQnoxaC1xcmNDMXhDQw?oc=5) |
