@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 06:01:21（北京时间）**
+🕒 更新时间：**2025年08月29日 06:13:13（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | India vs. US: Who stands to lose most in the trade dispute? - DW | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNRTZHMXhyUGdSUHYta1Y5ZGp1SFd4dnluLUUxeGVJMnhRSFg0Ri1vcnVldUJiWFpRdk9jVWY5LXJ0R3d1MkQyM0ZSVEYyblI5NVR3bXBnaWxIU0lTeXN5SndVTGtXWUluM1JNd21tOFlKemNMSklGaENKZm1ucUtZLXZIQk5qbWFGOS1zbndVTnNNZkHSAZMBQVVfeXFMTmx6WlR1UmNXQW5zZEd4VDFIVndoYmVON1dIMG40aEdtRVg2R3lpbE82QzZQY0pjZ2FmVEtkeHhuWFJRUkdXZWYyNXJLTVRzZUtHeVJCZHZ4VFNSSXlYV0x0Mk9XcFdvcEc1MXdERWpWUEtkVkR3dmk5UEZUSjRsQkl4YTRCa2JPR0V4YTU3Q203alJn?oc=5) |
 | 70 years after Emmett Till's murder, Mississippi museum acquires gun used to kill him - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOZUNEZ0RhMkdUcjlMY0EyMURfOXMtWWhkQXQxWkFYQWJaV1ZwMVBUejFTUmZlYUFvbUxQY3BtajlRWWRDOWVGZ1NfMEpZakpiWHdhWDc0NHZkVFNuQjNHVXRtTDNMYzBLOE13c0dra2k4enJGSlRqUnV0bkRwNkNqbzY3ZVhzUTk4dWRoaFFZdw?oc=5) |
 | ‘Grasping for straws’: Europe floats Ukraine-Russia buffer zone in push for peace - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPN2ZLQmdZdFExZ3lqbjBqRG80RVNXM29hQldVWllwc01mZWsxazc2MXpRZjV0LXBLS2paOWtNcUY1YXpwZ0hWVm9JN3ZhQW13QXBwbTd4VzU4NkJFWWU0VXptS1QxVElJd1ZRLWxEMVNIelNpaUVRTVB5N2NlMEg4eE1aTlF4SFFJUnFraVh1cHNodjg0VWc1blV3?oc=5) |
-| Bowser says Trump surge helps reduce crime, but hurts trust in police - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOVjZ1OXUxQ0F6V1oyS0hya1lNREVOV3ZHOFR5Z1MxRTN3WWZkTjFqVVdiUEM4UDM0RzZ3cXNsR3oyUmxOMUdHMW1UNDVDN2J6N2J1NWN1TDBtWXFTbFk2NTM4Y1l4Nk1MdElFUFM4RVNEVXNzWlFfcVJpQ0tIbDdqUHR1UXVoZnF3T2dIRTdTSzBZaEY5Wk5HdnMxQkJyOFJWZWc?oc=5) |
+| Trump administration plans big immigration enforcement operation in Chicago as soon as next week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPTmp1TW9KODNvS0lHQnhhaEpBX0NZZ3IyRnE2U0dJNXlFVlhld2k2Z1lYeURhMGZoQ3E5MVFQcEZQODRmTWNrc1hNOVNZQ2RaS3ZKdzd2eUhPNk12SnE5dEhiQm40Z0pwYTdKRmZBbklKYUNyZmhRcWR0bHV6SEVhbGl5ZEZQV2xLV0Q1eHcxdw?oc=5) |
 | ‘Evacuate NOW!’: What it was like to sound the alarm ahead of Hurricane Katrina - Yale Climate Connections | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNekE2V1AtNkU3U1FNSjQ0eEJNejdHYm4xaDVWbkZIR0tyeFhIc3d3TEV6emNueHBza2pVSm42MkJYR1M0WTZvLWE2am9xdFFMTjk0dGlOU3lac2pCVjAtQmtaQ3psUGVTcFh6TmpRWVRpM1g1ODM0T1NMR0g0dFFfY3B1RmpsUXM4QkdZLUN2SndwdXBWaUxuR3lOUTY1QThnRVBWV0dWeE05YTlhbm1uS1pYR0Y1Mzl4aDM4?oc=5) |
 
 ---
