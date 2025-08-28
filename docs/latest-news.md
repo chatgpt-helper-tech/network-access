@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 19:01:25（北京时间）**
+🕒 更新时间：**2025年08月28日 19:12:21（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Woman says Chinese student predator raped her hours before second attack | [阅读全文](https://www.bbc.com/news/articles/c79l4z3v3p3o?at_medium=RSS&at_campaign=rss) |
-| Starmer to replace third top aide in less than a year | [阅读全文](https://www.bbc.com/news/articles/czr6zmd5d0ro?at_medium=RSS&at_campaign=rss) |
-| 'My friend got hit in the back': Witnesses describe terror of Minneapolis school shooting | [阅读全文](https://www.bbc.com/news/articles/cev2w1elx7wo?at_medium=RSS&at_campaign=rss) |
-| What next for Man Utd and Amorim after humiliation at Grimsby? | [阅读全文](https://www.bbc.com/sport/football/articles/cnv7lz9nlq5o?at_medium=RSS&at_campaign=rss) |
 | Electric cars eligible for £3,750 discount announced | [阅读全文](https://www.bbc.com/news/articles/cvgvywyev1do?at_medium=RSS&at_campaign=rss) |
+| 'My friend got hit in the back': Witnesses describe terror of Minneapolis school shooting | [阅读全文](https://www.bbc.com/news/articles/cev2w1elx7wo?at_medium=RSS&at_campaign=rss) |
+| Reform council boss bans local newspaper's reporters | [阅读全文](https://www.bbc.com/news/articles/cger45p0lv0o?at_medium=RSS&at_campaign=rss) |
+| What next for Man Utd and Amorim after humiliation at Grimsby? | [阅读全文](https://www.bbc.com/sport/football/articles/cnv7lz9nlq5o?at_medium=RSS&at_campaign=rss) |
+| Starmer to replace third top aide in less than a year | [阅读全文](https://www.bbc.com/news/articles/czr6zmd5d0ro?at_medium=RSS&at_campaign=rss) |
 | She was on the brink of homelessness. A charity grant transformed her life | [阅读全文](https://www.bbc.com/news/articles/ce83716edj1o?at_medium=RSS&at_campaign=rss) |
 | White House fires disease control director as other officials resign from health agency | [阅读全文](https://www.bbc.com/news/articles/cwy3zjxy3dwo?at_medium=RSS&at_campaign=rss) |
 | 'No class and no education' - how a row blew up between Ostapenko and Townsend at US Open | [阅读全文](https://www.bbc.com/sport/tennis/articles/c87ev17en4yo?at_medium=RSS&at_campaign=rss) |
-| Teacher stabbed by girl 'could never' return to work | [阅读全文](https://www.bbc.com/news/articles/c1jn404ndlno?at_medium=RSS&at_campaign=rss) |
-| US tells Denmark to 'calm down' over alleged Greenland influence operation | [阅读全文](https://www.bbc.com/news/articles/c0j9l08902eo?at_medium=RSS&at_campaign=rss) |
+| Epping hotel case could set precedent, court told | [阅读全文](https://www.bbc.com/news/articles/cpqv01lxvyro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -29,10 +29,10 @@
 | Search for missing 7-month-old: Officials have 'strong indication' on location of baby's remains - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQNXQyNm9LSzlvdV9XTnp3VnhfMjEzUlFpOEotZTRZc2dfTzAtWUhiZDRpbzdVSzZ1U1dkZ2htYmFLaFlGZkdCMU5ERFFlUmMydl9WQnE5WWdYdGNFdnc1d1BZcFhrbVdDMnJTTXpIeDlub3BmNWhQVXBtcjB6blhzVXAwRy16VXdTdWh2NGRPbTFvNS1wYTEwZGdVN2xXbENBQnVBQmpLNNIBrAFBVV95cUxOeEhaa1dCUmxvU3BteFZtemh0el82eHJjUVhTLWI0czY3d3lsQUlPaVp4c3c3UmFDRnU0RXRtNVNRLVNha1llTkRka0pfSExrLVFSRlJDVHNQeHNydVZTZWtXWFlPYl9nUUdqUnZ1MllYZTgzUEFlLUhkMGI0WXJXODRxNUZKSnhieDRtNi1VbXhtamdWM2JlQTRxM09oMDZXMGU5LWJTOWtlSGZH?oc=5) |
 | Speaker Johnson slashed Medicaid. His constituents could lose health services - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPTzNFUnNkTzhuMFlrYjNzSEhmOVo2dzlJMlNSbVhRbThabEprZzN4Q1RhZkZkQ2l2ZjUtYmMyYTRPQk11OURVNVNPRkk1cHpPd1dmTElTUGExaWdyd1RNWVJEUlZJNnF0anBsY2FfeDVlemtjaVlhYnd0V2h1TlZVd21EdG5IQnl4aFlzVg?oc=5) |
 | Denmark summons U.S. envoy over Greenland influence campaign with Trump ties - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNWnpibjR5Yk4yUURXY0xsOUU0bklVOEZGbHF0cmM0YTNXLWdNbk42TVBST0R4dkJmLVNfUzZ5OWFseXplcFZTWjhyaEJuM18tV0lYU3ZoMzVKaW9rdFRON2VuZWUyY2VpUDdMOHNYMHBzVlV0MC03elVQbHVYUDBGNVFpUC1IY3Ux?oc=5) |
-| Trump admin. moving detainees out of "Alligator Alcatraz" after judge orders facility operations to wind down - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOTEp6eklqQVBVaFhsRE1RbHdDU1NYay1DdDdfaHR4UlVIUnVhZmRKeUNnSUNOT3lBZzlLOUFuZ3VGT2h2bTJTUy1Vd1RqQ0RJaWdmQzZTNVZWWEk2RWgzb3NKSkJyYVhqcVNjVHJwdk9ta05JaHNZMWN2WG9taWZhLTdhUlJrYzhYSExIUzF1V0lsLXViVWfSAZsBQVVfeXFMTzFyMWp3QldPNl9Ndnhldml0LWw2YVV5VTV2VXoteV9JeE5jWWxITnN4NkhqZF9jQ0JyUjF0UjVPWnRHWEMwRGxHdVc2ckNkYUs3YjRlSjd4eVY3MWVJcHNjeEYtRkdFSUdlczdIMTNjTjV1dFRaY1RxNTBqMmpKbDktd1RnNGFCQk5UUnhMLWYwOXFTM2RWVWFYSTA?oc=5) |
 | ICE asks for access to Chicago-area Navy base to assist operations - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUURFaWhnMmlOUEtycE1tWWZpcXJpWnc1dnU0a3BzLWczZlJZYXNpY3pCbER5SGNxREFjaURuWjdiRThyODJ3dzlvS1kzRUtpZGlCTC14bWwzQXZlRTNTR3g3ZGxvNWNiNkJoa0tITlZoYWVrVDRfakdMUW9HVDl3ZS1xYWI4eURpT2JvODRkZDM?oc=5) |
-| U.S. tariffs take effect on India, threatening $48.2B in exports - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQZ052RnFBRU15WG0wSWctS3JiVXBLNmZSRkN5QktUSHVNRmhYS1g0NmVqS2FPcjlyX2dMSVUwalJnM2h5ZkJfQkphcGtYUFJzcmFTSkFfeU9hSnNQc3RjMDNRbGRZZVU3ZTR4VVVLV25DNzJMaWZfbXpHU05BaDA0MEFyN25jY0U?oc=5) |
-| Missing New Orleans boy died from blunt force trauma from alligator, authorities say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOek5KQWFYc2tqaGtJTVFDcENVakRpdm1ObEVqZGlDTUFmdWhpelNCSVZ0RlhvZlFHM2FOQmhqZ19GQ2hrcUlKSXkwaEFleXVxenFhOGJlTWl4Yy1UbGJzQmFqMWlPdFdteFpmOTdUdjBjbUw4YUxTTUhKS3BWSUUyeFdSTjd5VmRlYnJDSDduQ1V1T2FDTnlQQklkck9RblJXWGw5NXBSbXZiZlJTMTNLSGRMMlpfeVJM0gFWQVVfeXFMTVpiMGtOT3R4S2RwbHg0S3Q1b1ZMeld1Rkk2ZFR3cjlMZVNPOHE4eEZEaUl5OEhacC0zRWE2SDBXSnR6akJpV1JPcmdhaW00cWloZ0VTR0E?oc=5) |
+| Trump’s India tariffs take effect: Which sector will be hit, what’s exempt? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNUks4WThFa1hNb1dsSjVzd2hGQ3NJb3dmZzJUQ3RXdTRfcGNQZUpHc1RJWi1TdjFTemdEZGF1WW5rQVZ6cER2QkpOLWtzSkkxVzJ4X0NRWHI3bjZNMDl5RnRCY2Z1WmJpY1B0bjZOOXA4OHJZRk9pTnlWeXpldHhnbmxTZVhna2xhakg3V1RNcV9zVVNiSS0weGpwVUpvVmk4NWt2VzJpWjByNzl3RUVZSGZYN0HSAboBQVVfeXFMTnBLcjAyUVNMZk05UndBMmRQZ3EzWWl5d2tTelluQ3l4NmF5MTBRdVNseWlVOTJqV3RSMXp1N0lRX3c5aXpyUVUzam5sOG54WGdSN3ZyRGVBeHBxc3hGX2kzYnoxYkpobFg0NHRVTjlmbUVhREp4cjdHTXNQZXJZMXQtaTJ3dTVFWXBEbFV2VGJlYnhpNkhTMDNSU0d2SUZBeVhfbmFaQmxWS3FVUXRKNHB2b3phNmxIV19B?oc=5) |
+| How a grand jury acted as "sword" and "shield" for D.C. sandwich guy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTGtrdFpSb3VyallNVlNIXzltV3JMNzMwM0dkOTd4Wk8zRzJ2cElYMFFjMEZIUjZfcVlFcWtZeFJQYWV5SXJoZV8tRV9iMkVDRGhiMGxXZ1pxRW5LeFZQcnlqdUNvd2w1RHlWc0tpeVkxa0p3NTV3ZUxlbWE2TlBnMUJ0bw?oc=5) |
+| Trump’s D.C. Law Enforcement Takeover Has Black Parents on Edge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPSERObnRWTklIRlVHX3BDaWNrZGZGcTUxQXA4Y015T21LZmNrV09TWU8wQmZhRjlQTlJydWlnVnp1T1hQNHJmU015VEk3amhKakxGWmV4cTlRczNsRzZGNlRxYzB5VHZZU205aXlfSVMwTmV1c2NzTkF5c0FUWDZuUmV2YTdOWGM1WUJCYWVCNHZncjgwYWZxMDhqSFJpTFV3Z0M2Vi01NA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
