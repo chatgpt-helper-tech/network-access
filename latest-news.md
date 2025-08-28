@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 13:49:27（北京时间）**
+🕒 更新时间：**2025年08月28日 14:00:07（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Emmanuel Haro updates: Baby had been abused over time, succumbed to injuries, prosecutors say - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNZFR6NHNTeW1tOEc3V0Z6UThybHI0elBscVBLM3RNT2tVWnR2ZHN2YXM2ZEhQamVhNjRmQ0RXd3V4WkJnRlhTbVlLd3lLZ0xyaE1jTkN5Tng4UWJVNTZNTU15WFpkQVFCOFNmSU1yRHlBcGhjb0RxNldTUEhuOEpueHNRRi1VN0RBLWNlcWtPN0pCSmxaWlYyMC0wanZ6TkZFaExiNmtSaUpDTkpjbVZRZVNPZTPSAboBQVVfeXFMTzd3QzJtYkJDS3paMzBXcThPNWEtbUJtbkVUWjUzVENrT3pUTzRtMVBzNnR6aHIzSUFpMHpUaU1sOFBZNmN0WldwRGF4eWlsamtuMnhlWjFueUpZU3BIVFd3R0h1VUZBWDk3YllQUDhlSklaUzdHbE9zSlVET21OUHpsU2NnbDRRMmg2VjVuMzBteFVUN01vMDZ2ZUxrRFFnYndoSjFGYlprTHJiQ2ktZnhrc3hXbjFTOGp3?oc=5) |
 | John Bolton Inquiry Eyes Emails Obtained by Foreign Government - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPLWU1bnF5MzU0UUJhNk9SMFUxSjFXWE9yUXJRbS1vUmNCU1F0bnp4b1NFTzctd0pIb0ZDcHc5TW5hWm45eWl3dEF3MXR3b1hKQUlyWjhtZXc3ZVRsWXZ1WXlDVTR0Uk11NXpPR18teWFRMzlfWmJINklGT2pjel9RbVJPSnNiS0hBcVJab21razZUaWc?oc=5) |
 | ICE asks for access to Chicago-area Navy base to assist operations - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUURFaWhnMmlOUEtycE1tWWZpcXJpWnc1dnU0a3BzLWczZlJZYXNpY3pCbER5SGNxREFjaURuWjdiRThyODJ3dzlvS1kzRUtpZGlCTC14bWwzQXZlRTNTR3g3ZGxvNWNiNkJoa0tITlZoYWVrVDRfakdMUW9HVDl3ZS1xYWI4eURpT2JvODRkZDM?oc=5) |
+| Has Washington DC crime fallen two weeks on from Trump's takeover? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBZbnM3UWhua2VMcWNKSmNtekZpOGdudHdETE5jZ1ZPd244NThQZFVwemdjQXozeUtTelhRMnplcE12eko2Q1Q0NklWWWo4cEVBQU9SZGZWUzNpd9IBX0FVX3lxTE1NNEJOQ3dqOTBPMVA5UGk4QVBqTFFmeWRIcWNyajlrdG1aa3VlamR5dTRTWDZoZEUzV2N3NktvV0JMLVJ2RG5GcjM2R25BazQtdVRLRkJMZ0VfZlBPVVJJ?oc=5) |
 | Padilla’s options, Porter’s brushback, and Newsom’s crusade: 7 takeaways from POLITICO’s California summit - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi6AFBVV95cUxNQzdmbVRHTTdVTVJvN2k1MHYzT2Y0NnVQNHpUTVhMc1dQLVN3d1ZFQUo0dDBFajdvQkludWdsRWN3bW1Xc2hpLUREbXg0REdmbUE0ZVpoZ0FRUnZhV2k1N1l6R1R0R2FLMjhXREttakJUYUZRNjZWblpfSVAtdTBYeWJHZ3h0R05nQXVBMDRzTk90NjUzcFBWYjh4SXdsbUpoWUwxV19VLW5udFNtQ1NWTzBQdDVfalZHYnl0Z2RkYXBlb0NOVHdaU19DRUJ5NDdvajgzd1lLOVJtZzhlZzZ5VjNVb0JhdFFk?oc=5) |
 | Missing New Orleans boy killed in alligator attack, police say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPSFpKRGN0eUtWN3pYU2NfSVJFRFJIS0U5ZmJWUjhRNEtjLUJCYW1GLUpkY3ZoREt5el9MdUF6RU5vRmljMGRCaGRVMkpEN1RDTW5sRVVUdWNYZUN1b0FDX3ZsYUc1OHNlWTc0UkZYemJnVDNKd3pBekYtdGhBU1IwdGxBOGF4MHUwcExIQTlUUDJIbEsxQmNpSEVDNmtFWG9qSUZQWWthc0fSAa4BQVVfeXFMTkREc0VILWpZUGFqSVVvMXVGUXU5X3pDZS05Wm1qcFJHSWZ6Nk11V3hPaVBvZHpSTmNvNmFRT3UtaEtKaUVfQUdLbURrUC16bC1Id25KV19PQkU3TTRYREJkcURHZWItdllqd1B2LWV2U2NVb3NwR3BnMWRtd2NDNGJYTXNfWjRxTWZNVkd1bllmaENZdENVV2E0OVkzY3NvOTRvcGpTVXFORFdvWEFB?oc=5) |
 | Trump administration takes control of Washington’s Union Station train hub - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNclNMczluTm02UENrNjFNWjdieEJXOU1OalVjV0c0bTQ1aFVGOTNLbWRPQVppQVNJWU1Md3RPVndYVWNlVkxLWWYtb1BScUViMnFxclNYR1E0SkUwRmE3aDJRYVNyWFNHbzF1LVFGdEJsNnM1LWpBc2tROXJsb25UZENKeGNKTzdYSGJpMjBiZ2xYYS12TjdWQ05mc3duVm1Lbng1NW9kczlHY3BzV2dmTV9KWXbSAboBQVVfeXFMTkFsZDVWOXJGR21NaWtXY21oRTdqdVBua2c0bzhWZmp4QndhQXNpaWFZbEh2Tm9YSS1LaVZSOVNrX2NJTG1TWDRqNC04SkF1cGt0VUJ0N0tBZ2VPMzBLWVdtQmIzSUl1eW9UdmhzMkltNmpQdjhFa2JFT0x6YmFOYzVVS2RoT3V6VFJBNHFpa05INGFqeGE3a2s3aHF4ek1DX0NuSHJYLVJFTUpnaUswTXRKU2R3TVM1VkhR?oc=5) |
-| If Abrego Garcia is deported to Uganda, here’s how it might happen - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNc3kycXprNFJjellKNjBJZkROR0xKekdfNV84LTFlc3I3QUptd3pDQW9kRkhFRzZjdldYeVVPemtVVHdkM1V3MHNpMnlMSnBqN0ZfT3hIZnNzcGhJbFRpdDRVOEZncE42N1MxWmo0SEl4cWhJdGtXMGQwMWF4SWJ6REcxNA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
