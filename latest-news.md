@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 23:01:36（北京时间）**
+🕒 更新时间：**2025年08月28日 23:12:35（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | British Tour de France winner Chris Froome airlifted to hospital after 'serious' crash | [阅读全文](https://www.bbc.com/sport/cycling/articles/c4glv348xjwo?at_medium=RSS&at_campaign=rss) |
 | Epping asylum seeker hotel order could spark more protests, court told | [阅读全文](https://www.bbc.com/news/articles/cpqv01lxvyro?at_medium=RSS&at_campaign=rss) |
 | Met special constable found guilty of child rape | [阅读全文](https://www.bbc.com/news/articles/c0ml30vgykro?at_medium=RSS&at_campaign=rss) |
-| US Fed Governor Lisa Cook sues Trump over attempt to fire her | [阅读全文](https://www.bbc.com/news/articles/c1dxl6ry4y3o?at_medium=RSS&at_campaign=rss) |
+| US Fed Governor Lisa Cook sues Trump over his attempt to fire her | [阅读全文](https://www.bbc.com/news/articles/c1dxl6ry4y3o?at_medium=RSS&at_campaign=rss) |
 | Electric cars eligible for £3,750 discount announced | [阅读全文](https://www.bbc.com/news/articles/cvgvywyev1do?at_medium=RSS&at_campaign=rss) |
 | Reform council boss bans local newspaper's reporters | [阅读全文](https://www.bbc.com/news/articles/cger45p0lv0o?at_medium=RSS&at_campaign=rss) |
 | Man, 59, arrested over racist abuse sent to England's Jess Carter | [阅读全文](https://www.bbc.com/news/articles/c07plxg1vl3o?at_medium=RSS&at_campaign=rss) |
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Minneapolis Catholic school shooting: What we know so far - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNUE5jVFhSTE8tQWJHNF9aNXRjTEJFSUhqMThUU21GUmlId19mRnVJUUI3R3dubTBjajkwM256SGNGbWc2UWtwN2h5WTFSVVRiYWg4UzRoLV9DcUJoZHN2bWJxMUYzaHUxdW40d0I5WXB1NkJLQTI5eC13RGpoeTNxYzdxaTJSNE1ucGJPaDg4Q09hTGh4ejFB?oc=5) |
-| CDC Director Susan Monarez Is Fired, White House Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPNXgtS3JQb1pZYjhzY1d3aVdRLV9DTGRiWXE3RmlBZ3l6SFEySDZRRGExbUs1S0RDZ0U5R09TTmhFdzNncHo2SlhqaktiY2VyLXZkeUI4V1lwTk1aV056MW13UFFQbEFjMG5QNjJfNmtXWUdkUDRzbjFfalZ6U3JtSQ?oc=5) |
+| Minneapolis mourns kids killed at Annunciation Catholic School as officials seek motive - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOSmNEVzZoM1JERVpOb09MejRSUjB5aV9iVHh0Y3R3allZMVpLZk83cnJPV3pHSUxHeklHdlhNeTIyRzZjX3hBbUtFRXo3blZlTnM5QldNMF83dkpoMGlCWm9Kd1JpYUdldEs3NHdULXpyeGxVTy1tY3JvUFdzbVdYNVRoZFFZWnVhdXhlS284eGdqR3FKMFlJOTlmU1JCX0U?oc=5) |
+| Monarez refused to fire top CDC leaders, ‘rubber-stamp’ vaccine changes, confidante says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxORGNPcC1HVmc0NU5JR3hKYzkxVWdxR0E4NVRWal9ZbEZOSDRzSm1hNXlPaThZTjRwNE11Q3JHajJ2eGp6YTVhT1Jyd1otS20ycXhEYTVxdUtNdVhFYVZQMTBQYk43dFFxQXMyLXZUUjZHQ1RnMVk2cDdFNnlvVmJ3RFZMX2ItekE?oc=5) |
 | Europe furious as deadly Russian attack damages prominent Kyiv offices - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQV1NiY1lOaHZ6RmdoQU51U1hHX0czai1EN19ValloOVptaVFkRHBJai0tYkJULVl0aWFKVmVjUWFyMFk3LXlnNms2UmhJTnJMY2RyQkxNcm53OTRFYk9EMUROYUhXMGtGQl9DNWtPQ2N6bnJEdDJuU1dyM2RBV29CbVVKWWRsQQ?oc=5) |
 | 'We didn't do enough': How U.S. policy failed Palestinians in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE83WmpFWEtTTWpGNXpKeXNYTjRzUENjT0xqVlBqbnhHT1lWY3VBSFFmQnpzTmw0b2NXU1lhd05xa0d0WF9yLTQ5STEtdUNTWDZPMWppVkZ2cHpXY2VNRHpiUzNhU3FNRV9jY3VjZjdIOEItTXY2TTRhSg?oc=5) |
 | The 'land swap' that wasn't: Inside Trump's frantic dash for Ukraine peace - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPd0hUWVU4X29iOFROcVJtaGdyMnZUazEwUmR4TGFNQk9KeUpXN3hrY2dsbmxhSGZrc0FwWUViNEl6alhkOWdMTEtPY1VPTHhLcEVpcFhFTVZRQ2FlWFFxWmZKRGJJc0pWaXh1Wk00TThHV3lSNmcyQ3hwYTlveWdrem5nbnJUbk5yN01ZcnhHWmNyd21NUFEyUTF0bnVsTWZyVDNiYWExQWFWYXlVYzZF?oc=5) |
