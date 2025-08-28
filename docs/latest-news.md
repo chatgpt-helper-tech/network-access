@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 08:00:04（北京时间）**
+🕒 更新时间：**2025年08月28日 08:13:52（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Colleges see significant drop in international students as fall semester begins - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNcnpFWjlZQlRYTWxnVjljWTlIUDVFc29MV2xuUDZZYlhPVFVoMFVNc0FtOWg4Si1fWTIyS05uLUFmLWtUYTNrTVR0U3dXa0FuZ3hWdEk0VTR2SlJONGNoVExreGcxM0hXV1lRcXljT3g4eHFxM1dvN2ViSGpoa2pZb003MEFrYW9QQWRGQmtR?oc=5) |
 | Trump’s planned Chicago blitz would use naval base to house ICE agents, possibly National Guard - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxNd0tCUF9EM1ROMldtWHFSN2VtUEZxSlpVdzVLQUNZZE9rLTZDdnpLOEE3N0NwMlp5eTI0NnZrSnJsWWdvVHU1ZDdHQUdLWWU3azBaM2pkOHFhMktUclhaSUp1Vy1tV0lYZ2JzTmp2Mnl5LVJZdEpJWFhDLWljaG5oVFN1ZEdSWExpV2VBcFhrTWMyNDQyOG5EXzdBU2xjcDNSM0hmRUFrUnVzLV9uVm1uMExCYjVORUZKRnhWNDJpbGgxVVVsVVJjM3RiY2c3N3Z3aGJtNHlJXy04UQ?oc=5) |
 | Trump's former FEMA chief opens up — and says administration is 'delaying' aid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNNjJ0MTJnajV2QlprS2JPWVpQRTlQWWdHLXZvRGNJb3Axa0NmTVdfZ2xrMjFyNlpfRWRCSXBvdWhNajBpS0ItRThqUkxTTGwwbm9NanQ0emcxalg0WGdwc3pJaXhvZGI1dmhGOXJWVU9sTGJ6b09xRGdBcThuVkN4ZGE3cWdUWEYtVDRrLXM5clFKR0xIWGVHQlpiazI2ZWlTSExoVg?oc=5) |
-| If Abrego Garcia is deported to Uganda, here’s how it might happen - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNc3kycXprNFJjellKNjBJZkROR0xKekdfNV84LTFlc3I3QUptd3pDQW9kRkhFRzZjdldYeVVPemtVVHdkM1V3MHNpMnlMSnBqN0ZfT3hIZnNzcGhJbFRpdDRVOEZncE42N1MxWmo0SEl4cWhJdGtXMGQwMWF4SWJ6REcxNA?oc=5) |
-| Trump administration to take control of Washington's Union Station - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQS2Fja2VlMzBXd3lXTW41ZDVlY1JFa3g5Sk5VZlJONHVhTGF1NEZmSDk1UmM3S05lN0paUFFTTEpJVGlya2RLd08tbzNuV0lRSlVnU0hYMFJ1V2liMTRNTWF6TFdqU2pJUFZOQ0pFSzVOcEUweG1HazE5ZEFteTdrdTRrNGt1NG5VOV9WZGJZOTB0TTg2XzdqWGFiU0ZTbFNEREFwcFlVTQ?oc=5) |
 | Grand Jury Declines to Indict Man Accused of Throwing Sandwich at Officer in D.C. - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQRS0yTDhKQjJfaGhEaWlDRUtSaFhobDVCTmhzMS02R3dPbk92UzZfV0hLZG5uUC1kVmUyZV9wcWFtWGNQOEJfMGJVdG5tdGxBaUp6YkZYZTk2anJiQmZiWURWTmdUeHlZOHBDLVA4WTdRdGJQWThoVlFUaHlLeWtjUmlpR3M3Yml0VTloTXdYdkFOQVk5TkdHTDdmWVN5cm1XbWd4Q2h0MDN0VWJLNkxHYlFIakFHd0xl?oc=5) |
-| Democratic win in Iowa special election breaks GOP supermajority - PBS | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNMmNGR0lzVFpaWThTQVJzWThUMDBIbzZmeXdiRmhpTjY3ZkY2UXhsUjh6RXZKNWJNV1FXOHZUVG5jbGt3NFhqUjdrX3pqZXBJb2VZSjh4dFVtVmFycndTaWpERHg5SUdqTDFkRjZhX1lmUklqcjRhV1g0UXJKZkJqRmVWQUticTdzLU1pb0IxNVdYSXBGSGxCNTZVT1JUeWdTVGt3dNIBqgFBVV95cUxNUDdUMWJadEZjYU5QWnNjN29xZVNRYlJTN3JFMVI4cXVOdnVRS2ZLUk1uMDBDeHJNRHFuendIa3RaVTZNdTNUdUxEUWVoRWZnSUJsZlVEend6UU5wcEJnVUkta240dzFQbGFoX1FQSGtOdEdTOVkwcnhBaEZIQldGQkVUOFV6S21vOEdQeTZtVHpLaW50dzJ4blpOVUU1Z2tKdkRzeXZ4RkxWZw?oc=5) |
+| Padilla for governor? California senator leaves the door open. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQdUNWZjR3WFhOeGF4M1BkbDVzeXhVZzVTeGhKMG5VQWpDRDJ2dHFacUV6NnU3S3g5Mm9adlpZSDMzeUZLZnpPUVRFWlF5UkJrMmREY3ZEUjNXTTFSVktXWnI2c3RVejN5blFFVnBUN2RsWFBEUVlwTnhGa2VWcmxTZlBvMHRTaE8yZ2l6eVphbTRpM0J5TUJSRnFoTnVKMFJYOHZYOHBXRGt6SXRwZXlN?oc=5) |
+| Kilmar Abrego Garcia can’t be deported until at least early October, judge rules - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOdVpic3dKXzJ0NFh2Vkg1d0trb19SbGpINGpyc0h2LVNVS3RUWU5yQWxGVGxQbEo1R2RIZVRkQTB3VVhYUml3aFR3YXNLc2JjT3NNcGNqS2hYNGVqaVYzYW9HbU9sYzg3TUc5MFFMSmlEcnFWTUNpemJBX1JXQXdZdjU4bUdyUjJPMU16TmlB?oc=5) |
+| Trump administration to take control of Washington's Union Station - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQS2Fja2VlMzBXd3lXTW41ZDVlY1JFa3g5Sk5VZlJONHVhTGF1NEZmSDk1UmM3S05lN0paUFFTTEpJVGlya2RLd08tbzNuV0lRSlVnU0hYMFJ1V2liMTRNTWF6TFdqU2pJUFZOQ0pFSzVOcEUweG1HazE5ZEFteTdrdTRrNGt1NG5VOV9WZGJZOTB0TTg2XzdqWGFiU0ZTbFNEREFwcFlVTQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
