@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 12:49:21（北京时间）**
+🕒 更新时间：**2025年08月28日 13:01:00（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Special election win spurs excitement among Iowa Democrats, but Republicans in the state are confident - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNN3pqSU1HM2xQa2tQUWRLYUkwMF82Ukdwdzl3M0t4MmtOWjNfa0lnT1dLU3pTanh0Z2QtLUR2WVdWbF9iV21Rd2piQkFiSHE1YlFhTUxSbjBHUXk0dHhxSW5ndjZXNjZIdlV6VlQ4dFZVejZ5TE1KMTJfZzA5RkpHMFFnaGlBWjlpREwzcE1JMmpmeEFfaTY5ZFEydGhHOVQ5TmJCZW80dDczWnd3NThYRjZ5WjNUcm00bklaaW96djNPZ9IBVkFVX3lxTE5XUGY0bk1UT0wxWnJxMzZpd1luNlg1ZkZFNWxRNTBQX3FoQ2ZoY1hqZVdFWnl6cTc0bU5iRUdpZzJRaG43TF9YZE9aUUFIQk9qXzgtd2V3?oc=5) |
 | Padilla’s options, Porter’s brushback, and Newsom’s crusade: 7 takeaways from POLITICO’s California summit - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi6AFBVV95cUxNQzdmbVRHTTdVTVJvN2k1MHYzT2Y0NnVQNHpUTVhMc1dQLVN3d1ZFQUo0dDBFajdvQkludWdsRWN3bW1Xc2hpLUREbXg0REdmbUE0ZVpoZ0FRUnZhV2k1N1l6R1R0R2FLMjhXREttakJUYUZRNjZWblpfSVAtdTBYeWJHZ3h0R05nQXVBMDRzTk90NjUzcFBWYjh4SXdsbUpoWUwxV19VLW5udFNtQ1NWTzBQdDVfalZHYnl0Z2RkYXBlb0NOVHdaU19DRUJ5NDdvajgzd1lLOVJtZzhlZzZ5VjNVb0JhdFFk?oc=5) |
 | Missing New Orleans boy killed in alligator attack, police say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPSFpKRGN0eUtWN3pYU2NfSVJFRFJIS0U5ZmJWUjhRNEtjLUJCYW1GLUpkY3ZoREt5el9MdUF6RU5vRmljMGRCaGRVMkpEN1RDTW5sRVVUdWNYZUN1b0FDX3ZsYUc1OHNlWTc0UkZYemJnVDNKd3pBekYtdGhBU1IwdGxBOGF4MHUwcExIQTlUUDJIbEsxQmNpSEVDNmtFWG9qSUZQWWthc0fSAa4BQVVfeXFMTkREc0VILWpZUGFqSVVvMXVGUXU5X3pDZS05Wm1qcFJHSWZ6Nk11V3hPaVBvZHpSTmNvNmFRT3UtaEtKaUVfQUdLbURrUC16bC1Id25KV19PQkU3TTRYREJkcURHZWItdllqd1B2LWV2U2NVb3NwR3BnMWRtd2NDNGJYTXNfWjRxTWZNVkd1bllmaENZdENVV2E0OVkzY3NvOTRvcGpTVXFORFdvWEFB?oc=5) |
+| Trump extends control over Washington by taking management of Union Station away from Amtrak - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxPS0pRbzhRQmJPZHVvUmtVVnNLdHhfOTRUMmpqZnduV29zQThiZzB2RTBuZVBSanNNSW9oNk42WGtUTm0yaV96aVhmMDZNWFBJQ1VQbXBVdEVwb1kycUROUjJoSGZaWHd0MDB3djRrQlY2eG9YcHdQelROa29rakYtQXF5TmdPcEkzWk1BTDBQbVRaY1J1LWd2R1kwSmZlX0Fka3VLRFlEVWFKdHhNOFc2clZoR292TExiTnNYNFl6MUhBdGpRd3VzMGlqRQ?oc=5) |
 | Gavin Newsom: 'I don't think Donald Trump wants another election' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPMmdBck44X1dQbDVtSDZpellMQ3ZxOHFycEs1X3pKMGpiRFowYTZmR1BLb2ZhUjRTbXdvNXJTYUtqSTQtcERwb0hKaWhoUk1QMFE0azNZaG9yWkE5aDl4enJmaVdMTzlOeXl5XzhjMFd5NnFRZUhUdjZfVnhrbXZLbzNfRW5PM0dwZTUzcGFIQQ?oc=5) |
-| Trump administration to take control of Washington's Union Station - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNUlNCT2lyT2VJYlJTa2hPdjNsZDdQRVBKbWxPQWpYckVtN3hHRjlOREJEa3RSQ3NDeHliTHkxOHh4RHlteERsVnR1aDQzTnZxX2N1eEhFNllfU1BXenA2X0x4SWlwckhyRmkyQTd6RlZIM3lYdGlkVjZ0cVFrZFAyckgtTURkZDk3bkZwajlIc2lLRGJTSXZtSXVNQTFsNUlVWFo2MTZR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
