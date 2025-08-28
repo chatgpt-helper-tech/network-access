@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 03:37:03（北京时间）**
+🕒 更新时间：**2025年08月29日 03:49:49（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | 2 Weeks After Trump Talks, Russia Bombards Kyiv, Killing at Least 18 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOWUVCeDJ1SDdtNGFjS3FNbk1VSjNxcnVPZnBIblRfQnQ4TFNDaTB4U2t6X0I0cmZLOXpuRWVKazNfU3duRVBaVm5mdmdlalB6TjhGV2c4Q2hiNVVWVUVzVllsNWcwWjJEd0ZFMEFYUlp1ZVYybTRtZVhNR3dPQlV6Zg?oc=5) |
 | The 'land swap' that wasn't: Inside Trump's frantic dash for Ukraine peace - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPd0hUWVU4X29iOFROcVJtaGdyMnZUazEwUmR4TGFNQk9KeUpXN3hrY2dsbmxhSGZrc0FwWUViNEl6alhkOWdMTEtPY1VPTHhLcEVpcFhFTVZRQ2FlWFFxWmZKRGJJc0pWaXh1Wk00TThHV3lSNmcyQ3hwYTlveWdrem5nbnJUbk5yN01ZcnhHWmNyd21NUFEyUTF0bnVsTWZyVDNiYWExQWFWYXlVYzZF?oc=5) |
 | Mississippi Museum Acquires Gun Linked to Emmett Till’s Murder - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNNTNIQ0pJb29MUFBvWHhqZUhZNWZWNGt3bUY5R1JuZW9QamoxNzdXaUUxQTZLaXdhNmphUmVUOTFqb2o4cnV6ZnA4N283YllPZlpBbmlGNFFzRV9FbzRHZDRPeGpUTzJ5bVV2eXhseXM0Tnc1UEtaTS0zOEZQc1VVcy13UQ?oc=5) |
-| 2 firefighters working on Bear Gulch Fire arrested by Homeland Security - KING5.com | [阅读全文](https://news.google.com/rss/articles/CBMi4gFBVV95cUxNYVBIZVVwV3UzNXVWSVZZUnd6ZE53aTFwQWtzT2doZUk1ZHl6OFYwcDZzR0txOTRiaEJjOVkyUF8wRnFWcGc3ckZGRm9Cdm1oS3A2YTU5N3R5bEVhVV9adVA3Z0dIUm9wVlcyc3ZGRlNJdVh5ZWdXMG5uMGRDV3FtTUlac0V1ZmlhUG9uR0xEVFI0MHNobVlxVkVud3d1dG92azdSRkZkUU1vX29uY05sWXYwRE1GWGxRcnlaMExzdGctT0JiUlJDUElwZFI2ejlzYnZubHBuSkR5RFJxQmZwMWxn?oc=5) |
+| NC county elections chair accused of putting cocaine, MDMA in granddaughters' ice cream - WRAL.com | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQSDdLU2FfWXR4TF9rQ2dCNV9wOWI5ZWRrQVhsaWFTaW1FYzZ2UGdkNUtjY29lcVNUdVNvVXRRTEpMSUVaczFTYmE5dGlCWWl4X1lXNjM4ZDdfdmpZdE1Zc0J3Umo4TXQ1WWU5V2VObmpHbkVtZlZXTjh1ZVZZOXd0MkhpWlgzQmlYSVQ3dXEzWXZFNE0xZGVV?oc=5) |
 | D.C. mayor: "Masked ICE agents" and out-of-town National Guard are ineffective - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQbkFlOERkeXRscTBmd09TMVJGT002QkJEQ0FyaGctM3ZMTkxGdy01WmwtMWRuLWp3RWdubHQ4cGtvMHoyVGxCLV9Bc1NVMWFJa08tUGF0dGZ0NUhIQjd2aGMwY19xYm9SN0dBdVdQc3l0ZUVMQnoxaC1xcmNDMXhDQw?oc=5) |
 | Trump administration asks military base outside Chicago for support on immigration operations - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQa2wwZnZCcGdsODJaZ0QxdEh4c2ZxZzZWZkJvOTN3bUlBa0NKcW80UXFjbHo4VWF2a1ZJRXhuWm5uODZKNHZGcXVXUW0wdjhVa3ZySDdTQVN3UDRpZzRIN2RnUUF5MDl3ejJWZHA3S0ZFU1JoM1BzYnlUcFFxbkF0NHdIT2cwSnJuMHl4WFZvVWRWQzRPN2c?oc=5) |
 
