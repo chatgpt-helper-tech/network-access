@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 19:12:13（北京时间）**
+🕒 更新时间：**2025年08月29日 19:24:12（北京时间）**
 
 ---
 
@@ -12,9 +12,9 @@
 | Ministers didn't do cost review of council mergers | [阅读全文](https://www.bbc.com/news/articles/cj9wxnlnrxdo?at_medium=RSS&at_campaign=rss) |
 | Thai court removes PM over leaked phone call with Cambodian leader | [阅读全文](https://www.bbc.com/news/articles/ckgeqlw05rzo?at_medium=RSS&at_campaign=rss) |
 | MSP accused of hiding camera in Scottish Parliament toilet | [阅读全文](https://www.bbc.com/news/articles/c9wy40rxrvxo?at_medium=RSS&at_campaign=rss) |
-| 'India put us on the boat like captives - then threw us in the sea' | [阅读全文](https://www.bbc.com/news/articles/c4g0p0522zeo?at_medium=RSS&at_campaign=rss) |
-| New taxes on small US parcels could lead to price hikes, UK firms warn | [阅读全文](https://www.bbc.com/news/articles/cvg3yjnq5zeo?at_medium=RSS&at_campaign=rss) |
 | UK blocks Israeli government delegation from arms trade fair | [阅读全文](https://www.bbc.com/news/articles/cvgpxwy2lkwo?at_medium=RSS&at_campaign=rss) |
+| New taxes on small US parcels could lead to price hikes, UK firms warn | [阅读全文](https://www.bbc.com/news/articles/cvg3yjnq5zeo?at_medium=RSS&at_campaign=rss) |
+| 'India put us on the boat like captives - then threw us in the sea' | [阅读全文](https://www.bbc.com/news/articles/c4g0p0522zeo?at_medium=RSS&at_campaign=rss) |
 | 'Just terrible': Osaka hits out at Ostapenko over tennis star's US Open row | [阅读全文](https://www.bbc.com/sport/tennis/articles/c707lv5vxxdo?at_medium=RSS&at_campaign=rss) |
 | Kyiv in mourning after strikes as allies discuss military support | [阅读全文](https://www.bbc.com/news/articles/cy9834jp9qno?at_medium=RSS&at_campaign=rss) |
 | Minneapolis school attacker 'obsessed with idea of killing children', officials say | [阅读全文](https://www.bbc.com/news/articles/c4g0lyny7ydo?at_medium=RSS&at_campaign=rss) |
