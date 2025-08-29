@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 13:37:54（北京时间）**
+🕒 更新时间：**2025年08月29日 13:48:05（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Can the 800-year-old Druids Oak help save tomorrow's forests? | [阅读全文](https://www.bbc.com/news/articles/cx2xz8r7egpo?at_medium=RSS&at_campaign=rss) |
 | European leaders outraged after Russian strikes kill 23 and damage EU's HQ | [阅读全文](https://www.bbc.com/news/articles/cvg3y7m2gz0o?at_medium=RSS&at_campaign=rss) |
 | 'It's a chaotic mess': UK firms warn over US small parcel tax | [阅读全文](https://www.bbc.com/news/articles/cvg3yjnq5zeo?at_medium=RSS&at_campaign=rss) |
-| BBC reveals web of spammers profiting from AI Holocaust images | [阅读全文](https://www.bbc.com/news/articles/ckg4xjk1g1xo?at_medium=RSS&at_campaign=rss) |
+| 'India put us on the boat like captives - then threw us in the sea' | [阅读全文](https://www.bbc.com/news/articles/c4g0p0522zeo?at_medium=RSS&at_campaign=rss) |
 | White House names RFK Jr deputy as replacement CDC director | [阅读全文](https://www.bbc.com/news/articles/cwy3zjxy3dwo?at_medium=RSS&at_campaign=rss) |
 | We're in the dark about future, says Epping asylum seeker | [阅读全文](https://www.bbc.com/news/articles/cdxy0p9jx1qo?at_medium=RSS&at_campaign=rss) |
 
