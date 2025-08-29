@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 16:14:01（北京时间）**
+🕒 更新时间：**2025年08月29日 16:25:31（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Can the 800-year-old Druids Oak help save tomorrow's forests? | [阅读全文](https://www.bbc.com/news/articles/cx2xz8r7egpo?at_medium=RSS&at_campaign=rss) |
 | European leaders outraged after Russian strikes kill 23 and damage EU's HQ | [阅读全文](https://www.bbc.com/news/articles/cvg3y7m2gz0o?at_medium=RSS&at_campaign=rss) |
 | Israel struck Gaza's Nasser hospital four times, BBC finds | [阅读全文](https://www.bbc.com/news/articles/cly6lxn1l4po?at_medium=RSS&at_campaign=rss) |
-| Ostapenko 'no education' comments terrible - Osaka | [阅读全文](https://www.bbc.com/sport/tennis/articles/c707lv5vxxdo?at_medium=RSS&at_campaign=rss) |
+| 'Just terrible': Osaka hits out at Ostapenko over tennis star's US Open row | [阅读全文](https://www.bbc.com/sport/tennis/articles/c707lv5vxxdo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
