@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 07:37:28（北京时间）**
+🕒 更新时间：**2025年08月30日 07:48:20（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Katrina inspired a $3B wetlands rebuilding project. Louisiana just killed it. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOYmtaeVVUTGJPWElFb0I0ZXl2NGZWNG5tMjEwNDYyTmE1akRNekJQbl9mSEhOLW1hX09vM2dhWl83WVEtTy1ONVVzTHdlNjhCaHFFWWN1aFFMUDdmSUFUeXpOS09hc29qTk4yWDRweHhXLUtZbzFRM2hMc3o1VzR0dXBYLU1JQ1ZyQ211SlE3ZTJpZURLbDdyYjQydmlQaFd0Sm16UEloRG9NZTNlck1JNGtnNjRuR2FiRHU5dDBXWjZidw?oc=5) |
 | Iowa Sen. Joni Ernst set to retire - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBDRWdQelpZQ0FqaTd2aXFXOXJPTnFfa0t5cUd4YlpPaVBxSm8xZHZIY09zcWNZdDJRMGRRQXVELUdPQ1VOYzlOa1hvcWM2TDV4QVppQVRVRHlJUUh5X2tvdnUxbno5elFVa2x4M3FMSWx4d29SclE?oc=5) |
 | Trump administration faces rare bipartisan pushback for firing CDC director - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQdC1yMTFkZDNicnZPSkhicUZGN0pQSGFfeE9KTG1WcW00djQzN0JZSDhyU0poNEJIZEdINmluQUV4VFVPeFVHRnJlVDZrS0FOLWM5N0RpV3lNSlp5VFk1T3NVSXI0bFZtYTcyYUNuY2x2b1ZPR0U0dU1KLThNajUyTWVoekktWTJtNXRPN09nOUU?oc=5) |
+| Social Security whistleblower submits 'involuntary resignation,' citing 'intolerable' work conditions - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQclJsTFBKT21FSEt0LXE2Y094REZBcDdwT2taLUo0Y1NqNFVRcnNMZUNpX0lNOU53aU5ma3J5M2ltbWctNU9aeXp5S09TLTdLUUNPQnA3aXR0U2dEWXVDclZidXE0R0ROd2JYQTJrQU1vSzl4VC16YVBid3haRHVqRk04RmZ0RGhJaGlLYmlhcmdGbFBsMWlKUHNfMDRXalltYU9tQ0YwRHVDaWFIVGV4Uzl2WnBwWENhODBV0gFWQVVfeXFMTjVjeG45bmhSbnlHbHJqR0dadnlmenJDWlpjeWJIM0VQRmdrYjdpcmVUbGVtMHRvRzA1MFhiZmo2MkdscnFTS09pSW5oOFJzWlI2YkJ1M0E?oc=5) |
 | Alabama town's first Black mayor reelected 4 years after he says White residents locked him out of office - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNaktGRjNPRHJLZF9TazdmYW5SNnp0a1h6ZWpiMDdPS2ZTeEFPYmdoSkN4aG1FQmdrMEI0a2JlbTVVcTVIOGpjSTlSLVhPLVotYm50QUhjZjQzeXFCUVZkZW9Kb0N2dURsN3N5YTByUHA4dGJNaVplay1WYkJnWjJldF9lTFl2NmFxWm800gGQAUFVX3lxTFBaSjN3RENQSnBQWGlmYzFlUTRvYnd6ZzZvcVRTZHZWaERNT1VLTGRyY19WaENJZS1SV29NS2s3R0ltUVhNazQ5QWhDNDdqVFo0Y1Q1ZW5QRVhaY0VLVTVJQWJCR2pTMXE2NWRPUm9ub29jbXBGakJkT3BjMHBCUk9lNHVKLWJZZFBhbGFjNEgzRA?oc=5) |
-| Gov. Greg Abbott signs new Texas congressional map designed to give GOP five more seats - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPc05NY3BYTGdBdkNMZXRKWVktZXFTVXpRS3loRlJVbXpXeTAxZDU5V29sM0U2LWtqcEppZ1AxWkI1THpUYko0bFdmYWpIem9TU3dmNjVHdG9DdzlaYVZzWC13TDB1enFsaTFTVVhtNGpkVUo2Qkl1R09qWnpleEhxMkUwcl84akcyZ0dGQk9lbWFFSUNmNWFDd2hNODA?oc=5) |
 | Conservatives Use Minneapolis Shooting in Anti-Transgender Campaigns - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNNTc5dThXRDR0VUIzMXVhWFljZVVfVy1hYVQ0VF9lX1ZjVGpjOHZMMVkzZEM2bW8wb0RNc29nZG1KdElVTmtieW9oN3M5SkRJYjhEX1VjZXNsOUJLR19oTGlCZ0hObW5EN1pyQ1NORkRDY2h6c3VvUEZFTGRKbTRyTEFrcmpiTmExOF9oV3FsVFRwNktjaExsN2ZMLTZFQUhhZExWQ050a3JsUHhyNUM2SVVXZG5WOWZQ?oc=5) |
 
 ---
