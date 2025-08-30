@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 04:01:12（北京时间）**
+🕒 更新时间：**2025年08月31日 04:12:49（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Prominent Ukrainian politician Andriy Parubiy shot dead in Lviv | [阅读全文](https://www.bbc.com/news/articles/cjw6ep37469o?at_medium=RSS&at_campaign=rss) |
 | What happens next after Trump tariffs ruled illegal? | [阅读全文](https://www.bbc.com/news/articles/cy983g8jr5do?at_medium=RSS&at_campaign=rss) |
 | Breach scores hat-trick in record England World Cup win | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/cqjynzvq0j0o?at_medium=RSS&at_campaign=rss) |
-| AI stethoscope could detect major heart conditions in seconds | [阅读全文](https://www.bbc.com/news/articles/c2l748k0y77o?at_medium=RSS&at_campaign=rss) |
+| Watch: The best looks from the Venice red carpet so far | [阅读全文](https://www.bbc.com/news/videos/c9d0zz3145lo?at_medium=RSS&at_campaign=rss) |
 | Manhunt in Australian bush brings long-dismissed conspiracy theorists to the fore | [阅读全文](https://www.bbc.com/news/articles/ckgyk7ry8rdo?at_medium=RSS&at_campaign=rss) |
 | How coffee chains like Costa lost the matcha generation | [阅读全文](https://www.bbc.com/news/articles/c3dpjvy5em1o?at_medium=RSS&at_campaign=rss) |
 | Harry set for UK visit but will he see his father? | [阅读全文](https://www.bbc.com/news/articles/cwy0dgpyq35o?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | Families of Minneapolis Church Shooting Victims Pay Loving Tributes - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOVGxOSU0xVW0wVWxUX0phTllPV0R0dXNOVnpldjRVVjFtWXZJMkVNN3E2VmhRMFliTFF1Q1ZOaTNLMnZBZ2tteXJSSVZtQTBFMHJrclA4WFU2WTZvSVdEdzdpLU5fWDMyWE5VQVBLbmJEZndnLUgyZEZHMTVSVTlXUGZEMVNOd3M?oc=5) |
 | Palestinian president's visa to the U.S. revoked ahead of key meetings at United Nations - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNOHFTRUJzZUhaNk1CdWhHQWpnVzFUdC1Ma25DLVNtY1ZMc3U4T3ItSlFhMHpTNFBTNXBNWkw5cmlZejl5RXlwbjZ5Y3YtWHBKMnhqTm5fY1RaTkM1Z2FkS01fanM4cE94LTlRZ2lxRG9UWDZPVzBJOXU3MUtvTzl3V2MycThodVZjclJINVdPZFBMeTVCb0HSAZsBQVVfeXFMTVBqbjRWYVB0YVo3blppZTY1UW55WE5PU01PQnNPc1J5NG5QUEdLOTZyY1k4VHF3MFpycVRtWVNibDJ4ajJKTVE3LXYxU0VrSkl4enc3cmk4OEtFMXNMNVBzM0hBM2ZTSkJhNi1vTXNIc3FDZFlUVEQ3QUZndXlXVkw1NzlVRVFZbnBKbXFzRVZLTzN2bjVrVDJza0U?oc=5) |
 | Firefighter arrested by US border agents was on track for legal status, lawyers say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNenV3YkQ5a0xBS1lULUFVTXJkcDE5dzR3SF83Yml3REFnSTdvR3JISjNFYm14N0R4VlJkbklyM2ZEX1J2X2pjSEh3Nkk1S2I5RjBtVUFYSjVBb2xWcXFmbU9hS2pIUml5R2ZNTnhNeTdKcGkxZkRxMTRpbEJBQUF0U2VWaUY3TldBaFNILQ?oc=5) |
-| Federal judge blocks Trump effort to expand fast-track deportations - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQWjI4SUU3TEUxY1NIUVJUczh4ME0ySGtsM0FndWZ2RGI4TkJxMmpQYnI2WXRHN2tlUjJhdkVlN09VU19nVktWM2tibnd3WHEtcWtueERYX1VvZ2dEN3M0VURKQTNnWFhNbzI2LW5GeGc1cGcxbjFZV25WNjZIaHJYSjZtZnA2VUZzbWFV?oc=5) |
+| Federal judge issues order blocking Trump effort to expand speedy deportations of migrants - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNaVhsOHUzSURQU0lkUmVzUUowZ2FyWF84Q2w1Y2RSd0V2cGNvNVlZaWlKX0RLWklFMlVIc3JYUVFUUThEbDFFNkF6VzhFaWRqdHJJLXNuWFJmdXBxYUo5a0gyS0l0RG80Q3lnR3RGOVJmWk1OUmFjRWpiZDliQnR3bUEtemJrT0hPeEs5SzZ6M0VNRGNjWWNSOElXQTVvQ2d5eVRnZHM0dndNZGpG?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
