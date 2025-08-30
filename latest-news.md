@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 00:00:27（北京时间）**
+🕒 更新时间：**2025年08月31日 00:12:47（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Federal appellate court upholds ruling striking down Trump's tariffs - Axios | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE5HMFZILXRDYmhJOE1TTUhwTjVJMWRUelI4WC1UU1ZHSS1VQm5XU0RKVmc1RzdrejZUcXEyN2tlQV9kekZ3V0UwOWtBbHNPelowX29hb01QY0I0VmE1Wjd2d2xvTll3cHVZZG80?oc=5) |
+| An appeals court said Trump couldn’t levy his tariffs. What happens now? - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQOHpkZFljWVFGcWNoVzB3RDV5T3BBUXJwQkhFTnFhVXVpeHpRaHVTOTl2SU9SRy1KT1pUWWR2aDNRd2VaZmU3eThJOXgwN3RycENDOXFnR0M2Y3FxVW5ubEFhR1Z5Wm1WYVlNS19UaVl5dVczRGJYYkJmb2FWUHdOeFhuZnd5MTRITmZCX3NlLU52dw?oc=5) |
 | Houthi rebels say Israeli airstrike killed their prime minister in Yemen's capital - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOZnE5djk0UjRWXzZSLXl3YkU2cGFCeFB5XzN4ZnJqQ2dvc0VlT096RFJpZTVYMk83eDFKdVhyZmV6NkZVbW1EQmxjaXFObklQbTFVQ3czdV9HRk9odkotTGZJemxNTzdoZjFuQ1hsazhQcVB2ajNpaWw3UFR1UVRjU2xieHBoc3NDb3JlMGFOVGVza1hhRTRlN1Nn?oc=5) |
 | The new head of the CDC has no training in medicine and once helped Peter Thiel develop man-made islands floating outside U.S. territory - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOR2ZtMVN5SWpvTjVvb0x3aFF4WDVLSkRGZV9mbnV6ZjUyU2VoS1N2aGxBWUVvN2dLSElVM2hhaXc1aG1vUFg1TE5seXNsbFE4QjQ3ZXlIRmNoRXViWEtSTmFXMVQ3R3B5YTJ4YTNjRlJteGQzUUp1ZVlXYzBKVk90c2h1N3pfczVFUkZSZEdqTUQ1dkxZSmxB?oc=5) |
 | In Secret Diaries, the Church Shooter’s Plans for Mass Murder - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOTUxldnhXSFE0ek1sMVl1REJsbk43ZEQzWmU1aVZ1anVKaGU4cXRkMTRVbGtYRVk3QWxqUHhuQk91TW1Fd1RBUmlwRWUyREhoSTN0MEFrb21jNWxCSUpaUklkQktqeVM1QmdkUVF0NHN4ZGFVSWtDTFhDeXJ6S0ZLMWxZbkFPV2VRZTJB?oc=5) |
