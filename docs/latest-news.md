@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 16:01:13（北京时间）**
+🕒 更新时间：**2025年08月30日 16:13:35（北京时间）**
 
 ---
 
@@ -11,8 +11,8 @@
 | US court rules many of Trump's global tariffs are illegal | [阅读全文](https://www.bbc.com/news/articles/ckgj7jxkq58o?at_medium=RSS&at_campaign=rss) |
 | Three arrests at Epping protest after court rules asylum seekers can stay at hotel | [阅读全文](https://www.bbc.com/news/articles/c24z0105m24o?at_medium=RSS&at_campaign=rss) |
 | Harry set for UK visit but will he see his father? | [阅读全文](https://www.bbc.com/news/articles/cwy0dgpyq35o?at_medium=RSS&at_campaign=rss) |
-| Tories call for investigation into Rayner's tax affairs | [阅读全文](https://www.bbc.com/news/articles/cjw6evl4zy8o?at_medium=RSS&at_campaign=rss) |
 | US blocks Palestinian leader from attending UN meeting in New York | [阅读全文](https://www.bbc.com/news/articles/cjdym32z9v7o?at_medium=RSS&at_campaign=rss) |
+| Tories call for investigation into Rayner's tax affairs | [阅读全文](https://www.bbc.com/news/articles/cjw6evl4zy8o?at_medium=RSS&at_campaign=rss) |
 | Julia Roberts says sexual assault film is meant to provoke debate | [阅读全文](https://www.bbc.com/news/articles/c5yejdmgzg4o?at_medium=RSS&at_campaign=rss) |
 | How coffee chains like Costa lost the matcha generation | [阅读全文](https://www.bbc.com/news/articles/c3dpjvy5em1o?at_medium=RSS&at_campaign=rss) |
 | Manhunt in Australian bush brings long-dismissed conspiracy theorists to the fore | [阅读全文](https://www.bbc.com/news/articles/ckgyk7ry8rdo?at_medium=RSS&at_campaign=rss) |
