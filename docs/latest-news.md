@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 07:25:00（北京时间）**
+🕒 更新时间：**2025年08月31日 07:37:42（北京时间）**
 
 ---
 
@@ -9,9 +9,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Yemen's Houthi rebels say prime minister was killed in Israeli strike | [阅读全文](https://www.bbc.com/news/articles/c620ykrxedwo?at_medium=RSS&at_campaign=rss) |
-| Councils still plan asylum hotel legal action despite Epping ruling | [阅读全文](https://www.bbc.com/news/articles/cj9wkrykx94o?at_medium=RSS&at_campaign=rss) |
-| The trade in US body parts that's completely legal - but ripe for exploitation | [阅读全文](https://www.bbc.com/news/articles/ce83r56xwj7o?at_medium=RSS&at_campaign=rss) |
 | First week 'critical' to avoid children missing school later, parents told | [阅读全文](https://www.bbc.com/news/articles/cg7jk3rr225o?at_medium=RSS&at_campaign=rss) |
+| The trade in US body parts that's completely legal - but ripe for exploitation | [阅读全文](https://www.bbc.com/news/articles/ce83r56xwj7o?at_medium=RSS&at_campaign=rss) |
+| Councils still plan asylum hotel legal action despite Epping ruling | [阅读全文](https://www.bbc.com/news/articles/cj9wkrykx94o?at_medium=RSS&at_campaign=rss) |
 | Prominent Ukrainian politician Andriy Parubiy shot dead in Lviv | [阅读全文](https://www.bbc.com/news/articles/cjw6ep37469o?at_medium=RSS&at_campaign=rss) |
 | Breach scores hat-trick in record England World Cup win | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/cqjynzvq0j0o?at_medium=RSS&at_campaign=rss) |
 | Watch: The best looks from the Venice red carpet so far | [阅读全文](https://www.bbc.com/news/videos/c9d0zz3145lo?at_medium=RSS&at_campaign=rss) |
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| An appeals court said Trump couldn’t levy his tariffs. What happens now? - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQOHpkZFljWVFGcWNoVzB3RDV5T3BBUXJwQkhFTnFhVXVpeHpRaHVTOTl2SU9SRy1KT1pUWWR2aDNRd2VaZmU3eThJOXgwN3RycENDOXFnR0M2Y3FxVW5ubEFhR1Z5Wm1WYVlNS19UaVl5dVczRGJYYkJmb2FWUHdOeFhuZnd5MTRITmZCX3NlLU52dw?oc=5) |
+| Most of Trump's tariffs are not legal, court rules: what to know - Axios | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTFB6eVNBbldSM2ZPLUJieXJWNS1SRW5PbEtoN2pCOExfTnZKQUNvQVNLV1BSWUttLWtnekE2Sm81SnVLSi14dWdLTVZCbU5vMkRqZ3pCQmNFTnhfM1lGQ3FSNXppMnFsUlhURjhF?oc=5) |
 | Chicago mayor says National Guard must unmask if deployed, urges Trump to ‘stand down’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNSHdFb3M5V1k4UHo3N2NKQjJmX1d2R1pYakl5dHZMclRwV0dlbmExYkI3eG5XSHNINTM5VGlVTGpIMGxBVUtiaThfXzRFS1JDVFVBak12c1diZ1RZXzFRZlh0X0JNSHlILTl1dUVQbTB4Ykh2VVIwYlROMXRqSGlTYWtvXzVRb0J1U2x5cA?oc=5) |
 | California Highway Patrol to protect Kamala Harris after Trump pulls Secret Service detail, sources say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQSDNDVmxmWWk5dF85WUdoTkJSelBQdUhQLVFub0hBWXVfQlF6U3dDbzkzS2htdmJSMHlLdGIzUWV3dFJ5WXN0dWJZQlFuUzNMaHR1NkxNb1c5MVB2bmEycmN4c3lZRkZqaXpPRjZHUmM5WWI1UjZrLWlRbnJSaVo0SDZ0MG5FVWs?oc=5) |
 | Robin Westman displayed signs of self-harm at prep school, former teacher said - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNaGxwQ21uR2FVZ0F5a1VCM3dDUVBmTVJ6YXJweDJEaDg3dkNPb21fSm56TnQwaGtTUHh6LUdhd2MxYmpqNVhPSUsxWm91U18xdmlGT256UEx2WUlmVXJVd2szNi10bGI4cHBsLTVWRUR6alhtOTZVbmtHMFhaQlR0SmtmRWtZdXpKWjJaZDVaVTg4emtCSnfSAVZBVV95cUxPYU8wRTk0MW9fNy1RYS1BVXF6QnBETHNyY2ZGaVBtb0QySnY4bHAtTEZHZnJra0p0NkdFTkV4WjRxU01GWWpaNFNLTGtRdTItTkp3eWtsZw?oc=5) |
