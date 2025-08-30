@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 04:12:49（北京时间）**
+🕒 更新时间：**2025年08月31日 04:25:20（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Chicago mayor signs order aimed at resisting Trump’s planned immigration crackdown - CNN | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOeUd0Nkp3X2tYNGJZWndadGZoX192NUZPaExQSTF5blprbjZJX3NvOWpyVHA1cnU3R2s4T1NxRTMxUkZ4LWtHNmRUV1FiRTBIRk5vR09XVzRYbVFZaWEwWlVmd1Fvd2Jjc2p5M2NLc1VOTWVEYUFQWVRpX2FzQlNDenltekRtU29RNngwZnZhWWdXNVN6QVEtRzBxY3Y0enZCWVdIbnczbzNiY3FOWFJnZkZhQ1YxTUhKLUVhbWZ3?oc=5) |
 | The new head of the CDC has no training in medicine and once helped Peter Thiel develop man-made islands floating outside U.S. territory - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOR2ZtMVN5SWpvTjVvb0x3aFF4WDVLSkRGZV9mbnV6ZjUyU2VoS1N2aGxBWUVvN2dLSElVM2hhaXc1aG1vUFg1TE5seXNsbFE4QjQ3ZXlIRmNoRXViWEtSTmFXMVQ3R3B5YTJ4YTNjRlJteGQzUUp1ZVlXYzBKVk90c2h1N3pfczVFUkZSZEdqTUQ1dkxZSmxB?oc=5) |
 | Families of Minneapolis Church Shooting Victims Pay Loving Tributes - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOVGxOSU0xVW0wVWxUX0phTllPV0R0dXNOVnpldjRVVjFtWXZJMkVNN3E2VmhRMFliTFF1Q1ZOaTNLMnZBZ2tteXJSSVZtQTBFMHJrclA4WFU2WTZvSVdEdzdpLU5fWDMyWE5VQVBLbmJEZndnLUgyZEZHMTVSVTlXUGZEMVNOd3M?oc=5) |
-| Palestinian president's visa to the U.S. revoked ahead of key meetings at United Nations - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNOHFTRUJzZUhaNk1CdWhHQWpnVzFUdC1Ma25DLVNtY1ZMc3U4T3ItSlFhMHpTNFBTNXBNWkw5cmlZejl5RXlwbjZ5Y3YtWHBKMnhqTm5fY1RaTkM1Z2FkS01fanM4cE94LTlRZ2lxRG9UWDZPVzBJOXU3MUtvTzl3V2MycThodVZjclJINVdPZFBMeTVCb0HSAZsBQVVfeXFMTVBqbjRWYVB0YVo3blppZTY1UW55WE5PU01PQnNPc1J5NG5QUEdLOTZyY1k4VHF3MFpycVRtWVNibDJ4ajJKTVE3LXYxU0VrSkl4enc3cmk4OEtFMXNMNVBzM0hBM2ZTSkJhNi1vTXNIc3FDZFlUVEQ3QUZndXlXVkw1NzlVRVFZbnBKbXFzRVZLTzN2bjVrVDJza0U?oc=5) |
-| Firefighter arrested by US border agents was on track for legal status, lawyers say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNenV3YkQ5a0xBS1lULUFVTXJkcDE5dzR3SF83Yml3REFnSTdvR3JISjNFYm14N0R4VlJkbklyM2ZEX1J2X2pjSEh3Nkk1S2I5RjBtVUFYSjVBb2xWcXFmbU9hS2pIUml5R2ZNTnhNeTdKcGkxZkRxMTRpbEJBQUF0U2VWaUY3TldBaFNILQ?oc=5) |
-| Federal judge issues order blocking Trump effort to expand speedy deportations of migrants - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNaVhsOHUzSURQU0lkUmVzUUowZ2FyWF84Q2w1Y2RSd0V2cGNvNVlZaWlKX0RLWklFMlVIc3JYUVFUUThEbDFFNkF6VzhFaWRqdHJJLXNuWFJmdXBxYUo5a0gyS0l0RG80Q3lnR3RGOVJmWk1OUmFjRWpiZDliQnR3bUEtemJrT0hPeEs5SzZ6M0VNRGNjWWNSOElXQTVvQ2d5eVRnZHM0dndNZGpG?oc=5) |
+| Palestine: Statement by the High Representative on behalf of the European Union - consilium.europa.eu | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxPOEV1SVZCZ05UYmViZ3AtaUdIWGt3VmhXYWNFVDQzVHZ4NTVSaVN4Nkc4a0JFNWE0QWZ3LW8tZkR6dWFlNmZHRUlGUlRaeFphSldIbElHWnBsUmlpOXdxb01iNk5DWFJIVk5qSXpRN0RjZTB0QlJ5SUVFT0I5OTd6ZWtqeDB4LU1zbkVCQkxaU3JuQ25JTnpKdXJraFJWNEpvSTZqc2E1QU9HQmlvZlhDdG1BSUlSQURIU1RnTXk5STdORFNBUXNiWnBlN202ZUxmQ1JaNGVWQVVQOE55RWRB?oc=5) |
+| Border Patrol arrested firefighters as they were battling a wildfire - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNdjNjRkhicGlVWWZJeGRESlJjT2ptZW1qbF9zbUpaTUU1UXZXMl9ZRlRvT1Q4NTdwUTJXZG1KdzdHSF90bGZBM0JSc0hwMFZxTU5zZFRHQmlsWXIyemhFY0Z5MVlNZ1ZlMG8tNWllN3JySHNNWkR3QkdPYjlwVm11NUhmSXc1UkNYWFNJeVlnX0g3OTQ1NVNScVVwWWNuLWxGSTFoeXp3?oc=5) |
+| Federal judge blocks Trump effort to expand fast-track deportations - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQWjI4SUU3TEUxY1NIUVJUczh4ME0ySGtsM0FndWZ2RGI4TkJxMmpQYnI2WXRHN2tlUjJhdkVlN09VU19nVktWM2tibnd3WHEtcWtueERYX1VvZ2dEN3M0VURKQTNnWFhNbzI2LW5GeGc1cGcxbjFZV25WNjZIaHJYSjZtZnA2VUZzbWFV?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
