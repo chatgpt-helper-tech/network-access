@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 07:37:42（北京时间）**
+🕒 更新时间：**2025年08月31日 07:49:34（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Houthi rebels say Israeli airstrike killed their prime minister in Yemen's capital - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOZnE5djk0UjRWXzZSLXl3YkU2cGFCeFB5XzN4ZnJqQ2dvc0VlT096RFJpZTVYMk83eDFKdVhyZmV6NkZVbW1EQmxjaXFObklQbTFVQ3czdV9HRk9odkotTGZJemxNTzdoZjFuQ1hsazhQcVB2ajNpaWw3UFR1UVRjU2xieHBoc3NDb3JlMGFOVGVza1hhRTRlN1Nn?oc=5) |
 | ‘Is Trump Dead?’ Rumors Debunked As Trump Seen Leaving For Golf - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQc1VMNmRFVGItQ01seWRvMzhNVUw5SWhQcU15UVhDZU5qZUd5MlZVM1J3TUFWWGhUWjZqMmRGQ0ZlSjA3VTFPay1KZk1IYThORjNGNFBnOF9zLVpPbjh0bVgyazRKenFjNG5sZ29iNW1kU2oxd1M5TGJwYVdXc0RWbHVKNEpWNHRtZnZDc2NKUHRMbVVYR1ZPZjdpYUdtS2VQNVhrRTczSXFremt0cEF1NkhR?oc=5) |
 | A Morbid Memory Lingers 20 Years After Hurricane Katrina - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE43YkNSbm1ObnRmelk2QlczSzV5NnRsdUJicmRmbmlvSmxyNTRvQ2dBM3BzeVFrb0RJUkNJbFRQa01jM193M3JEbWxSN1dKX1UwU0NnUUtzQ1V5X25IV20zZHBETDJRdExWX0o3d3VMOEY2cVVMRmc?oc=5) |
-| Border Patrol arrested firefighters as they were battling a wildfire - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNdjNjRkhicGlVWWZJeGRESlJjT2ptZW1qbF9zbUpaTUU1UXZXMl9ZRlRvT1Q4NTdwUTJXZG1KdzdHSF90bGZBM0JSc0hwMFZxTU5zZFRHQmlsWXIyemhFY0Z5MVlNZ1ZlMG8tNWllN3JySHNNWkR3QkdPYjlwVm11NUhmSXc1UkNYWFNJeVlnX0g3OTQ1NVNScVVwWWNuLWxGSTFoeXp3?oc=5) |
 | Federal judge issues order blocking Trump effort to expand speedy deportations of migrants - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNaVhsOHUzSURQU0lkUmVzUUowZ2FyWF84Q2w1Y2RSd0V2cGNvNVlZaWlKX0RLWklFMlVIc3JYUVFUUThEbDFFNkF6VzhFaWRqdHJJLXNuWFJmdXBxYUo5a0gyS0l0RG80Q3lnR3RGOVJmWk1OUmFjRWpiZDliQnR3bUEtemJrT0hPeEs5SzZ6M0VNRGNjWWNSOElXQTVvQ2d5eVRnZHM0dndNZGpG?oc=5) |
+| Border Patrol arrested firefighters as they were battling a wildfire - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNdjNjRkhicGlVWWZJeGRESlJjT2ptZW1qbF9zbUpaTUU1UXZXMl9ZRlRvT1Q4NTdwUTJXZG1KdzdHSF90bGZBM0JSc0hwMFZxTU5zZFRHQmlsWXIyemhFY0Z5MVlNZ1ZlMG8tNWllN3JySHNNWkR3QkdPYjlwVm11NUhmSXc1UkNYWFNJeVlnX0g3OTQ1NVNScVVwWWNuLWxGSTFoeXp3?oc=5) |
 | Kari Lake lays off more than 500 staff at Voice of America parent agency - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdUN5dVF3VHNWaEFXYTQ0eVhnX2JKdkZ6cy16NzRHeDFMMXJ0Tm8wbE9SRzVzVWQ1bXhjS1k2RUpFUmdOVkVVdHpkNlFsS2x6R1owU1Y3Z3dueEt1Y29KTktZVFBCVXdyNmtpWm54S0l2aktSTnZhRlBQeEZfMmRTZU1IcGdNaWhmdnByY0c1QQ?oc=5) |
 
 ---
