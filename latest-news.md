@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 01:13:20（北京时间）**
+🕒 更新时间：**2025年08月31日 01:24:17（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Russia launches massive attack on Ukraine, as Kyiv hits oil refineries | [阅读全文](https://www.bbc.com/news/articles/c4g614x9kqko?at_medium=RSS&at_campaign=rss) |
 | Prominent Ukrainian politician Andriy Parubiy shot dead in Lviv | [阅读全文](https://www.bbc.com/news/articles/cjw6ep37469o?at_medium=RSS&at_campaign=rss) |
 | What happens next after Trump tariffs ruled illegal? | [阅读全文](https://www.bbc.com/news/articles/cy983g8jr5do?at_medium=RSS&at_campaign=rss) |
-| Gordon Ramsay says he had treatment to remove skin cancer | [阅读全文](https://www.bbc.com/news/articles/ce93lp8d9xro?at_medium=RSS&at_campaign=rss) |
+| AI stethoscope could detect major heart conditions in seconds | [阅读全文](https://www.bbc.com/news/articles/c2l748k0y77o?at_medium=RSS&at_campaign=rss) |
 | Manhunt in Australian bush brings long-dismissed conspiracy theorists to the fore | [阅读全文](https://www.bbc.com/news/articles/ckgyk7ry8rdo?at_medium=RSS&at_campaign=rss) |
 | How coffee chains like Costa lost the matcha generation | [阅读全文](https://www.bbc.com/news/articles/c3dpjvy5em1o?at_medium=RSS&at_campaign=rss) |
 | Harry set for UK visit but will he see his father? | [阅读全文](https://www.bbc.com/news/articles/cwy0dgpyq35o?at_medium=RSS&at_campaign=rss) |
@@ -30,9 +30,9 @@
 | Shoppers met with canceled orders, delays as de minimis exemption ends - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNRkIyakN5elVld25nMDNPcm5Pd1QweGRzTTYwS0xQc3dGVDk3WHM4czJfN2E4clVKSnlpYXRMc0tkYlhLNnh3LU9NYTc2Rzd1T21UVlYwTEZ2enUxdFBfalNuel9nckVRQUhQV1FVbGpfUHRsWVdPSVBrd0hkUlRJdGk1WWdkTHpkb2E1NEozc0wwdUE?oc=5) |
 | CHP to protect ex-VP Kamala Harris after Trump pulls Secret Service detail, sources say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQSDNDVmxmWWk5dF85WUdoTkJSelBQdUhQLVFub0hBWXVfQlF6U3dDbzkzS2htdmJSMHlLdGIzUWV3dFJ5WXN0dWJZQlFuUzNMaHR1NkxNb1c5MVB2bmEycmN4c3lZRkZqaXpPRjZHUmM5WWI1UjZrLWlRbnJSaVo0SDZ0MG5FVWs?oc=5) |
 | In New Orleans 20 years after Hurricane Katrina, a mother, a surgeon and a police chief look back and find hope - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQV3Z0azU3M3V5b2MxYVQtQmhlUkhwTE4zc2FET0YwSWc2VTkyZVd6NlNHZlcwLXZkVTdDSlRuZFFFLXFaeUVxMWE0Z2hvTFJPb1BuVFc2c3Qxb0kyTUpYME1GVWZXZ2J1aHQtVHJEUmpZeXBZblRWOHFNVGpLeUFZUk0xR2N5OU9YS2lCaUtzTjVQd9IBlwFBVV95cUxPOHJWNk9LMDMteUZvUTJ6Q0VkTFhMMnExNFlZQUVtQWlGWWVERFlfNGJ2RkptUUVQSWVkSXc1UlQxcWV6VkFIQkVyMDl2WWU5M3d5UU5jMzVvTDBkS0ZsLW9rQ0t2bDB6NmdoM2RvMFNEVl9CN0xlUkJHWXo5NV8ydzVDOHNtRnlOX2M1N3owVUpOZkt6X0dr?oc=5) |
+| Generations celebrated weddings, baptisms and first communions at this Minneapolis church before it became a site of tragedy - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNMHJlOXdwOG9fWFA2SmVWS2F1NlRWNTFIT3AyNDM0cVZzN3pmd0paOUxETVdwU25zMDlCQVlwT29ZTDIyazRfY3NsMVo2VXVpbUMtRWZCNGZQamhwdVZqUjBwNlJ5WGQ3VUZLWEdReldmQ19hYzBoa20zMW4xc0pWb1ozejVjaWJHTFZ0Uw?oc=5) |
 | US bars Palestinian leader Abbas from UN as allies back statehood - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNNGVRckNwU1l0N0U4WHI5Z3lEaEFrZUFWQ3hhaXdweDlWTEtqMXItNllmcWtGRmM3QkdJeEtXejRZWmd2Nnoxek9FWlVGbHpzLWZQdjE2RThHYU1obmx6Xzd3bnYza09qZVBPLUdJUmM5Q2FRNU80RzczZU9CUkpqYWJ3b2xQUDAtNTBNRmpRZzByNmVXMWdDQUd1X0I0VEg0T2Fib000ZVpGY184S3Q5Sg?oc=5) |
 | Firefighter arrested by US border agents was on track for legal status, lawyers say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNenV3YkQ5a0xBS1lULUFVTXJkcDE5dzR3SF83Yml3REFnSTdvR3JISjNFYm14N0R4VlJkbklyM2ZEX1J2X2pjSEh3Nkk1S2I5RjBtVUFYSjVBb2xWcXFmbU9hS2pIUml5R2ZNTnhNeTdKcGkxZkRxMTRpbEJBQUF0U2VWaUY3TldBaFNILQ?oc=5) |
-| Federal judge blocks Trump effort to expand fast-track deportations - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQWjI4SUU3TEUxY1NIUVJUczh4ME0ySGtsM0FndWZ2RGI4TkJxMmpQYnI2WXRHN2tlUjJhdkVlN09VU19nVktWM2tibnd3WHEtcWtueERYX1VvZ2dEN3M0VURKQTNnWFhNbzI2LW5GeGc1cGcxbjFZV25WNjZIaHJYSjZtZnA2VUZzbWFV?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
