@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 12:37:03（北京时间）**
+🕒 更新时间：**2025年08月30日 12:48:16（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Judge says Trump effort to expand speedy deportations of migrants violates due process - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQdUNpeWt2Zm56WWJUaUJRYldVWjI5cW9fT3YxbTFJRzRVcklQUE55cGY0WXRJQnFGdFlhZmdiNWx4RW1DdHJuM2xNNnQta1ByRnZFVG1tWHNNX0RlaVpFcWlWSlJPOHZuTnpSNWNyR0VtZG41UHR0WTY2QTdNcDNfTUR5UjhZX3hI?oc=5) |
 | Social Security Admin.'s chief data officer resigns after filing whistleblower complaint - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQRjZaV1c5MGExOW8tXzU5SFRia3JMTWxSTV9TV243cE9pTDFsMWw3d1FoaXZsYmtoUEZhMC1udG1hWnl0c2FwYUtYQnFRcGQyU25oOXFkUUd5NGk0V2Y4eEZIVkRyT1lRM2FJdEpLS3huc2R4TVljdkhpeUJqbFBXVGhmSzBqdjY1Ynh1S1REZEktRmx2cGR0MzRpVC1ZV2lTS2dSZHB3ZWJnQlp6U1JDem1lNUJLd9IBuwFBVV95cUxQbzBwaUdFNFdKZWZhb0VTZDJtMW83V3A5LUlLWHdZRldzNnlQb2RSaFBuT0k4aFJ2RVFQclN1SnNHZ2szMk9WZFdOSUlnMHFNYjg4VTdHZ3l1T1ROQmt2ZG81bmJCM3ZLSDdLYWJ4NWJBVWtEYnFrSHpPd1JQZEYxMWZza2lOMkNEWVdXQ1BpRmx5TV95NnUxMnV3QkQyR3J4SlJxNFlOd184Z1Nxd3oyN1NPbG13WXpsNHNz?oc=5) |
 | Trump blocks $4.9B in foreign aid Congress OK'd, using maneuver last seen nearly 50 years ago - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPQ253MjgwRklsNDZiRF9lektMUXpWRlFvVmVxMUJLcGRreTdMRDdxVHFFaFNnRllKaUVoR2FLRFRXdC1wSWNpWXIzbGNDTmNINjhzdzEwNUs4NFZhWndDWWN3bklzRi1tbERVSlZXX3h4XzM1MUZsWF81X1ZiVjBUX1VuVTU3dWdtUHNpaWVtX3BsVXpBbmpLTjduWQ?oc=5) |
-| With newly approved maps in Texas, GOP puts its gains with Latinos to the test - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOYzFSSjJOQ1NpaUZVTjJ1TVcwQzJyaXFNY1QxeVlSYkpoVGF3T0NYeTN6SDJFbU9XVWpSazZDRnQ5MEpIRjlHaldUNTJ3N0dCMklGeTJJNVV6a2N3LTJncWZHNWZXMWptV0JidnZ6VkRTek1wOFQ1YXVEcjQ0c2V1RGFEUDhzYjluUGNYOXF6bWl2OHZ6ekIya1hvcG45Z2lTcEduRnlFT280UjlSWnlWSDBoTGl5eG1ZQTJOeWt6ZXIwdw?oc=5) |
 | Ernst won’t seek reelection, giving Democrats opening in battle for Senate - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxORWZQZXVVM1V6Tzh6dUE5TkRQWkdJdjkta2l0XzIxeDZ2enBmS3F2YjIySGlHT3hHZHNfXzdqUlNOUWVXTHpYYkpGWFVJUEhsSFFRSzg2SmgzUzRLbVpxTU5Tc080RU1PLW9qTkVydVBRRlFwQTNGalFLVVhTMmppWDhR?oc=5) |
+| Xi Jinping to host Vladimir Putin and Narendra Modi as China presents rival front to US - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE16TG1XNExOMXZMVThMYlBxbWZPVmlQQVpYX2JtTTZSQ2ZwVGN5bjhfVFlmTlY4M2Y4YnAtRWhHRW1NakprME1VWS1wNmVjMjdZdXRGZnV4QS1RbmdGUzJFUXQ1cjM1NFpTTi14WGliTHA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
