@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 12:24:02（北京时间）**
+🕒 更新时间：**2025年08月30日 12:37:02（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Appeals court strikes down Trump’s tariffs as illegal but leaves them in place - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeEtxOGJIS0ZmY0JQNW4tT2E5bTBCTnZsS09tTVNzTjRBeHdrYzdvNzlFRndNQUxFd0l4d2lVLUU0UDU3SGw5WWFvN3JtYXlqLUhvNHhkMXE4VDB0MlFOVVRlek9ZN3p5emZNUlF2Q0o2MFdqSjNDWkhqdV9MUGpwd2pTNFNHRmg3NWVYck5rQQ?oc=5) |
+| Trump’s global tariffs are unlawful, appeals court says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQbkRNVGc1UFREclNVQlUxMTV0Q0ZuVlczYzlXMVRMYlJJaE9nMFRHSHotYnZYaEhqVXZ5NkpNQklOWmR6WXk2R2xhbDZCTGh3NXNVUmdKY3RPdXM4eXV3c2FOcmFJWkFtSTk0ZVJQNEdQNWhaRE1hVHdsM3BISUtsN0E0WXo4Q29Dem5KZ2J6c0hGb2_SAZgBQVVfeXFMTUZTczBVOW9RbFVrY1dBZlJtWEZJLWpraTNHVmNucXVYbUZQV0tDdWNwZ2JWVllOWVl1b2UzS0g5bTBTdXhrc044amM4N21hQVE1SFZhc052em9EY283cEJTSU0tOU85UHprUk1mS0g0ZExWWkotMGtVWXJvcXJpdWpVQVR2MjB4Q3JpV3p1MG1GLWxhVGJLRDk?oc=5) |
 | CHP to protect ex-VP Kamala Harris after Trump pulls Secret Service detail, sources say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQSDNDVmxmWWk5dF85WUdoTkJSelBQdUhQLVFub0hBWXVfQlF6U3dDbzkzS2htdmJSMHlLdGIzUWV3dFJ5WXN0dWJZQlFuUzNMaHR1NkxNb1c5MVB2bmEycmN4c3lZRkZqaXpPRjZHUmM5WWI1UjZrLWlRbnJSaVo0SDZ0MG5FVWs?oc=5) |
 | 'There is no message': The search for ideological motives in the Minneapolis shooting - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9wS1pLeDhTZDlEZm9YTlZocEhnM0R5cGt1Z3BOV3dCNWIyOFNQdVBSTFdfcEZUYjNzY3hfd001a1dTRFZ1TUpIZGdSVVk4MWNWNUs3M1BnYWVmSFQ0RzZUZFlLMGNUOFNGX2NJaWszRkxXNWNXQjViT21BTDE?oc=5) |
 | Missouri's Republican governor calls special session on redistricting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPSE9rT19NbFJXN0JnQzhqUThSQTJtUzhxakllakFRN3E5bFhxZEs0TUN4bGt0MzFIUDNVSTlxUktJQjRxR3llSUMxcVZ0T1ZXUUN4OTRjUTFmdHFjbk91MGlHdF9SYVhRejZJelNUS0V0X3RNYkVHMHhwaXlhUWFaTUYxcjhGQk9wQXpqS1lFUElIZzVySmIya0dYcF95Z9IBowFBVV95cUxPNl95SnduRlBnek14eFZtb05fNm05OXNFS2ctTlh3aFotZS1PaHVWVklHZDVkRzVQaEhTWWljMzgzSFRoeHNlNGhmR0xweko0clFGeGdFUnNPc2ZSSnJCZ05xVUhqRWZoeWNqREZTTnNOSFdIelVfRHliLWZMcVYwUzlGMm1uazgwNVVTcW1WaVFHR29IM0hqblFxTUJ2NTVxZ3B3?oc=5) |
