@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 10:37:57（北京时间）**
+🕒 更新时间：**2025年08月31日 10:48:25（北京时间）**
 
 ---
 
@@ -10,8 +10,8 @@
 |--------|-------------|
 | First week 'critical' to avoid children missing school later, parents told | [阅读全文](https://www.bbc.com/news/articles/cg7jk3rr225o?at_medium=RSS&at_campaign=rss) |
 | The trade in US body parts that's completely legal - but ripe for exploitation | [阅读全文](https://www.bbc.com/news/articles/ce83r56xwj7o?at_medium=RSS&at_campaign=rss) |
-| Yemen's Houthi rebels say prime minister was killed in Israeli strike | [阅读全文](https://www.bbc.com/news/articles/c620ykrxedwo?at_medium=RSS&at_campaign=rss) |
 | Tories pledge to get all oil and gas out of North Sea | [阅读全文](https://www.bbc.com/news/articles/cp890n51684o?at_medium=RSS&at_campaign=rss) |
+| Yemen's Houthi rebels say prime minister was killed in Israeli strike | [阅读全文](https://www.bbc.com/news/articles/c620ykrxedwo?at_medium=RSS&at_campaign=rss) |
 | Prominent Ukrainian politician Andriy Parubiy shot dead in Lviv | [阅读全文](https://www.bbc.com/news/articles/cjw6ep37469o?at_medium=RSS&at_campaign=rss) |
 | Watch: The best looks from the Venice red carpet so far | [阅读全文](https://www.bbc.com/news/videos/c9d0zz3145lo?at_medium=RSS&at_campaign=rss) |
 | ‘Public enemy number one’: The battle against an eight-toothed beetle threatening UK forests | [阅读全文](https://www.bbc.com/news/articles/clyr8yml9rro?at_medium=RSS&at_campaign=rss) |
@@ -31,8 +31,8 @@
 | Xi Uses Summit, Parade and History to Flaunt China’s Global Pull - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOQ3FYd1lGckhSNWdIdUR5ekdlVTJPU1hjanNxM3ZYelc5U1MxZ0xNSFhNTENoY2xQMWxOZldCeVZRN0tYN0VkZkhsRmE4WURYTUFwNUJrQlRPWnFVX0JyMzI2eE5qamJfRE9HTktBdDktWUxlMHdjazlJX1BZa3BQd3lyZw?oc=5) |
 | 20 Years After Katrina, My Memories Still Wander the Streets of New Orleans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE43YkNSbm1ObnRmelk2QlczSzV5NnRsdUJicmRmbmlvSmxyNTRvQ2dBM3BzeVFrb0RJUkNJbFRQa01jM193M3JEbWxSN1dKX1UwU0NnUUtzQ1V5X25IV20zZHBETDJRdExWX0o3d3VMOEY2cVVMRmc?oc=5) |
 | Federal judge blocks Trump effort to expand fast-track deportations - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQWjI4SUU3TEUxY1NIUVJUczh4ME0ySGtsM0FndWZ2RGI4TkJxMmpQYnI2WXRHN2tlUjJhdkVlN09VU19nVktWM2tibnd3WHEtcWtueERYX1VvZ2dEN3M0VURKQTNnWFhNbzI2LW5GeGc1cGcxbjFZV25WNjZIaHJYSjZtZnA2VUZzbWFV?oc=5) |
-| More than 500 workers at Voice of America and other broadcasters to be laid off - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE02amt2aEQ5dG52N1BHLUw3VmlMdTdKRnd2Wk14bGZ3UXA5STFONGk3aDBjTjVXTUY5Slh2VVgwOUp0U2J4eDg0MDVfRzRqbUp0bEZoa2RqTUk1UTZzSnFMc2xOZkNQN19wRmJfY2k2WG8tT3ZxXy1YckIwd1JKdw?oc=5) |
 | Mark Knoller, longtime CBS News correspondent, dies at 73 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPTDBNOUdrUDJYRzQ0Z3Z3dGloX0J4VGxUQ1VlZDhCVl9vY091THNXampuSjZCcHlUQ0stbmtPaFJfaEZrU0NvaW04d3dueWVwZXc0eXI5STIwMHlTS1JMRmFGZXdYUzZ0Y2xaY2dIdlNzT0Q0clBOWWFyODFJR0JCMkt5QmZnSDhSQkJTRXF4c9IBlAFBVV95cUxOcXotUklUUXAtRUlwbzBtR1ZBUjM2ZG1NaDdrQkVmckZJOUlBWU5kTXBEQ1VucWItaUNXc3h2eTRfODNWeXhiRm9lTXBwZGtFbFF0M0hiRE15LXkwTmFiY0xDUnNtbkJCQ0dSWXRvVXY4cmlDV1U0TXowNWR1bFVCbEYtTFRWRXg4dUd0UUJxY1FrX1Rp?oc=5) |
+| 50 congressional members demand answers after Bear Gulch fire immigration arrests - The Seattle Times | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQdTEyeXJlRllHZlExUkd6dnM2SUptSTBiRG1VcVZfVW9KOFdOdWZGQ0hpejlYUVFDdmMzMHhYdkJtMFNKRHcySndnMGhXTXBUc3NMN29QZkl6RThaMF9zenNXY1FJTTF3WXRnclh6NjlLdGx2c3dkZ3VIYVp3WUdReE5WM3E3elpIMVNaY1VGTnQ5N1NuMmRZbnRScVJuRWFycHRvdndvbW5ieDF0dDBHZk50cE16dEpBa3o1ZHYweE9Gbk9x?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
