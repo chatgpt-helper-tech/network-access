@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 05:01:33（北京时间）**
+🕒 更新时间：**2025年09月01日 05:13:20（北京时间）**
 
 ---
 
@@ -25,9 +25,9 @@
 |--------|-------------|
 | Rudy Giuliani hospitalized after his "vehicle was struck from behind at high speed" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9DejR4V19idlA3aUVQU1ZSSkFqVmJGWlRtQnNXSFpDNzgyUGJ4bGhlQUVza0JTZ1NtUzJ3UzAwZzlsbGp1RnVoa1NXU2RDNmhzVWtaTHVOeVNmcXQ3VTVwTEFuR04tT0tlSzkwYWM5ONIBdEFVX3lxTFBmWm5mMWNSRktSaTJTbWx0bGhLbkJxZ2l5TVk3WFJlczhvaTdNZEJIYWhMXzZ3NDVBdGk3b3lpYVRNOEVkTzJaWGgxbTJGT1Y2Y2VnLUFWM3RJNEZMUndYR2toQ0lsQ3ZJLVM2cjEtQ2dDcFJq?oc=5) |
 | Judge Halts U.S. Effort to Deport Guatemalan Children as Planes Sit on Tarmac - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPc3YweUpLUGY3Q3AxN2N5emJTUE5lRlRuaEN5RkxKdnlGMGo3ZGJ1eFBFMGpXRlpEZGo1QnlJMWFrbnpveGhwNkZZSWJMVGhmcm81SnVDN3l3NEVXLUtCUGxhMnQ1bHA4RHp1UE9kbU1yOFJZOG9mVHUwTHRRLTJ0VGFTOVdNekxnMld0dDBNMWpmNnMtemRTX0xLRQ?oc=5) |
-| Trump says he plans unconstitutional executive order to mandate ID for voters - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQSnZJbk5xRjkySFlKX2YzTjhuTlh1MmZZVkFYSzRUUVpnOFJtMEtwNkJONVU5ZHZqT3E0MDZ1OUdyMXc1SkxIb3Ayc2Nxd1VfLWFSX1BGaF9VRDBWU0daMXR2QUdFSW5VZm15MUd4ZWFKaUtfNXNzQ2d5Qk45ZHdtQW9GS1VaLWs?oc=5) |
 | President Trump’s takeover of Washington, D.C., offers insights on what could be in store for Chicago - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5HSUkyVW5KR0lZaTZOLS1XNXZnRmdWMXZ2clJHWE9zVE1NQ0x5TGc4WnF4SUtpVkZ3M3lFN2JQQ2kyMkNORWl2Ym9RWXJ0eXZ5N3RiN0JVb0lSaERpVmFxRFZrSjczRHVjUjRBWndEc2cydGxvcXZZ?oc=5) |
 | Blocking tariffs would be "end of the United States," top Trump adviser says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE56VXlPeFpocjN5d1Z1VThKUF9oY3RQOVRNQWQ5RlgxWWdaOTBMbWY2Yjd1WTFvTG5CX2ZXUHc3NzlvYnIxbzBjdWZ1aWxOMXlZNzJGV2VnbnhFMjM4Z1Z4ZXFyTmVMZWViSEE4cQ?oc=5) |
+| Trump to order voter ID for every vote, ‘no exceptions’ - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPR2pvZWJPYzlYNVJnMzFhbXB5aGJNVUpwalNjeVYwNnBmVFFxeXdIbGdUdU1jcVdtZFp6Rzl2c2hIR19PTFhDaHZrS2xtWHhqNjJEbFVpRzRmSm1GVF9qcGh6di1icjhCTWJfdEE3ZmltVUNjOG81MC1HRHJfNWV0aDIxVFY0bkNWcFdYMUZ5OFF6V2hlVjNzRdIBngFBVV95cUxPVEcyTEJObGNoYUx5aTJoWjNlRDJ4WjltTmotNkxPb1h2RTFQb3NObDdfQ2gzdU1OTnVzVjd3LS1uSEFJLUM0bWpqRFpySVBBSFhVa1ZXTl9GM2NveU8zS19qbk9sNTNJd2hOcnVsRHpZMm5JMEFKMUxqTGFRdm94eTlyY0Zac3RsU0FLVnZsT3NrTEZIdkc3ZnBRU2V5QQ?oc=5) |
 | Resigned health official: 'I only see harm coming' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOaG95QkEwNHU2a1N4RnFZbVdVcTR3TFNsVWRJNEZiYnRzbVZlOURhWVZpOVZsSXVDMDdoVncyT05Tc1BLZVdDTk1TbXlPUGNOYXJyMHQxRGdTUEtfZFZnLTJja284RmNMZmpjNW8yV3hwa3R3czNuSjVUNUhDMko3UWgtLXBIZGpwckNKVHJ3SFE4QQ?oc=5) |
 | Kristi Noem confirms plan to expand ICE operations in major cities - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPam9RV3BkOTItMTI0aEFEN3hjdksxMjlaTlVSWWZQd0dicTcxMEI1UFZmS0hLZEhqQm90UllFcElmcGVXLXEyTmR5Vno3LWxMVVJlRUJhRVNBcThWMHAzU1BnM2NqX3NKSE95SFdYOGNhRmxaeloxZlIyUUYtODgxM0Z4cmNDUjl4U1NXYnNGMFBKcnZ5WUhFRks0QjFYU1lFc1c5RTlfdTlNa2dNU0R6eXRzSHR4YlBQXzZtc0QzUk1GdVk?oc=5) |
 | Pope demands end to the 'pandemic of arms' as he prays for victims of Minnesota school shooting - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPdERzaUVPVGl1VHpmT0ZOSFpRdS0xMXhpN0R1ZEYzb0Zva0ZuYVlTSUZXT1FPeU9vNHA2Y1RiazVUVE5UTG8wZ0k0dXEzNENCVTNCYm96eXZCQk84SXdzd1lEcVhmZ2VGOFA1TEtwZUhFamFFQUJ2MkJlbi01WDZVRHNURXdPSjRUTHdEQzk0TQ?oc=5) |
