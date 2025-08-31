@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 08:13:19（北京时间）**
+🕒 更新时间：**2025年08月31日 08:24:54（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Houthi rebels say Israeli airstrike killed their prime minister in Yemen's capital - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOZnE5djk0UjRWXzZSLXl3YkU2cGFCeFB5XzN4ZnJqQ2dvc0VlT096RFJpZTVYMk83eDFKdVhyZmV6NkZVbW1EQmxjaXFObklQbTFVQ3czdV9HRk9odkotTGZJemxNTzdoZjFuQ1hsazhQcVB2ajNpaWw3UFR1UVRjU2xieHBoc3NDb3JlMGFOVGVza1hhRTRlN1Nn?oc=5) |
 | ‘Is Trump Dead?’ Rumors Debunked As Trump Seen Leaving For Golf - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQc1VMNmRFVGItQ01seWRvMzhNVUw5SWhQcU15UVhDZU5qZUd5MlZVM1J3TUFWWGhUWjZqMmRGQ0ZlSjA3VTFPay1KZk1IYThORjNGNFBnOF9zLVpPbjh0bVgyazRKenFjNG5sZ29iNW1kU2oxd1M5TGJwYVdXc0RWbHVKNEpWNHRtZnZDc2NKUHRMbVVYR1ZPZjdpYUdtS2VQNVhrRTczSXFremt0cEF1NkhR?oc=5) |
 | A Morbid Memory Lingers 20 Years After Hurricane Katrina - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE43YkNSbm1ObnRmelk2QlczSzV5NnRsdUJicmRmbmlvSmxyNTRvQ2dBM3BzeVFrb0RJUkNJbFRQa01jM193M3JEbWxSN1dKX1UwU0NnUUtzQ1V5X25IV20zZHBETDJRdExWX0o3d3VMOEY2cVVMRmc?oc=5) |
-| Federal judge issues order blocking Trump effort to expand speedy deportations of migrants - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNaVhsOHUzSURQU0lkUmVzUUowZ2FyWF84Q2w1Y2RSd0V2cGNvNVlZaWlKX0RLWklFMlVIc3JYUVFUUThEbDFFNkF6VzhFaWRqdHJJLXNuWFJmdXBxYUo5a0gyS0l0RG80Q3lnR3RGOVJmWk1OUmFjRWpiZDliQnR3bUEtemJrT0hPeEs5SzZ6M0VNRGNjWWNSOElXQTVvQ2d5eVRnZHM0dndNZGpG?oc=5) |
+| Federal judge blocks Trump effort to expand fast-track deportations - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQWjI4SUU3TEUxY1NIUVJUczh4ME0ySGtsM0FndWZ2RGI4TkJxMmpQYnI2WXRHN2tlUjJhdkVlN09VU19nVktWM2tibnd3WHEtcWtueERYX1VvZ2dEN3M0VURKQTNnWFhNbzI2LW5GeGc1cGcxbjFZV25WNjZIaHJYSjZtZnA2VUZzbWFV?oc=5) |
 | Kari Lake lays off more than 500 staff at Voice of America parent agency - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdUN5dVF3VHNWaEFXYTQ0eVhnX2JKdkZ6cy16NzRHeDFMMXJ0Tm8wbE9SRzVzVWQ1bXhjS1k2RUpFUmdOVkVVdHpkNlFsS2x6R1owU1Y3Z3dueEt1Y29KTktZVFBCVXdyNmtpWm54S0l2aktSTnZhRlBQeEZfMmRTZU1IcGdNaWhmdnByY0c1QQ?oc=5) |
-| Firefighter arrested by US border agents was on track for legal status, lawyers say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNenV3YkQ5a0xBS1lULUFVTXJkcDE5dzR3SF83Yml3REFnSTdvR3JISjNFYm14N0R4VlJkbklyM2ZEX1J2X2pjSEh3Nkk1S2I5RjBtVUFYSjVBb2xWcXFmbU9hS2pIUml5R2ZNTnhNeTdKcGkxZkRxMTRpbEJBQUF0U2VWaUY3TldBaFNILQ?oc=5) |
+| Sanders wades into one of Democrats' best Senate pickup opportunities - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPYzgwN0tCNGhPd0lqaXgwak9jSTh0Uk5KZldZYThsZTc2azBZV1lqVDFXamctWldKREJnOHJDeVpubGxEME52aVE1VW5aclZUMkNjbWU2YlVrVkljZDRLbjNiQWdaVWxReWwtVDNaMjR1SVNOV3FFaVcyNEcteER6RjFEZEZLeWRkQWs5VmpyMy1LOVdMdFlTblA4QUZ4UQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
