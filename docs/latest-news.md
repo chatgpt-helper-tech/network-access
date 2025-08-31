@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 03:48:25（北京时间）**
+🕒 更新时间：**2025年09月01日 04:00:10（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Pope Leo demands end to ‘pandemic of arms’ after Minnesota school shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxORlg2MVZTUHZkVDZLeG94bUVtX3dOLU83ajMyRnM1bDBDY3JXREVlcFpuN00xU2FaOHV5TlhOYTBhR2psQU1SR05Nbl9zSkI1MmxDUVRtMnJNdFRNRUxUREg0dS1BZ1RSQ0RVNVI1amJtOHk2NnM0OW4xMUJsZmxDLXliQnNoRnJLdWc?oc=5) |
 | Homeland Security Secretary Kristi Noem says "we haven't taken anything off the table" on expanding immigration operations to other cities - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQb1ZuSWtMRXFyMWh2Z1Rjb3J1dThxdnlUdU04dG9jS1RxR3o5YVV6M2NBMXhyVTQzWXZITmYyQkpuUzBzUFhnQzdhbVNMMHpXdkRNMGE2dzFaVWEyb0JzRnJEMHVHa3VrWnRWVDZWRHNnQXk0MmdvZlhKSU9iNEtwUHVNOXVUUHQySXJoVVB5U3VSYmxEcVh4Vy1OakjSAaIBQVVfeXFMT2tKWDU2V3AxOEVrY0tCVFpPcTdsVmdpbThIVmd5R0FtVGdoS05vM3BRVHNqekRfLUs3ZzNRWDlzbHBCZnFNWUw2TUlYOTdjNWFoYktlc3VoYWE2QTFiV3BJTmltX0pYT2R1Qi01SzMwTExkaWljQUNWbndVeUNPR3BXSU9RRVlLZTZISmkzUHczUjZqNWxyNjE1M09vd1FaU3dB?oc=5) |
 | Montana man who evaded authorities for a week after bar shooting faces 4 counts of murder - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPNmZKeERIY1ZjTGZBWXc1NkNGU0toQ1Y5SW94c2dLSVhLS0owc19DTmRmZ1U5X1pkMUdING11QVRQNG1wc2JveDZ5anBhVkJjaGwyU1pWOEt2SWVPd0lGX1dwSTN6ZnoyY1U3Qy00NjJUNDNQczFXcTZVdzVVMDBSYlpTRQ?oc=5) |
-| Washington residents are 'so used to crime,' Pirro says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQM2JHUW1CME85UzZjZnNSWWhRSjVEVjM2UzdXeEdxbmVwYlVXX3EtSGVXOEVRSEdIVkdFaXV4VDV5RjVIanQxaU8wRjVmYTdRMDN0eEg0UEozSG5vR1BYVlJTRS1kRjdrRHRkZkFwbC1ENy1nM1FKSWVuamRiSFRLb2Q3TjEzaWR3Qy03bHNrLTdWUU0?oc=5) |
+| ‘We’re trapped’: Trump’s tariffs lock US businesses in China - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPcmloNGNRcnQ4MTRKNjZKQ3loVmJRSUdKQ0V5aFIxVlZVZGtQLWFqaVdsZFRPWlRucTdSTF9sVV9TdHRIaDRlNHZGdXRhU1FXalpOdm5HcUZKUUZWbzZIWWhhWmppQjNVZXY1OEEzZHNaSjZPX1drckRrUzJmazFnQzdPRzZYTlJqTkxyTE1zRmw4RVdLQmppYk1KRnRwQk4wUGhMMm9oc20?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
