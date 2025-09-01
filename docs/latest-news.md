@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 05:00:43（北京时间）**
+🕒 更新时间：**2025年09月02日 05:13:06（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Trump tells drugmakers to 'justify the success' of Covid meds after FDA limits vaccine approval - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1BOWxHYXc5am43QVo2VmxydWN1Q3lfYUlWMWdxQnRsSVRCMEVBdDB3OVdBM0VmWHpKdEw3N3JDd1BTWVpvbWM0b3Exam5FQmxxWFUzaUFRM016dUt3WmR6Z3VRdU51WkFtZ2Y5Y1NmUnlfaTDSAXhBVV95cUxNTmg1RjNpZEc4eVpIUmNPeC1oaHZLUUdMZXJ0SE9Ndmw2U3BQYmFkLTdrSjZocEp2UW9rQWxwTjdJUGNkM2Q1V1NpdldWcEF3RUpKcElHQnJVTHpuWGk4OWJmVWh4UmpLMHVmTFVCOHFiTHRnSnpNOVU?oc=5) |
 | Judge blocks Trump administration move to deport Guatemalan children - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1BVWxLaEZuc0NkNHhBdE9LbFJSU1lxNTNBT0hjYjVpNXE0cWVLQlRoQWN1a0dXWndob3ZSR2JGMVNIUUZZLVNoZVFyc0ZFbUY3b3F3Q3UtX0s1QdIBX0FVX3lxTE1SLWVtT0kzWU9kQ3lOWE9wMnBJLW9iZXc0X01YS3JId0E4OS1zanlQYjA3UXg4aDJpRE42cEdVMVpRMDJwNHNTdVh1NXZoQzdhVWJRS3VFSXhHa2FOX2VF?oc=5) |
 | Unions, community groups join forces for Labor Day protests against Trump and billionaires - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOemE2VC05amJYYkNCZ01SREFEdlg2Q05Ia1NCZ2tBRDlyODMzUEJxaEZ6Ynkzdk9IYkpoSVdibE5YcGVWZno2V1ZUN1RZVXdjV0c5ZjUwaEtkaWdOQUlGMndlNS15WktGMkdvMVphWXMzMUpoNTk1SXA0RERZTENDWE13alRfUXlSNDlVOVlHeXhjRUJfMEg5WjlNeFE3RXMt?oc=5) |
+| Rudy Giuliani Released From Hospital After Car Crash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb3RsbFNzQmx4SS1FT2doT09UOEkyc3ZtWDdLdnFaVlNRRnIzNVd6Qy1acDZSLWtEZHlXOEtsT0I1WTVxTEdlTTF5MzItRkJYeDhmejk1YjJfWnAtdnUtYVZud1AtNDBHdWd2cWQyX3h6RU9rd2V6cldUd0tVUEt6TDZINGItQjV6?oc=5) |
 | 1.2 million immigrants are gone from the US labor force under Trump, preliminary data shows - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOdW5WOGVKaWhoZFFnQ2Nrd2JycTV1bkxkNUNIWEZRX3ZLWUFsanMtZWJzRlBxcnVndHhwODR2Tng5Z2JvLVZtSk95VEVDUWZNWjRrQVdlRERkaEx4R0Z3aDJPX3Vhcy10azdhTlltbFZCeVZJRHhrSXhveTFWSndoSDFXVVRGamwzcHRwRWtDMnA?oc=5) |
-| A federal appeals court ruled against Trump's tariffs. Here's what could happen next. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNTEJhTGhaR1dRa19SOHFlOVBSMTdBRUJUWG9VMU1DaW5yeHZyN0lJN25RLU1jaEFxZU83R1RLc25VeFh2dlpaeUhXZWxEWFNCNGZJMmQ2TW0tME9Wei1pc2tXcnRsOXJ0OThyVV9nRjVSaHVVd1YwSnRFNmtrRWJuVkhlc0UzanRaSzV3b0J5azltdmNWM01qTkI2V0FZUdIBowFBVV95cUxNLWlDM1ZQZDFLbEdBNUs1MEQwakwtLU01SzR4M0JDa0tXRXZKU1VRS1RVSVphTTdKNTFXN2lrTHhVMUpRWkdEcEJwZDNZLW9vVWo1NVh3Wld2YlRTNDg0VlEtS29jVFdiTlBfV3hHVl9GSHdzZ1RYZkNNbFhta1NXdkhUcEVaZE5jV3BjbU5Sbm4walpaNUFVa1ZQLTJ4SVB6Uk53?oc=5) |
 | Great Lakes ghost ships emerge, courtesy of the quagga mussel - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5TRTFpdmlHWDlFN0lieGRfSDI5MVlJdlVPU3BjaDhEVXZaU0s1QTYwVlNSMUFPNDZFZGhxRFd1OWZxWEoxSkd4dkdwQUhoa2hSVUs1cFJJLTd2QjFkMExNT1dzMkRnQnRIRHltSUpfN1E?oc=5) |
 | Interviewed student to undergo surgery after Annunciation Church mass shooting - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxQVURXdm5vNDVlRTlGUWZWblR3Rm1zWkhncEQ2dlFoZXFiWDM0WDkzblhoempRM3Vkdk5PSTJsRENJOUhJSjJRaVlYbTRYVFdxOVdkMTRoNTRjdW05LTdNajVJb0hyazB3Vmpvei02WVBpUU8zd2N3NDV3RnVQV2llRDBtNGhwYUFHaTBqUDh5N1NxRTBQYm5NbTNYcUV5NVBPWHJ1aHRUXzM0WHNmb1FaRnlvcXNGNFdaOEVsdS1ScXcweXJMcnI1UXd3Qmc1cWt2R1BFVDY2RkRkaUh2dnZnaHNXTXp4S1RYRzl6anZ6OUc5UQ?oc=5) |
 
