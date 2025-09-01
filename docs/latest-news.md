@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 09:49:05（北京时间）**
+🕒 更新时间：**2025年09月01日 10:01:52（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Hamas spokesman Abu Obeida killed in Gaza, Israel says | [阅读全文](https://www.bbc.com/news/articles/cm214r5rd29o?at_medium=RSS&at_campaign=rss) |
 | The public have chosen the next storm names - get ready for Amy, Bram and Chandra | [阅读全文](https://www.bbc.com/weather/articles/cwy54xllpyno?at_medium=RSS&at_campaign=rss) |
 | UK secures £10bn deal to supply Norway with warships | [阅读全文](https://www.bbc.com/news/articles/cr5rgdpvn63o?at_medium=RSS&at_campaign=rss) |
-| Former NYC mayor Rudy Giuliani injured in car accident, security guard says | [阅读全文](https://www.bbc.com/news/articles/crm4gdwerj3o?at_medium=RSS&at_campaign=rss) |
+| Former NYC Mayor Rudy Giuliani injured in car accident | [阅读全文](https://www.bbc.com/news/articles/crm4gdwerj3o?at_medium=RSS&at_campaign=rss) |
 | Boy who died in playground fall 'so full of life' | [阅读全文](https://www.bbc.com/news/articles/cg4x6re1zwro?at_medium=RSS&at_campaign=rss) |
 | Arrest after fatal shooting of Ukrainian politician Andriy Parubiy | [阅读全文](https://www.bbc.com/news/articles/cvgn2ry9510o?at_medium=RSS&at_campaign=rss) |
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Judge blocks Trump administration move to deport Guatemalan children - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1BVWxLaEZuc0NkNHhBdE9LbFJSU1lxNTNBT0hjYjVpNXE0cWVLQlRoQWN1a0dXWndob3ZSR2JGMVNIUUZZLVNoZVFyc0ZFbUY3b3F3Q3UtX0s1QdIBX0FVX3lxTE1SLWVtT0kzWU9kQ3lOWE9wMnBJLW9iZXc0X01YS3JId0E4OS1zanlQYjA3UXg4aDJpRE42cEdVMVpRMDJwNHNTdVh1NXZoQzdhVWJRS3VFSXhHa2FOX2VF?oc=5) |
-| Rudy Giuliani hospitalized with broken vertebra after car accident, spokesperson says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNeFppb1NVdk55UFNwd1o5czhvU3F1bjJnZmFvYjRsZ3VwNGZPVDhWV0FiZjZpV095LUZSdVdXQUY3WC1maGE3UE5IckZ2V0h0T201MnVpcmRfYmhMVlFIeERFaF9UbEpneV8tNmppTVBnZloyVFRXSi1iVmV5NENhNHFVZTUzMF9uaXloMVJ6eVMyQ3k5aEVSN3g4WTNIb29uWGc?oc=5) |
+| Rudy Giuliani Is Hurt in Car Crash in New Hampshire - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPc0NTaTBJc1RxdVk4d1RJQi1STC1yMFZQdlpYTThZUEtNRl9YcFhjVUotaUJMSUhPMWxhc1VQWHBiWU5ZVC1fTFNXVnBmRWlMZU5FTWVGRkJNb1VYOTAtVkN4UFNPV0FSXzVmbk9NXy1vbG0ycGd1VDNIb2h4UFFVWGt0VmlDckI3Y2N1eDBhTTdoR0xRdWJ2aHVpZ0paWVU?oc=5) |
 | Trump says US would be 'destroyed' without tariff cash - Fox Business | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQeVBxbnh0d0xHa3dWMXVFTkhJU0hGcHlFdkJHMGVLUkxCTGRXbmk5WDJRVkxHckxYNGFKYmJRN05yYWZrZ1VoTjN5cjdQTXdveUJ0NllKQWlsWGFlS3VZQ0hjN3VsYndTVFA2dEVGMDdWbWNJcWMtbExoUGVIeE9pVkd0cExnZ1pYWGdXRVA3RXZrU3FLRDU4TG9XVC1WWHlTT2c?oc=5) |
 | India and China are partners, not rivals, Modi and Xi say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPS2Z5NldDeTJRb1ZPSVhhdXJvLWJaUnRCbzdCeE55RjNlVkJKUjhnQV9VV0RJMi02eTN3MmM3aW9FbFBybThXVk4wLXVsNjVtY1F6RTRjdFk2LWkxM09XRVRZUm83WkNQQWI1ZmhLVDJETGlmN3hMWjgxZnhFb0wtaHIzZGZVVmFjdWN4MmhkY3FMdUVGa0VENms3MA?oc=5) |
 | Trump Calls for Voter Identification for All U.S. Elections - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNb3gzSE8xWDFxbzZ3WDNlckVURVlZbzZ6OVUyNDJZMHNuWVBLZkdXenJrekxNdEh3UVpCSDV2ek1fNFA0dHJveVpCTER3RWlGWVUwWTY1dHdEcHpwblpoTk8yN3lwdzBuWkMtdHI5VFBjV2UtdF9INVpGSUJSMFFKaTFGRzdUVkVZUU00SV91cVo5b0FFYnJma0hRMlRzZ2UyZDd5Nm13?oc=5) |
