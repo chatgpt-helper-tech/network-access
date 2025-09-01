@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 06:13:22（北京时间）**
+🕒 更新时间：**2025年09月02日 06:24:30（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Judge blocks Trump administration move to deport Guatemalan children - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1BVWxLaEZuc0NkNHhBdE9LbFJSU1lxNTNBT0hjYjVpNXE0cWVLQlRoQWN1a0dXWndob3ZSR2JGMVNIUUZZLVNoZVFyc0ZFbUY3b3F3Q3UtX0s1QdIBX0FVX3lxTE1SLWVtT0kzWU9kQ3lOWE9wMnBJLW9iZXc0X01YS3JId0E4OS1zanlQYjA3UXg4aDJpRE42cEdVMVpRMDJwNHNTdVh1NXZoQzdhVWJRS3VFSXhHa2FOX2VF?oc=5) |
 | Rudy Giuliani Released From Hospital After Car Crash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb3RsbFNzQmx4SS1FT2doT09UOEkyc3ZtWDdLdnFaVlNRRnIzNVd6Qy1acDZSLWtEZHlXOEtsT0I1WTVxTEdlTTF5MzItRkJYeDhmejk1YjJfWnAtdnUtYVZud1AtNDBHdWd2cWQyX3h6RU9rd2V6cldUd0tVUEt6TDZINGItQjV6?oc=5) |
 | 1.2 million immigrants are gone from the US labor force under Trump, preliminary data shows - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOdW5WOGVKaWhoZFFnQ2Nrd2JycTV1bkxkNUNIWEZRX3ZLWUFsanMtZWJzRlBxcnVndHhwODR2Tng5Z2JvLVZtSk95VEVDUWZNWjRrQVdlRERkaEx4R0Z3aDJPX3Vhcy10azdhTlltbFZCeVZJRHhrSXhveTFWSndoSDFXVVRGamwzcHRwRWtDMnA?oc=5) |
-| Great Lakes ghost ships emerge, courtesy of the quagga mussel - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5TRTFpdmlHWDlFN0lieGRfSDI5MVlJdlVPU3BjaDhEVXZaU0s1QTYwVlNSMUFPNDZFZGhxRFd1OWZxWEoxSkd4dkdwQUhoa2hSVUs1cFJJLTd2QjFkMExNT1dzMkRnQnRIRHltSUpfN1E?oc=5) |
 | Interviewed student to undergo surgery after Annunciation Church mass shooting - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxQVURXdm5vNDVlRTlGUWZWblR3Rm1zWkhncEQ2dlFoZXFiWDM0WDkzblhoempRM3Vkdk5PSTJsRENJOUhJSjJRaVlYbTRYVFdxOVdkMTRoNTRjdW05LTdNajVJb0hyazB3Vmpvei02WVBpUU8zd2N3NDV3RnVQV2llRDBtNGhwYUFHaTBqUDh5N1NxRTBQYm5NbTNYcUV5NVBPWHJ1aHRUXzM0WHNmb1FaRnlvcXNGNFdaOEVsdS1ScXcweXJMcnI1UXd3Qmc1cWt2R1BFVDY2RkRkaUh2dnZnaHNXTXp4S1RYRzl6anZ6OUc5UQ?oc=5) |
+| Great Lakes ghost ships emerge, courtesy of the quagga mussel - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5TRTFpdmlHWDlFN0lieGRfSDI5MVlJdlVPU3BjaDhEVXZaU0s1QTYwVlNSMUFPNDZFZGhxRFd1OWZxWEoxSkd4dkdwQUhoa2hSVUs1cFJJLTd2QjFkMExNT1dzMkRnQnRIRHltSUpfN1E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
