@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 13:12:14（北京时间）**
+🕒 更新时间：**2025年09月01日 13:25:48（北京时间）**
 
 ---
 
@@ -12,9 +12,9 @@
 | More parents to get childcare funding as nurseries struggle with demand | [阅读全文](https://www.bbc.com/news/articles/c5yeldz568jo?at_medium=RSS&at_campaign=rss) |
 | Jewellery boss in £170m scam told shop staff to pretend to be customers | [阅读全文](https://www.bbc.com/news/articles/cp37k8ev9glo?at_medium=RSS&at_campaign=rss) |
 | China's huge navy is expanding at breakneck speed - will it rule the waves? | [阅读全文](https://www.bbc.com/news/articles/c4gmnpg31xlo?at_medium=RSS&at_campaign=rss) |
-| British woman stabbed to death in Cambodia, police say | [阅读全文](https://www.bbc.com/news/articles/c15le021yzpo?at_medium=RSS&at_campaign=rss) |
 | Camilla fought off attacker with shoe as teenager, book says | [阅读全文](https://www.bbc.com/news/articles/c209ql9z2d1o?at_medium=RSS&at_campaign=rss) |
 | The public have chosen the next storm names - get ready for Amy, Bram and Chandra | [阅读全文](https://www.bbc.com/weather/articles/cwy54xllpyno?at_medium=RSS&at_campaign=rss) |
+| British woman stabbed to death in Cambodia, police say | [阅读全文](https://www.bbc.com/news/articles/c15le021yzpo?at_medium=RSS&at_campaign=rss) |
 | UK secures £10bn deal to supply Norway with warships | [阅读全文](https://www.bbc.com/news/articles/cr5rgdpvn63o?at_medium=RSS&at_campaign=rss) |
 | Hamas spokesman Abu Obeida killed in Gaza, Israel says | [阅读全文](https://www.bbc.com/news/articles/cm214r5rd29o?at_medium=RSS&at_campaign=rss) |
 | Former NYC Mayor Rudy Giuliani injured in car accident | [阅读全文](https://www.bbc.com/news/articles/crm4gdwerj3o?at_medium=RSS&at_campaign=rss) |
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Narendra Modi and Xi Jinping meet: Donald Trump as the wildcard and other takeaways for India-China relationship - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1xY2E1UEdDWWlwQ2NGN3pYUFFWWXhtTDVBZ3R0V00wY2ZQWnNFVVQwTXdYOGdZRXFKcUlPNGU0SG9SYU1WdmxmWS1CR2w1U1VERFpSd081dTJHZ9IBX0FVX3lxTE9HSkhqaGd5alNPMjNxdldfSURpTGNBaXVtY2V1M3lKUEc0RTFHUTRKX0JoZFIzZU1BbXN1QWZCcGxxWTNRN3VRclY2NHdOSVJ4T1N2NWZTZTNZWERBNllN?oc=5) |
 | Rudy Giuliani hospitalized with multiple injuries after car crash - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQWExPdWc2aFNrekhrcGVINHRSQ2RWcC1nUlppV3l1eFBsMVdBR2EwQ0lISnNlTVJRNjh2YUlPNmthTHhWSE4wUEFFeWs1Z2ltRW9GOWdZeVFjYlRuZG5yNEJGRXFKSWVCWktlV1pxTkJrbU4xWE90WlRxaVFGSkNxRDVFM0Q?oc=5) |
-| Judge halts deportation of hundreds of Guatemalan children - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQTjhWc3lTc0cwU09qZDl0WWxENWFtbXlwdUwxVEZWeWk3dW5CemVJTjhfQXRjNllNeFBGb1lrTlhIM3VCbU9rbkNaNXVTeEZwYXlyTTJYWFlESUY2WVE1SndXVGpiZTdQeEpHVldKdHQyLVBmUGFhVGs5cTkybkh2Wjd6czdBYlBSZHc0RjUtbkk?oc=5) |
-| Robert Mueller Has Parkinson’s Disease, Family Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQaW1hNlJROUhZcWNVZ0hRaDNyT0dQOV9VMTBDMFRRei1DZHRab1NBektZV2p5SEJuMG1mUW5wODA5dXcxeklFS2hsQjItRUxDRkRpejREcGFtNFNmdUhJelE2MUNnWkhBRGZESFI3S1haX0FfeTNXOHBMQVNWY0FOMm9oaTFpWGxEWHBiYzh3?oc=5) |
+| Judge Halts U.S. Effort to Deport Guatemalan Children as Planes Sit on Tarmac - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPc3YweUpLUGY3Q3AxN2N5emJTUE5lRlRuaEN5RkxKdnlGMGo3ZGJ1eFBFMGpXRlpEZGo1QnlJMWFrbnpveGhwNkZZSWJMVGhmcm81SnVDN3l3NEVXLUtCUGxhMnQ1bHA4RHp1UE9kbU1yOFJZOG9mVHUwTHRRLTJ0VGFTOVdNekxnMld0dDBNMWpmNnMtemRTX0xLRQ?oc=5) |
+| Mueller's family tells NYT he has Parkinson's disease - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUkN6ZXFwWWdpckZvaEJLdGJkeGxPdno5VllTRFBWekVDSVE5eXlqZ0hzM1BYemNFNU5NUkRWSG5kdWpwOGVWUFNPc1hrQm1kdjBGMXdNdUxxelJJMnNDQTRyRlFCVUI3NHkzamN2NEJIcFY2OW10VWF3aUVOYVVNaldZak1hN0tPdlRxWU50SEg?oc=5) |
 | DHS Secretary Kristi Noem acknowledges ICE surge in Chicago; says National Guard deployment up to Trump - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE0xNUN6SkNmcEZMYmRPa3VkazIwV3JZQ1NWR1NNRWxVTUh1NlNmcUpTeHVqWDQyX1kzVk5MaFNYOWoxems4VmQxcEEtVG5zenRGcVYydUFKdWVvUXp6dG5wVE9WYXE3T0RFTGNPX3lseFZHaE5BeFFmTW9zcDJ1UWs?oc=5) |
 | At least 250 killed in 6.0-magnitude earthquake in Afghanistan - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNajZudTVsRWU5bFdMOTZVV01qVnRKSElTbXhqdkk3U2o4ZElKMnUwQTV1Y2dpcmtLTUNoWV85WGROQ2JHa1l5Q2RKVEJWU0ctR0F3Mi1FU0t2b3I1TExKSk1uTmJqM2dqVVYtT0dLSlZROG13ZGJzd2dZNFZOMTcybmtqS2E0VlZRVXFkX0RsY2NfYUdid214VkhwdktCZ9IBVkFVX3lxTE1hb3NhSWpxRVRVek1LOVIzNjd0SldINFRJQXJQOUdfaGN1OFg2RTNLTExKMFg3NW1sYWFqa2RZekpWRGpmLU5HVEhVSVUxU0FoNEFBYUxB?oc=5) |
 | Trump news at a glance: US president issues threat to mandate voter ID - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPcUZtY1NiM2xnYXlOMW9GOUEzOU4tcmY0Wi1udWxlZmlScWJvY3drMU1rdEdCb0wweFdHTXJXZlNIRU1VOHJCRXI3RjZoRTlTUVB4RkFzeHBfZDF2cy00ZDRHemQ2ZHZUN0U4TjUyOVJUa1ZUODNkdDZnVE9jS0c0VjJkMDkxOHpVRS1GWUt6cDd6RmFGLXJGdWJmUXNydw?oc=5) |
