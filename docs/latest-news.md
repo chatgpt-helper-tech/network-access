@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 22:26:01（北京时间）**
+🕒 更新时间：**2025年09月01日 22:36:37（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Has Trump kept his campaign promises to American workers? Here's what some say. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNdjU3WEZoaUdFeDJJeGZXeTl5bDV3MnRwWHB2NFBSdzd6VWZHa0tYRnVralNJcUNxS29vNXh4ZkVKX0ZPZXRMZjJCXzhaSmhmZ2o1c1ZfYTBvTVhFLUYyYUpvdnFVdGV0QndXSWFvejRvOHhxR2M3ZWJiOUtpRzQxeGJoc2JhRW80?oc=5) |
 | Narendra Modi hails India’s energy ties with Russia despite US anger - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1GV3ZuNkVBRnJNdkttZkJIbkJMQ2JmSFFEd0VFT29wVWxfOWk3cXYwMExBX1dsTTZjUXNpLUZlaHgyVzRjR0RCa1FodElxMGwtOGRHX2I2UHl4LXBGdDk5Yk95dXd2VkJiTDBXcnJKdHQ?oc=5) |
 | Plane carrying EU’s top leader targeted by alleged Russian GPS jamming - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5Ta2pTZ0FqaUxLdnhmZm9qdzE4R3ZoMHVkNzlzcjd3WEJ1SWlQVVhxdDlQd0RBczhkN180NHVCNDcybFF1Y3ZNeXZENGpmZFBJNmtkMWYyMjFXNVY5ZlFrQ0NEZk9JYmtWNWxDZm54clYydUY3dG93?oc=5) |
-| India and China are partners, not rivals, Modi and Xi say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPS2Z5NldDeTJRb1ZPSVhhdXJvLWJaUnRCbzdCeE55RjNlVkJKUjhnQV9VV0RJMi02eTN3MmM3aW9FbFBybThXVk4wLXVsNjVtY1F6RTRjdFk2LWkxM09XRVRZUm83WkNQQWI1ZmhLVDJETGlmN3hMWjgxZnhFb0wtaHIzZGZVVmFjdWN4MmhkY3FMdUVGa0VENms3MA?oc=5) |
+| Former NYC Mayor Rudy Giuliani seriously injured in crash on I-93 in NH - WCVB | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQVHRrb2x0WHUwNUxNZ0RLeG9MYjdkUXBxcDBESWdNYUhaYXo1Z3dtcFJzNzdwX0xuNWRnd3RwR3QwcUF4S0NwODdFdHZibW1scnhVcFdzZFJDSFVaeXBSZkpTN2h5Z0FQU0xWZV9nX2JycEl0ZFBFZ2JSaHc0M1IxNURMZ2tvYXhhYzFCYkxDVGxkXzRZRjVMM3F1NUYzOHRCNDFWSV9NNzNBMklDYUh4YUpzZEtzdVFJYTRGOE5MRmM3Vnc2V2pNVE5aVi1ORHhyY0E?oc=5) |
 | Judge blocks Trump administration move to deport Guatemalan children - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1BVWxLaEZuc0NkNHhBdE9LbFJSU1lxNTNBT0hjYjVpNXE0cWVLQlRoQWN1a0dXWndob3ZSR2JGMVNIUUZZLVNoZVFyc0ZFbUY3b3F3Q3UtX0s1QdIBX0FVX3lxTE1SLWVtT0kzWU9kQ3lOWE9wMnBJLW9iZXc0X01YS3JId0E4OS1zanlQYjA3UXg4aDJpRE42cEdVMVpRMDJwNHNTdVh1NXZoQzdhVWJRS3VFSXhHa2FOX2VF?oc=5) |
 | Bullet fragment reportedly found in boy’s neck after Annunciation Church shooting - 5 EYEWITNESS NEWS | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOVm9CRm9HVFM5Z0JuOU96TG4teFNDRFVqZy0zNnQ4VE1SaUF4WV9BRDhOYlFDd1ZhTFRKU1RTdE9KQUw5UUlTdWh1UlhIX0NzR2tSX3had1NhdWZjTmtHZ1o0cGllZGh4eGltY01CQnp5QV9mUGFJR2wxOUFjM1BGUzZ1NU1VV2tUaWtuLTljQnFXZG1vMzlqVmRZTk1idTR5RktWbTVycEVZbmhnd0ZuMXNCeWhhdk52?oc=5) |
 | 11-year-old dies after being shot while ‘ding dong ditching’ in Houston, police say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5pcGZLdnJkdElqY2d0QndzNVFVeTROVUxvVzB2U0R5SUxOZFdKOTM4eFBYLXJZSDdYRkxVc3dmOGVOTm1zckNIY1YyMXNNSGI3MzZfc0FQblpacFVBbXIzeHl6TXB5bFVreGtxU2pzN2VKYUpfYjd3WXFn?oc=5) |
-| Labor Day northern lights may dazzle parts of U.S. after solar storm - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQNFZxOURHUkxLYlBsclZFYWVIclR1V1JuaHBxMElYZ3JPQmNxV0MzVkpnT2huYXdtcDhVbW1qMlpSekdwb19IU0ZqVVRFQkZUcVNkQU1qZXFiRGVKVF9DYVpndi1CMmNJQWhaTG9nQU91bjRPcjhHcFRsMl9WRXVKTmVHZ2hDX25yREY3N01iYw?oc=5) |
+| Solar storm could bring the Northern Lights to Western New York for Labor Day - WGRZ | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxQMk05dUNjNVNTazNENXpJNDROMERRR1A3WERmdWxQMDhFNWt4S19lMjNDUmpqenpwbGR3YnM4ZGE2aEMyR2MteENkZWpQUlhYcFpHNjYwbEtyQWpJbTRUS2dfdDBSdkI3LUl6UGgtZkIzbDhyN1htVFJsR2VqRVZLc0xsMk10NDZ6QUdvY2dteTlBVU5XV214TERXTURTZmwyai1GeDdWSk1lVnRtNEJxNDNEZU5uLTY2c2xIWldFYy0wRzhwVVFnU3VwU182Zw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
