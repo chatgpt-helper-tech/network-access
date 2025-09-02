@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 03:12:28（北京时间）**
+🕒 更新时间：**2025年09月03日 03:25:31（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Death toll climbs to over 1,400 after Afghanistan earthquake, official says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNQmxhOFhSMEwwaW40c1ZDalpPUmx0Z3lkWTRFR1pOSGplRmZYcmRNQTNzZE83T1BxMk9FNUVMald6STNVMVdIZDhhamtuVF9BYXZhWm42Z091d1Zud2dWemhBVTRaMjg4bTJLWEVJdkcxR082SUNoTzROTWdEZnhRXy1fMGxVVnVnRFlEQTdralVwUEdTZFhMLXZlONIBoAFBVV95cUxNYXg0UV9FMHp0UHFfUl9YY1ZyUFJmLVgwWGE5YVhYMzJaWXZxQWVaUHVPU29QUktJeWxRWElwS0tEaVFLcFBaMVdIU1h5YXg2SUVMNlU3emlkaXY4cXpvcmpZejFCa1UybVA3VUxoeUhjcE8xN0ZONk5yaEpwLThLZzZvMUszY19SdTl3Q1dzSGM1dHpGXzdOMUVNVlpieHZX?oc=5) |
 | Scientists Denounce Trump Administration’s Climate Report - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOazdVZmNOUmpaSm1WLWZhNnRVTXhjUGx0Y1BsUmJQV05EMlpDbmh5S29lNWx1MVJoaUYyaEdjRzlDNjR2NmJJbHNWUGhrZkxGRHJBMHhIN0Y0WGNTdlVQV3pyd1VrLW9IaHV3NVpzNVA2ai1MTjZTRTF5cXlDNGp4Tk94MVc2bnhjb1hHQ2FZQjJWQQ?oc=5) |
 | Texas man charged with murder in shooting of child playing doorbell prank - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE45YkM3Q1ZXUms5Vjl3OVQzREpBakZtNHZJUjZmZkhMSWdhRWJERzVCamtkY1lzbGZrNGZ0Mm1DVzNSRnB3WE9UVzNSSzBEMTRWc3FEYlFUMG1yQdIBX0FVX3lxTE9rWWZia0J0WG9uV0puNWd2UG9rbmJxSnlkRG4zQkFUVW1rVTNiM19hV1liRzBQR0d2UER0UFFLbTZXVTRjYmtkS3hEN0VSWTBEV0VwcHpYV3lJLXJLaEdF?oc=5) |
-| As many as 1,000 killed in Sudan landslide - NPR | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE5jTDZ5WE5aT090cklNaE50RmNlYUpwUlZnaXRFb2RFTzg5Tl8yMC03Sm13NElKN1RzdXNIcEY4YXpRNjVfdWduaHB2Zl9valBYSy01X1hDRUg5cmxSb0FENW5PWU0tYWF6ekVF?oc=5) |
+| Kim Jong Un rides his trademark green train to China. He also has a plane, limos and white horses - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPMk9EYXZEOURtRDB2WkdMMHk3UUt5cGNZeWhTOVJCTk9UWnoxLUxPdjRXbk13N29oMVBENW94VWJPMEdNXzg4OWhZWDNnRndJTERMaTlOX0hFR1dwWjVhSGRHQjdHUG5Fb0tPc1A0R3A0Y2RJd2dVRjZMQVN3TTQ1emx2Rjk3XzZhVUd5MV8tR29DWTJLWE9XUjBJWWJmS2pBR3c?oc=5) |
 | University of Kentucky athlete charged after dead infant found hidden in closet - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOUFUtaEo1ZFIxU1RxdXFKbVZpUUQ5YkhnSUhHaGM4UHVhUUprWHR4NjA0cWFiNkJjYlVUeTFDNEstOE44bkhJaDRSMDhmc0V4Z2lZNDVHa3Y5VjF1Ymp6TGtyQW9XNTJLSmRVRjMwdWZ1c2VxWTJoajl1ZVl3SGc4N0JTSVRyUXFXdUJoVElDOE5NV05wdEJfS2Fndmd0TXdGUnc?oc=5) |
 | Newsom rolls out ‘shock and awe’ ad campaign for redistricting measure - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNeFJtbmZPanMtX21XY0xMM0ptUUR3WldGTHNpdW4zYi1mWUhuM0JqRk0wRFNIT2Zob0hmdmtRRmR2dWFCemxPN2VFWVYyZlY1cENTeFppSUhhc3NDWE9Fb0ZyMnJSb05ZcUkzVV95VWR3X3RDZzFqY1E4RUd1Qmp6RFQtUnJPbTF2ckg1Sl9uekZPaVJTUkVVMW00OE9JY1hWeGZ3ZnVFV2I2U21sUHB0Tm5KTkJ4TlFhblE?oc=5) |
 | Sen. Joni Ernst of Iowa confirms she will not run for reelection in 2026 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOZ3dVajVFeVhPcndFZG5CLVJINjVqbU9pT0ZBNWdLOUtEeExlYXZKSFFLRTlEaUZaYU9jQkhPYlFsYnNRRVY1VEVfd2FwS1dEWjQyZ0ZtU0w3T2RheDhaNTJBeFAxSVp2VnQ1VFlzSnZId00zN205XzNWNS1IWlI2ZmZTSVR3c2NZbHU0NV9TaFBjSEplVHc?oc=5) |
-| Murkowski slams White House pocket rescission proposal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQRlRYd1czVXJudzU4dFRmenBDam10VnFWN2dKYzNxd0xUNXNYVndmaFB6VERSREM0ZHktcW83Q2R5Zk5yZ3R3RnJ4RW9FX2NHMkkzQ2pBZkdaWkpqZkFqcXBfOXJKMlhnbXRyY05rNXg5NFhiVHgxei13ZG1DcTFtZW5vUmJYUGxsQmNBRElZTThYUDE1TlhvWnVNdlJFOXZLdFRjd21QVWZBeXBITzgzTXB1bVFlZGs5OEJwb013?oc=5) |
+| Pushback to Trump’s foreign aid cuts is coming from a surprising corner - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQeGVKMFdXSHZ6dTZubm5ENDlQNWJIcWJrM3FZTHNsQl8ydXItcEFPOUdQVGJzTGNMODh4TFowRTJSd1VkdVdBTWgzUWVBWE9lZ0NYV3AwakxFUG1ELTc3WncxT081QlhIRFYyLUxYOHIxUkFTWU5YNnFmRVhlUEFWaVI3Q0NlZ0ZNcWhtQ0RQWndaaDVLYmRTRHVudGRfRm5jQVBqcA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
