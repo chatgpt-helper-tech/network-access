@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 14:48:05（北京时间）**
+🕒 更新时间：**2025年09月02日 15:01:25（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Afghanistan: Rescue efforts resume after earthquake kills more than 800 - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFA3VEx3UUZxR1htNE5uYm83bmIwZlpQMzlaZVlLbl83SWtTUmlZSTgxZHRIelZxNkxOeDluSlY5UUxrOUdvWWUtYmp5ei0zTkpSWjNMWA?oc=5) |
-| North Korea's Kim Jong Un heads to Beijing by train to attend parade, state media says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNclJCVklRa2EyWGJGa3V6UnN2Rk1CeG5oNWRZVVBScjZuRVhmQ2R2ZnQxSmNqWmdRdVlQUU5NcFBtam1fQWpINGNXSmJ1UlQ4YjV1ZkcxUWdONkZqbDB6NjZFMGx5UmpnaWtncUFwOTdEaDJ1WE1SR1NBLTBHLUlXbXRQNW50WS1kdkx5cElqcjJFci1yNlJleVpFMkFTLWpUMWlxZzFBT1k4SjFyLXJjenRPNFAzZVJiM1ZDNFBZaUV1Wng3?oc=5) |
+| China's Xi rolls out carpet for Ukraine war aggressors, sidelining Trump - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNcDZLdmdnNVBjT19VNUFLeXh6YnpscVRvTkZyY3J2V2pja2xsM1ZpeWVrVDhTUldFUE5SczlHcTRZT1dIMHZUVkVuQ0NIWTd4UWIzdDAzQVFfcENaZzQybXJTMjduaTBGMVNFWkRsa1duTWFJWC1URVNweXNYMld0N1pIdmxGejB0aUk0QWxIZy1vYXFITXRCMl85c0dmcnNMMzB3UC1uR2k3Ti02eTZNZFVsUHc1cjBjX1VYM3A4SF81TEZHaTRsQQ?oc=5) |
 | Maduro vows to declare a ‘republic in arms’ if US forces in the Caribbean attack Venezuela - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNcXU0X0c0WEM1bmhxTXRHRjJLR2JYUFVGRTBtZjNzRi1mcEd5UFNoM0NwcTdSWHE4aUh0el9tVjhXcF8xbWRGSFRTX2d5OGtNYU5DcUEtLVlRbUpEQUVkQ1RObUo1cDRsNnktOGlzcXQ0aEtWQk54eXdZanYxYm9hVzJ1bkd5WjRrU2dhYzVTT1RQVkpsR2tJbFlNQ2g1eDE4Rl9MOWI5SWJVZw?oc=5) |
 | Trump says he'll honor Giuliani with Presidential Medal of Freedom - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE0xLTZwZG9xRnIzQURiakQxa3gwaTlEbEtVR2tHRUxtWlNTN19hZm5XTTFmbGtwQ3k1VC1ES0tzc0lKZjhoRWIyYlJ5VGtYdlZ3elR0SGt6MlM0ZTA3dHdNSUJhQTNxV3VwX0hXRW84V1F0Z2NIVUY5dzFKYUtodUU?oc=5) |
 | Trump raises fresh questions about Covid-19 vaccines that he says have ‘ripped apart’ CDC - CNN | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBUZmE5U0loMmNBUmt5TWdqS2E2b2Y1TVZsQVM1MTNkdFRtSkJqQ3JWMkdPOVZ3TWtKTGY0ODBJWDRSelFNNlNRU1lCdVAzeHlzY3VuS0gtclRtdzI4a29kV0tGcVpKeXFqWmZXNFBYdEo3Zw?oc=5) |
