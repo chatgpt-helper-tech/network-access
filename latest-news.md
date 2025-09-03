@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 15:36:58（北京时间）**
+🕒 更新时间：**2025年09月03日 15:49:44（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 'Trump's out, Xi's in': BBC correspondents react to China's military parade | [阅读全文](https://www.bbc.com/news/articles/c7545p2px5no?at_medium=RSS&at_campaign=rss) |
+| Watch: Key moments from China's military parade | [阅读全文](https://www.bbc.com/news/videos/c62n2mm6ngjo?at_medium=RSS&at_campaign=rss) |
 | Energy drinks to be banned for under-16s | [阅读全文](https://www.bbc.com/news/articles/c707074qdnko?at_medium=RSS&at_campaign=rss) |
 | Government unable to calculate Afghan data breach cost, watchdog says | [阅读全文](https://www.bbc.com/news/articles/cm2k25dx1z3o?at_medium=RSS&at_campaign=rss) |
 | A scheme helped prevent sex offenders committing more crimes - then it closed. Why? | [阅读全文](https://www.bbc.com/news/articles/cgqnqzkg83jo?at_medium=RSS&at_campaign=rss) |
