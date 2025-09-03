@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 07:37:00（北京时间）**
+🕒 更新时间：**2025年09月04日 07:48:08（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Flash-bang grenades and early morning raids: How Trump is planning to target Chicago - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPSDRWb1Z0OVZXQ3dfVGM4cGVTZVNkMmNub1RpeFFFczNRSkViN0pTWjZVbGlvN1lMSWRsZXFJalUtSjlBdXI5aU5FZVZJOFRHRHdoRXQ4ZHdHLWtTTVMtSjBXVHh0VzJRVHNKcEplREJkZmpnWHl3c053cm81NXBhc3pELVExS0pnZWtub2ItSmRUaklkTGJuNVZHQ05sNFNKWHNSd1BvclcwZzRmOEQySUR1blV5NWFjUXhvZVBROTRiR2dkV2NYd1N2RWM?oc=5) |
 | California pushes back on Trump’s CDC with West Coast Health Alliance - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPVFVLeVVjSGt5ekE2ZVZJV0RzT0QzSV9IYU16SHNLeTV4cGRyM0IzeUdjLVJUX1VlVXZpR0l4U2ZqOHhHZGhKanpwTGx3WkE2ZXpOUlE3cUNjMnhOaGtPNnFpa1Y5VTVwZWJLbEJqZk4yWGJvai1PWWhackJ5V2JCQ1NsQ3hLUmRqTkwxUndHTW9kSW82U2l1WGlSSUlmZXpVSlQ3VnhyeFBwSVRUVEVoSTZsdkRFQzh3T2c?oc=5) |
 | NYC Mayor Eric Adams faces a decision: A Trump administration post to drop his reelection campaign - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPaUJjMjVpTUkyM3BBczhUWDJSd2RDblpEZThHRmZEQmxJbnNJeko4XzBCa3hKTGY5SFVoWGdwa0N0OEg4d3hTdm03TVJwUk5jN2E0aVA0TXZGWWdUVkRTTGpTOERMZmsxVHpCQUM0LTBwNEpPYlg2aDFabWxaTTlkX0EzSWdGY0s3TWpDUWJ2RGhrUjhXaVdtRkR3ak1iWHNXSk1HUFdueV9zYUdiajJWTGZQamgwRDFaSFZwMVRId05QMmVPNV8tdkNMY2xQRTNsRk1V?oc=5) |
+| Trump’s redistricting war spreads to Missouri and Maryland - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPcVRaWTFvTUI2UUFZY2NKUmhnUGtlcUJ2NDhtUkVhT182NzJWbFJSX2drVERfVjdUcHBiNmxVMU1la1hXR3A2dmhZbzliSTdIVElxZlZhV2txNXJCellaRVZJQ1BtdUlLZndUSENHZFhlNUxVQzk3ZnpkcERhUWZhWGtyXzF2aC1jcVB6NWlQUVZqYkE?oc=5) |
 | Appeals court blocks Trump deportations under Alien Enemies Act - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQamIzWGlocnFkdjgtdnlJTXYyUjNzVmpqX24tdnRZODI5TlNtR01KbEJOVkNVWTR3QnVQdDhUeE15MnFGa1FKeEFwbE41NEpwX19DS1ljMlNvRF9nMDA2YkhMTDBxeXRzbmktNUhpbnBJS1JNVTFQcU1ZamFpUFoxX1VRQVFDUlhsc3hmTDVxUQ?oc=5) |
-| Over 1,000 HHS staffers call on Trump to fire RFK Jr. for "endangering the nation's health" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5DbURMSFBWcmFYWHgwcXozdHpEQmpkZV9namhVakN1MWwxWl9td1d0cmJCcXE4RW9BSDZNLV94TmZLb1JUdGRib1UwZnU5dWtHc0xxRGRoQ0hGbHU4X1ZlWHp0Y2gwUDFGYWdPYVg1a1pyQ0hNLVM40gF8QVVfeXFMTVJLa3RCZzU0UXd6Y3ptamtsT0hIYk5uSDA1LXgwaWF3djg5aUJwUktjVVBIVzg4Z0FGRTRNaXJ4Yk9wSHEyeEFOVFN2d0xnWGYzUFBhTFZpbUE4SDloVGxCWk0zSFNSY0tqUUZYSGdBSEk0dHg2Uk1NRktCMg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
