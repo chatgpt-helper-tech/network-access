@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 12:49:48（北京时间）**
+🕒 更新时间：**2025年09月03日 13:00:52（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Houston man charged with murder after boy killed playing ding dong ditch - Houston Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPNEZiMTY2SGNsTDNVUXJxQ2pVVEl2cE42T0VqVmNwd3g3bWFnSWloRE9nNmtQNXl4c09mZWpUMlZvQ3NUcFhJUmJiNnliejZNMy1tS2FEbDBhR1V5WXpzUlJRalp4OGxEQks4ZTd6VktUT0thM1J4QzlTNGZfY2NQNDJjbUZ0YV96ZlRGbnk0cXVzUGJzR3NoYjRtV240dUVLR3hGZ0txUjJHNjgydzQ5ZmF3?oc=5) |
 | Burning Man 2025: Homicide investigation, baby delivery and massive dust storm - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxPT2ZSXzlycks4ZXZidHNyX1RKSENRNm5STThzSlNoXzFkSkYtczF2RDkzVGJnTmZ3clZ6Sy1SbkNpRktRQUZXV04yX3dtMnY0RVFaTFdUUi1lSEh0aHBpeTNkUGphMHJnVU9YdXZ0bE5YU0FjNU9hblRDMkZ3QUNnM2tVdHVKR0NxNW5CdjNZS1RFYUxHSExsMEw2Y18yQmtSTFdFbWROVnhyQjdwaFBfQmxseEFtVkpfdFJNMG5LYUlKdkJJbjl0V2tDdFYzZ2fSAVZBVV95cUxOUVRieFFrbHJFX1hCNDZCUW9rVTNlWGJpZjZ4VVlQOTJVUE9SckNSazdPdWpDNmNqejd2b2FWcW5fR28tLVhlZmsxdlhOaGFWSndHdlBkdw?oc=5) |
 | Federal Appeals Court Reinstates an F.T.C. Commissioner Fired by Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPenVtVU9VSjRVTUdzd2p1QzhmRTdiaGt6cWRnUFlhUWFTeC1XdEswNHhpRjJWNjJFV2xiLTJLSXEwX3FwNVZMZkpjQ09NQ2NTb3hCRURheS1zWE84VjVMSnlNTWtpZjVfaFJKM2FiZC1GT055VlE4Z3BJWmZIRXBWTnpoZVY2ejhWeExQdQ?oc=5) |
-| GOP congresswoman joins 2026 Iowa Senate race after Sen. Joni Ernst confirms she won't run - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOZ3dVajVFeVhPcndFZG5CLVJINjVqbU9pT0ZBNWdLOUtEeExlYXZKSFFLRTlEaUZaYU9jQkhPYlFsYnNRRVY1VEVfd2FwS1dEWjQyZ0ZtU0w3T2RheDhaNTJBeFAxSVp2VnQ1VFlzSnZId00zN205XzNWNS1IWlI2ZmZTSVR3c2NZbHU0NV9TaFBjSEplVHc?oc=5) |
+| Johnson and Jeffries kick off funding tango with talk of a holiday punt - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOZkVibnJDdUZDTTg2RFBDZ2pzUmZ5QmQ3bTBFOFdKTENGV0FyeUhFSm1hUzZUZE9qaUZ3U05OWGJfZkxHRXF6azZOLWtCeklPQ3BoSUFCbzJXZ3ZxT2pfM3RIYlllMXBJb0FFYWQ3MjZfLUdvbDZMWm0yamh1c21wWTM5d251eGMxakwzbllrdFQ2MVRIUGxTTkVUUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
