@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 13:24:07（北京时间）**
+🕒 更新时间：**2025年09月03日 13:36:33（北京时间）**
 
 ---
 
@@ -15,8 +15,8 @@
 | Watch: Captain Scott’s famous polar shipwreck as never seen before | [阅读全文](https://www.bbc.com/news/articles/cpwyvyqkx9yo?at_medium=RSS&at_campaign=rss) |
 | Don't pay a fake parking fine – four ways to protect yourself from scams | [阅读全文](https://www.bbc.com/news/articles/cn8438ngpe1o?at_medium=RSS&at_campaign=rss) |
 | Asylum protests putting police under chronic pressure, chief says | [阅读全文](https://www.bbc.com/news/articles/c6272r550w3o?at_medium=RSS&at_campaign=rss) |
-| Chris Mason: How Polanski's Green leadership could impact UK politics | [阅读全文](https://www.bbc.com/news/articles/c9d0d32q0eno?at_medium=RSS&at_campaign=rss) |
 | Seven claims made in new royal book from Brexit to Coronation | [阅读全文](https://www.bbc.com/news/articles/c78z84d3gdgo?at_medium=RSS&at_campaign=rss) |
+| Thames Water bidders ready to clear out top managers | [阅读全文](https://www.bbc.com/news/articles/cp8z8djjml5o?at_medium=RSS&at_campaign=rss) |
 | US House panel releases 33,000 pages of Epstein files | [阅读全文](https://www.bbc.com/news/articles/cp949lrj373o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -31,7 +31,7 @@
 | Bowser to provide indefinite coordination with federal law enforcement - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOSlliT2lnaVlVRmZnLXp2dW5PM2toaThsdmFSYUQ2emltLTN1bDhIdVFCeEc5NXRZa09acUQ3bkhxUzVTYVVzZlBqYWNJNi0tSU5hRjYtMExkQlBKRXdiX3FvX2VGbVZLcHRCV0tJMm9fUUUzWFFqX3VwOHo2N3RnTUZZVHBzNTljcEFoMER1VGN2bVlnQnVEeS1CTEExakpSWXc?oc=5) |
 | Trump to move U.S. Space Command headquarters from Colorado to Alabama - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOYTJERXFfRmJyS0NBS25ua3VBTFlwRElKaFYzODFidkZYRmRnSW1IbGhWTW14d0lVNWtVbHN0RXFlaTRYZnBhVkdnR2ZxclNLSkZYdC1WOXpBSG1qM1FOTHJsWnlpVXFMaF9GYVhQOXFNVFA4YkcybDlodnZhY0xJSHU2ZUZtaFFRYUhCUkNhTGNHdw?oc=5) |
 | Houston man charged with murder after boy killed playing ding dong ditch - Houston Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPNEZiMTY2SGNsTDNVUXJxQ2pVVEl2cE42T0VqVmNwd3g3bWFnSWloRE9nNmtQNXl4c09mZWpUMlZvQ3NUcFhJUmJiNnliejZNMy1tS2FEbDBhR1V5WXpzUlJRalp4OGxEQks4ZTd6VktUT0thM1J4QzlTNGZfY2NQNDJjbUZ0YV96ZlRGbnk0cXVzUGJzR3NoYjRtV240dUVLR3hGZ0txUjJHNjgydzQ5ZmF3?oc=5) |
-| Burning Man is crazier than usual with a murder mystery, ‘demonic’ claims and a surprise birth - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxOV0ZwS2tLc3BiN04zYzBsYXNfVzRycU14VVNobGlpMHo1M3NwNWpUNVRYRmttUEs5TV8xTzZMU0FzUG14a3JHVXpQNHJMZE5tZ0MzSFdVYmF2OTllOVhhWEVVNFI0WEw1R0JtNDYxc0MyaTZKY01LV3FkVGZjcVFGX3RCS3JXNDRNQXM2SUtoWEVfcnNrR04xNDNjRFY1WHpmUlpJSERPTnFzWXdRMkE5T3FHQlRER3ZjTGRKOXFBLUJlRXRLZDYtRlY3VlFLOUpkaXc?oc=5) |
+| Burning Man 2025: Homicide investigation, baby delivery and massive dust storm - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxPT2ZSXzlycks4ZXZidHNyX1RKSENRNm5STThzSlNoXzFkSkYtczF2RDkzVGJnTmZ3clZ6Sy1SbkNpRktRQUZXV04yX3dtMnY0RVFaTFdUUi1lSEh0aHBpeTNkUGphMHJnVU9YdXZ0bE5YU0FjNU9hblRDMkZ3QUNnM2tVdHVKR0NxNW5CdjNZS1RFYUxHSExsMEw2Y18yQmtSTFdFbWROVnhyQjdwaFBfQmxseEFtVkpfdFJNMG5LYUlKdkJJbjl0V2tDdFYzZ2fSAVZBVV95cUxOUVRieFFrbHJFX1hCNDZCUW9rVTNlWGJpZjZ4VVlQOTJVUE9SckNSazdPdWpDNmNqejd2b2FWcW5fR28tLVhlZmsxdlhOaGFWSndHdlBkdw?oc=5) |
 | Federal Appeals Court Reinstates an F.T.C. Commissioner Fired by Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPenVtVU9VSjRVTUdzd2p1QzhmRTdiaGt6cWRnUFlhUWFTeC1XdEswNHhpRjJWNjJFV2xiLTJLSXEwX3FwNVZMZkpjQ09NQ2NTb3hCRURheS1zWE84VjVMSnlNTWtpZjVfaFJKM2FiZC1GT055VlE4Z3BJWmZIRXBWTnpoZVY2ejhWeExQdQ?oc=5) |
 
 ---
