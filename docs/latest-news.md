@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 18:26:01（北京时间）**
+🕒 更新时间：**2025年09月04日 18:37:33（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Residents of Chicago’s most violent block don’t want Trump to send the National Guard - WBEZ Chicago | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxPZ1p5andCbnR6NTJlZ1cybVVoUXY3ZXlhRUlZcnl6UlRsWlhfb1VndDgxSU1oX1Fab3B1T1dkcjlrT1N5dlNiRVk3QVB2WXlvZjZ3TUZuZW5HeGNwOEZydmFKOUktTmVDb2l1dFdtTks0VTd1MUhkU0dhSldxMGZuTUtlYl9waHFvWjhDd2o4UjJLWFZiVjJ0N21fMEJsZmJXRjRHZVVUVUFZdVhUME1RaVlOQ3dBbGprb3N6NWJYTTZRQkpaV3c?oc=5) |
 | Washington, Oregon and California will issue their own vaccine recommendations, separate from CDC - KING5.com | [阅读全文](https://news.google.com/rss/articles/CBMijwJBVV95cUxPQXZCNmdWTk0zU0pfNGplb2tILWE1alVRa3BuOU9TblhvNFdnc1NENFhTV0hSclFiU1FybUJDa3EzZ2VQY0tZcnhiN1Q2N0hLUTN4a3Y1TXJZSnJ5VHliZFlYNF82QnJlcFVBNkdNOGRzZjg2dHcwWE5YOFF5THhTTml2YVdMNVY3bkdZblFOVklWZGs0YmkwcDhEWjUyWHJTRTROaXJIbmlvZ3dka1pxeFoySUJoVzVvb0U5SDlrRDFVNFowRUdWWDZmWEFwbXZYSkZnT2hSUkduY1NCUjBTRTNGR2c5N2k0dGxwMTVRdTF1RjFNMWlaQmwtWnhGWHp0ckR0TUJ0b254a1Utb2JZ?oc=5) |
 | ICE Opens Immigrant Detention Center in Louisiana’s Angola Prison - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQanhZNlU1SnJXQUFadlNKSXZ2RTdIbHA2ZkNMWllMNE92WDlHNjEwTHdObTh0MU9ZYXZKVnM4LXE3c0pJUzlPNktDQkc2YWQyZmM5Wmo0YXVPck9FOE85eDRsd3JvQ01wTnJhWnhyZGZrUTRoeHhrdlZVVkpQQzBLclg2M1FaWEk?oc=5) |
-| Bill Cassidy’s political survival might hinge on Trump's silence - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNTkp3akhJMWZBUWV4RUtmdklqTFh2STVHZHZNbXB0RmNkQnZhdHV5QjdoWkNTUWdIMTRnNGtoTExQOFZiRW1MOTczOHhtUzZhb0dJUmFhOTI4dnZHeHd5Z0xhRDBCSHVrcEVkR2Q0X0ZteFZBbVBVa2R0TmZSNzZURnJOU0FTRTczd0lSY2Jra1E3WmtJb1BzR1Y3WkNWZw?oc=5) |
 | Trump administration to end temporary status of another 268,000 Venezuelan migrants, urging them to self-deport - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOZzRWUnFXUXpNX0l6Wk9BYmdoVEVxU1hBTGh4dnNSXzQ4M2p5NU44ck9YR2FSRFVqb1BseHRleVl6VktrQ1ZtU00xMmZDclBMWjJzVzhvWnFIV3BwN0pyR0pJNk1QNU9taVFsRG5vN3JMX1hWNVFwZFAzTU1oTDBreVdycTZTYlowUHFYQ2JyRHBPNnPSAZgBQVVfeXFMTjcwY2xoaVZ1VzVzaldWS29wOVQzNmhzeXdwUzRNLUVrT19aNDFXY0Qyc0Zlck9wV0Rvdm9lT3ZFYVc0aVFYY1lSQXc2c0I2cnZsaWdLYUN4TWtNS09qOFZaRUFaUU1wTWhkZU5EamZucV90SHFwMXRXRFE2ODBZb2RsNHlzMzJfVzRvZ1l0OEgzOVRrdHREeng?oc=5) |
+| Annunciation parents to Vice President Vance: ‘Move your feet’ - Minnesota Reformer | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPYzNwbWVRWldCWWRJLWY2R1JqeVVjeVhoVjU3V2c4dzFlUDdiRnZpd3N4M1JodzBraS1ERG5uWWplMk9NX3VGN0M2ckJBNDFvc2ZaSUFLUG5fSUJyOFE4WVNVd05sSGVWQTBLNFFhRm53Nm5Wc3psem9jT0pxR0lhdVRaajI1akVIeWE4SlRFSFRuSUI4R3R3VlVuTml1ZDhfREkw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
