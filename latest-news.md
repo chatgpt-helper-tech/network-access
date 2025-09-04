@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 15:00:38（北京时间）**
+🕒 更新时间：**2025年09月04日 15:13:10（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Epstein survivors urge action on Capitol Hill as GOP leadership faces pressure - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQRzNlQTc1bmlBa3drQlc1aEpWYmthMGhyQWFzQU8yZHBTNldQbVVYRFN4T21OTW5acjhpWVVpa1dkVFc2LXZ1WGR2Q2puUVgyaXZ6b0R4S3BHbDNaUzVmWXZQV0kydFRSeW5zbHhWQ25uTEZPT29XSDg3QTdBX05Ud3NUdjNXendtMWc?oc=5) |
 | Judge Rules Trump Administration Illegally Canceled Harvard Funding - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1TV09FM0pxb3N5RnZ2MjhBVkhjMWV2M1otNHNDcjViWTEwVk5PXzJFa080NW1CbHJ2U3BybUJSdXEyLTFfRlNzYzNzZC1FX2tSVUduaWRhbWNxZzk1T2hDcUpNdldMTjM1QmhEVmtwUVlVSVIzNDVrU2Vldw?oc=5) |
+| Epstein survivors urge action on Capitol Hill as GOP leadership faces pressure - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQRzNlQTc1bmlBa3drQlc1aEpWYmthMGhyQWFzQU8yZHBTNldQbVVYRFN4T21OTW5acjhpWVVpa1dkVFc2LXZ1WGR2Q2puUVgyaXZ6b0R4S3BHbDNaUzVmWXZQV0kydFRSeW5zbHhWQ25uTEZPT29XSDg3QTdBX05Ud3NUdjNXendtMWc?oc=5) |
 | Trump asks US Supreme Court to uphold his tariffs after lower court defeat - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5jNmFqNFhtX1RabUJ4WUx0Nm5jQ0h2UF9YQ3BKTjVWT0hCQkxiSHBlLURNd1dhRzNqdXRYamJCUm14RnZ1M3hYejcyRncxS1plVEl5ajAyNm9RQQ?oc=5) |
 | Trump ordered strike on suspected drug boat to send a message, Rubio says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUF9PQXJVWTF2RWFYR2JhTUlkeUpHdDdfcHo4cHppaUtERjRfZE04SGowdTdfNVdPRVp5ZDBtMEVJLXd1YlZpSlJJUkJWSkk0RW5qTnJ2WndkOEM3ZkJGNTZiSWViYTRCcnVlZk9leUNmQWw2SndKM0JsOWtnY2k3V1gtc25JbnpUT0tvQTkyT2k?oc=5) |
 | Old master painting looted by Nazis recovered a week after being spotted in Argentinian property listing - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxOeEpCZmsxODFpMG85blJkSXVRQlVxT0s3VFBiWi03ci14elptVWZoeFNCZWU0MVlmdXlFTDhfdHVtLVR6YlhpYVZmVDUwS0VZVGpsVlY1OVZKREZUMkhNaDJfTFozeDZoTG5lSWNvWFBTLXU1eTlIWUViUnA4LXllMnlWTjVfWHFMRVlISGlKcl9mVVlvbEM4SkdDM1FnRHF5bjBDU0pRMU1FTEhnNjk5cXZBRndFVmVkN3ltaUk2OG5pTDJXcWRIUTBpdG5nUlJkV1YxQW9Ycw?oc=5) |
