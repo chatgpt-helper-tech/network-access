@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 05:49:41（北京时间）**
+🕒 更新时间：**2025年09月05日 06:00:02（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | D.C. Sues Trump Administration Over Deployment of National Guard - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5sR2d0ckpLVndfN1lneEI3WGMtaFVmc0tYa0d5XzNPY2tndDFmeHBROTdKTDN3LUVhSGJSVUlta294anFNLWp6bHlLRVFaZTc1UnQ5M1FaZEZNVzhFMDBpWC0zV0dDWkN6TTBEYjB6Q3NCTXMyaTRXUVhBUQ?oc=5) |
 | Deadly Eaton fire ignited by Southern California Edison, feds allege in lawsuit - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPTUs0eHJLV1BISUtfUDFhZE9rYmdCbFBaSmx6M1dyRmlILUpLdkc5SDRZZkIyU3MwNWVoeWtac3Boa19JVlYxMDU4b3A4UERWWnpRZTlsRFlzdlk3anhuMmxTamNfMHJwYUtGOGNYQ1h5UE12WVdLRzF6RzZ3b09oX2UwVFZ0c0FhNWMtRXZFSWFrUzhTNmwtdTVGWHRLUHJTNGo3ZjFGbW0wNmNzbkNj?oc=5) |
 | House Republicans launch bill to extend health subsidies past midterms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPUXdRUmdMaERKZjJ5Z3MyeXlPNkNNTTl2QTBuWnNaMURYamx4enF5Z2h2U3BnZFoxWURveUtaaTFoUG5KOTlMZUZycU9LWWRJZkpvaTFMVC1tRUFicmVpMmNVckxCSC1FWEhfRWdPdGFNNkRXaGdfYXI4ZVM4TUlIdW9xUVp4RklTMzB0MQ?oc=5) |
-| Trump says US would be on 'brink of economic catastrophe' unless justices rule his tariffs are legal - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPcFdXc1pnd2k0Y3JNVXNhWTlwc2gxWWNmNVlMRkl2MG9OX0NINGx0ci1jMFJ0VXRSX3pxa2hrT010NnJnb0NVZm9xS1p2bkM5YlA3M2Zqa1BmcXdyczJFQXBRREpldTY1RXdndmlJbVpnejVzeldycDZIVm9kbVFjTVd5QzlvNUZrZm9sQW1nNXdtMlVaTUsyNWZLM2djNWdMYjZ5OTQ1bw?oc=5) |
+| Trump warns he would 'have to unwind' trade deals if Supreme Court doesn't uphold his tariffs - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQSF9XOEpDN2NEeThLUFpobGdSQVhPUENWZTdheDlydFBYR2RUTDYyUXp5TmxSVDdoc2p1ZG93aF9udXh4YU1zYlJlRk9jNW1uV3VxM295T09KX2hMdmxTRjFkLWNRcDBVQ00zUS1wUHZfazZsdTNuVG9WZ0oxSUFWNGM0Z1EwLWVBS1l2NnlR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
