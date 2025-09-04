@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 09:24:24（北京时间）**
+🕒 更新时间：**2025年09月04日 09:36:47（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Florida plans to become first state to ban all vaccine requirements - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1BTUtQYkV0YnQxc2RlZHNacW1RaFA4OVpPNzJUMGF4dWh4dzI5UEFob2VVMUowMlJjeGdUTE5KaEtYVXUxbGxwYjdDNktIQ1J1XzZxZzNlV0Rxd9IBX0FVX3lxTFA0OGNmWm5Va0pzOW51M1RoalVFOU00VWlaWkRwczg0VFJXUVd0UE53WXJsNlRtSjBlQWstQk5fdU5SUkNPN3VzTVRrU3JiMG5VSkpxbXg0UklCd09TOE80?oc=5) |
 | Trump ordered strike on suspected drug boat to send a message, Rubio says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUF9PQXJVWTF2RWFYR2JhTUlkeUpHdDdfcHo4cHppaUtERjRfZE04SGowdTdfNVdPRVp5ZDBtMEVJLXd1YlZpSlJJUkJWSkk0RW5qTnJ2WndkOEM3ZkJGNTZiSWViYTRCcnVlZk9leUNmQWw2SndKM0JsOWtnY2k3V1gtc25JbnpUT0tvQTkyT2k?oc=5) |
 | Flash-bang grenades and early morning raids: How Trump is planning to target Chicago - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPSDRWb1Z0OVZXQ3dfVGM4cGVTZVNkMmNub1RpeFFFczNRSkViN0pTWjZVbGlvN1lMSWRsZXFJalUtSjlBdXI5aU5FZVZJOFRHRHdoRXQ4ZHdHLWtTTVMtSjBXVHh0VzJRVHNKcEplREJkZmpnWHl3c053cm81NXBhc3pELVExS0pnZWtub2ItSmRUaklkTGJuNVZHQ05sNFNKWHNSd1BvclcwZzRmOEQySUR1blV5NWFjUXhvZVBROTRiR2dkV2NYd1N2RWM?oc=5) |
-| California, Oregon and Washington ally on vaccines in rebuke to Trump’s CDC - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQcVNNQ1BUQjkwY2RvUG93RUpOai1OV3BKZkpENVRIV2c2ZUtuNVJfTnM4U3I5bnJ1amFDanBNeWdmdUM5cEZSRzEzV2V1M0FTTUVXV000ZGRLeEFleUNtX3V2cE5wQ0JwOFRJVHRYYjQydnRrSDR4WWV2UFFRZDdPWnV5dUZhZ2JJbTZkRFBfdw?oc=5) |
+| Putin tells Xi organ transplants could offer immortality - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1rWjRTeThFV2tKNlpqdF8zNUhyRkFmay00dHhZZkR2c2NuVHJJempONTF2bEtDV1ZFRk1wTmR5d1RkaDlqQzdRaUhVTVRvWnN2bzNHbEx2QkVfeEMxZmFPXzliclM5Nno2UDg3d1JBQnY?oc=5) |
 | NYC Mayor Eric Adams faces a decision: A Trump administration post to drop his reelection campaign - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPaUJjMjVpTUkyM3BBczhUWDJSd2RDblpEZThHRmZEQmxJbnNJeko4XzBCa3hKTGY5SFVoWGdwa0N0OEg4d3hTdm03TVJwUk5jN2E0aVA0TXZGWWdUVkRTTGpTOERMZmsxVHpCQUM0LTBwNEpPYlg2aDFabWxaTTlkX0EzSWdGY0s3TWpDUWJ2RGhrUjhXaVdtRkR3ak1iWHNXSk1HUFdueV9zYUdiajJWTGZQamgwRDFaSFZwMVRId05QMmVPNV8tdkNMY2xQRTNsRk1V?oc=5) |
 | Over 1,000 HHS staffers call on Trump to fire RFK Jr. for "endangering the nation's health" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5DbURMSFBWcmFYWHgwcXozdHpEQmpkZV9namhVakN1MWwxWl9td1d0cmJCcXE4RW9BSDZNLV94TmZLb1JUdGRib1UwZnU5dWtHc0xxRGRoQ0hGbHU4X1ZlWHp0Y2gwUDFGYWdPYVg1a1pyQ0hNLVM40gF8QVVfeXFMTVJLa3RCZzU0UXd6Y3ptamtsT0hIYk5uSDA1LXgwaWF3djg5aUJwUktjVVBIVzg4Z0FGRTRNaXJ4Yk9wSHEyeEFOVFN2d0xnWGYzUFBhTFZpbUE4SDloVGxCWk0zSFNSY0tqUUZYSGdBSEk0dHg2Uk1NRktCMg?oc=5) |
 | Trump’s redistricting war spreads to Missouri and Maryland - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPcVRaWTFvTUI2UUFZY2NKUmhnUGtlcUJ2NDhtUkVhT182NzJWbFJSX2drVERfVjdUcHBiNmxVMU1la1hXR3A2dmhZbzliSTdIVElxZlZhV2txNXJCellaRVZJQ1BtdUlLZndUSENHZFhlNUxVQzk3ZnpkcERhUWZhWGtyXzF2aC1jcVB6NWlQUVZqYkE?oc=5) |
-| DHS opens immigration detention facility at notorious Louisiana prison - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNcjdoeVVCNW93aHc5YkhnQnlMQlBMUVhxd0JmMmxJcC1pSzFoQ3J4Y2FYVkI1UkUxZlZYbTI0V0dnc0NMQUVJTEN1NlVXOVBMcXQyZ21hWmMyZ0JpcWEtMkRhTkFaNlNDeWU4WmdxT1RkYVRGMkRHa3BDZlE0WE1qYWJHRmYxMzRTa2lWTElyZmlwTlFFMFFuMDAzaXE1YXhmVGxKYmtMVTM?oc=5) |
+| Senator’s Visit to Spy Agency Was Canceled After Laura Loomer Complained - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPSi1nV0R1NDF3ZkdkWTkySlRlYW4wVFhXY0xLQ3piUVNOaEg2QmpNaFJJbXBQYUc1MDFIZ0NLNjhrd1Z0X2pmbGpwMXlwUmpiNTFfSFJWb3N4UWRJZnJrQ2tmV0FtdWN0d0JIVnRtRWZtSUU5Yy1VX1JrNXZpbzNwRXhJemlIdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
