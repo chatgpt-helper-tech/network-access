@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 04:36:09（北京时间）**
+🕒 更新时间：**2025年09月05日 04:48:25（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | D.C. Sues Trump Administration Over Deployment of National Guard - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5sR2d0ckpLVndfN1lneEI3WGMtaFVmc0tYa0d5XzNPY2tndDFmeHBROTdKTDN3LUVhSGJSVUlta294anFNLWp6bHlLRVFaZTc1UnQ5M1FaZEZNVzhFMDBpWC0zV0dDWkN6TTBEYjB6Q3NCTXMyaTRXUVhBUQ?oc=5) |
 | Jeffrey Epstein discharge petition will fail, Mike Johnson predicts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOZkUtSGlYU3VvZ1IxTDVTTlhUcXpTdkxiOXRDR3N0T0xVQVdIZFNRMVJCejhuQVZPd3J0S1FnNExWRTdDZm0tdkltVFFOaEJFQ3BVZVNyMDYzSk1CbHFLa2Z1Rjd0blIzZjJkNVI0d1dGWmNvSkFLbmpONTVMOFhwVVcwSlRVb01Sd3llb29uZkpFei1fVmlIUlZfQ1ZTRHBHbGkwb3h1MHctRUN2ZnpR?oc=5) |
 | Lisbon funicular crash: Portugal’s PM vows swift and thorough investigation - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNamZNSFk1dHJTeVFyV2FNM29lUDUyYm5WTjRjWGJsbUZBVTRSeFZ1WDhqalFDX0oyaWhZYVAya0huRG1uamFNR3R0ZXluZG04bHI2ZUZ0UVFhX2pGUjJxYWlwbXB1clV3bVRBRmZia3RaVDBQWWZhRy0wd0NIV1J5WXl1X0I2UFpQa2tLVUJnV2Z5UWdRbEE1MjE5SUp0UXlfaUNyVHQ5amVsYm1NZWc?oc=5) |
-| Judge orders Trump administration to release billions in foreign aid approved by Congress - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQV0NiOHhKeUttMDNTZXFnM1VmUEdJRm5ILTRpeHd3RGZQMFVaeGRKVTF6ZTZ6T3FJU0VRazg0a1BBaXVfMW8wMzFHcjE4Wlk5NGhLa2VwTTljc2xnZlhocENZR1JsREpvZGttY1FleVpsTkZsWHNJaFdWbFNiT3Jzc3RDemF5Zw?oc=5) |
-| New York attorney general asks court to reinstate President Trump’s massive civil fraud penalty - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPV0p6ZExXSm9mM2otR24zRl9NTWQwN0FXN0JiZFJDeDVzU0dSdmZWR3Y4R09mS1ZfcThMYWxSVVZ5TVlNWV9tYnBkX1E2cmJhZ1RrWU5FcFlUTXIwVHVQYmJITktRZEgyYXZjZlVCVEJWek92ZGtWNC1BaG4yS0I1STMwVW1xdmI0bXlCbVd0YmpKZnJMN1dRTEUyLWxHQzJpOTAtX2pmMA?oc=5) |
-| House Republicans launch bill to extend health subsidies past midterms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPUXdRUmdMaERKZjJ5Z3MyeXlPNkNNTTl2QTBuWnNaMURYamx4enF5Z2h2U3BnZFoxWURveUtaaTFoUG5KOTlMZUZycU9LWWRJZkpvaTFMVC1tRUFicmVpMmNVckxCSC1FWEhfRWdPdGFNNkRXaGdfYXI4ZVM4TUlIdW9xUVp4RklTMzB0MQ?oc=5) |
+| Judge rules White House ‘pocket rescission’ gambit is illegal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOenRfQzBmNVJvZlNjODV0UmRzcnBhX0NGV2NWQ2VIcmlFYWtkNnJiZ2oxQi00VnRxR2Y2RDVJTXhYNUpmVWR4Y1h3Y2dsVy1FVzZUQnoxcG96SmlZX2djNFNRYjFkSGlEeGExLUFCQWpUaENmb1g3Nkt5aWdDRUxmTklzMEpHdEQtN2kybXVCbnkwZXZoQUZOQnd2TkNzbFJEMjlETk9hY1g4VFI5QTJiZjlGYXNsT2w1am5OMzdOUFpuS3BG?oc=5) |
+| Judge upbraids prosecutors for handling of DC surge cases, saying they have 'no credibility left' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQVThpUDJ4WXZ3ZkJyRlIyUUpCUlF6c291elpDOThKa04xOTRiR2hxUk9OVmIxTWlKRTNJalR1QW1RU1NCUWN2T3ZiUnFJb1Q4NDVQMUo3R0RQelJLc09QMWdRT2oxbkdpLVNpc3FoRi0ybjBhNjhJa3poa2NlYm10SW0ta1ZCQjJ6NWMtVVNRMG9JaThuanBXSg?oc=5) |
+| Medical groups call on US Health Secretary Kennedy to step down - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNQnZCRnJNUGJnVm9rWXJRM09vOVJmckdBUDBnLVNmS2pEem12andnalpHN1FWMVg3Q2pydHRjMDFKWjlNRUlWelJGQlVERlg3ZVczOUZsQ0RBeVlqWkZLVnFxTU01UXRRejJKajV6ajJOMWJIdzM3Y0k2TW9MRjBjcHdDY3hPZHNvX2JCcmhsSnQxTVlKSE9TWDFyeHk1S0lreFYtdFZpSW54VEVjWGdxVUpmclZUY2c5VDl4ZEZXSFBtN1d3RXpYYg?oc=5) |
 | Who is Joseph Ladapo, the Florida health official who opposes vaccine mandates? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9UalY3WFdKYXI5ZUNWLTVOWVhLVkRlZGwyLTdBSXg5Zk0tMF8yOVBBLUJvM1VwRU9FNjRfODNtX2h5Q050Tk9uQ2lZYkJIcUV0RER6YzBIVWFLZ9IBX0FVX3lxTE5DQVpIUmxIX2tEYmluRE9kQmJOaWkwTHF3MUFvbW5CRnVzbFFQY25sRk43RDRKaHBVc1FCWm1OdFdGbTFaSldQV0tnR2hYcmo5RzJIdE5JakJQNm9pVzIw?oc=5) |
 
 ---
