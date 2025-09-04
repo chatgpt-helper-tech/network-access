@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 17:48:17（北京时间）**
+🕒 更新时间：**2025年09月04日 18:00:19（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Martha's rule rolled out to all acute hospitals in England after hundreds of lives saved | [阅读全文](https://www.bbc.com/news/articles/c8e1zw28766o?at_medium=RSS&at_campaign=rss) |
-| It's 4,000 miles from Ukraine - but even this Asian city is part of Russia's war | [阅读全文](https://www.bbc.com/news/articles/cvg0e54z7x8o?at_medium=RSS&at_campaign=rss) |
 | Man denies deliberately driving into crowd at Liverpool FC victory parade | [阅读全文](https://www.bbc.com/news/articles/cwyl38115j2o?at_medium=RSS&at_campaign=rss) |
+| It's 4,000 miles from Ukraine - but even this Asian city is part of Russia's war | [阅读全文](https://www.bbc.com/news/articles/cvg0e54z7x8o?at_medium=RSS&at_campaign=rss) |
 | Fashion college campus, home extension and Big Ben tower up for architecture award | [阅读全文](https://www.bbc.com/news/articles/cx27nmj77xzo?at_medium=RSS&at_campaign=rss) |
 | 30,000 homes fitted with botched insulation under government schemes, ministers admit | [阅读全文](https://www.bbc.com/news/articles/c8606gp4711o?at_medium=RSS&at_campaign=rss) |
 | My toddler's constipation wasn't taken seriously until he reached crisis point | [阅读全文](https://www.bbc.com/news/articles/cgr9zg17n5yo?at_medium=RSS&at_campaign=rss) |
-| Pedestrians injured in bus collision in Victoria | [阅读全文](https://www.bbc.com/news/articles/c79vwrxn47eo?at_medium=RSS&at_campaign=rss) |
+| World's largest sports piracy site shut down by police | [阅读全文](https://www.bbc.com/news/articles/c62q4l0d171o?at_medium=RSS&at_campaign=rss) |
 | TUC urges chancellor to consider wealth taxes in November Budget | [阅读全文](https://www.bbc.com/news/articles/cx27nxex9dlo?at_medium=RSS&at_campaign=rss) |
-| Israel intensifies Gaza City attacks as UN warns of 'horrific' consequences for displaced families | [阅读全文](https://www.bbc.com/news/articles/c740lm33wyeo?at_medium=RSS&at_campaign=rss) |
 | Is £3bn Premier League spending cause for concern? | [阅读全文](https://www.bbc.com/sport/football/articles/cvgr35xgvjdo?at_medium=RSS&at_campaign=rss) |
+| How did Lisbon's iconic funicular derail? What we know so far | [阅读全文](https://www.bbc.com/news/articles/cn95l12epxzo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
