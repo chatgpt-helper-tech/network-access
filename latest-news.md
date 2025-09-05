@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 15:13:56（北京时间）**
+🕒 更新时间：**2025年09月05日 15:25:43（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Chris Mason: Heads it's awkward, tails it's awkward for the prime minister | [阅读全文](https://www.bbc.com/news/articles/cly92v6dln9o?at_medium=RSS&at_campaign=rss) |
-| Sir John Curtice: How Reform's capture of the Brexit vote could be enough to win an election | [阅读全文](https://www.bbc.com/news/articles/cwy853rj2kzo?at_medium=RSS&at_campaign=rss) |
 | Errors by machines leave 55,000 diabetes patients needing new tests | [阅读全文](https://www.bbc.com/news/articles/c4g7d3w7gdlo?at_medium=RSS&at_campaign=rss) |
 | David Bowie’s secret final project discovered locked in his study | [阅读全文](https://www.bbc.com/news/articles/c3dpdpvj083o?at_medium=RSS&at_campaign=rss) |
+| Sir John Curtice: How Reform's capture of the Brexit vote could be enough to win an election | [阅读全文](https://www.bbc.com/news/articles/cwy853rj2kzo?at_medium=RSS&at_campaign=rss) |
 | Trump to rebrand Pentagon as Department of War | [阅读全文](https://www.bbc.com/news/articles/cgr9r4qr0ppo?at_medium=RSS&at_campaign=rss) |
 | 'I feared I'd find her dead in bed' - teens harmed by spice-laced vapes | [阅读全文](https://www.bbc.com/news/articles/cj3l231xz5ko?at_medium=RSS&at_campaign=rss) |
 | Ex-Tory minister Nadine Dorries defects to Reform UK | [阅读全文](https://www.bbc.com/news/articles/cj9zld87y1go?at_medium=RSS&at_campaign=rss) |
 | Moscow rejects Western security guarantees for Ukraine | [阅读全文](https://www.bbc.com/news/articles/czxwl15w2qko?at_medium=RSS&at_campaign=rss) |
 | Boy, 3, pulled from funicular crash that has shocked Portugal | [阅读全文](https://www.bbc.com/news/articles/cgrqj7ydr0ko?at_medium=RSS&at_campaign=rss) |
-| Sunny weather and football boosted retail sales in July | [阅读全文](https://www.bbc.com/news/articles/c5yjd7v9xj0o?at_medium=RSS&at_campaign=rss) |
+| What will be Levy's legacy as his Spurs era ends? | [阅读全文](https://www.bbc.com/sport/football/articles/cn76l4z3m2mo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
