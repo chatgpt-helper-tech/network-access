@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 19:12:24（北京时间）**
+🕒 更新时间：**2025年09月05日 19:24:27（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Three British nationals among 16 killed in Lisbon crash, say Portuguese police | [阅读全文](https://www.bbc.com/news/articles/c62lmed42p1o?at_medium=RSS&at_campaign=rss) |
+| Henry Zeffman: Rayner's resignation is devastating blow for her and PM | [阅读全文](https://www.bbc.com/news/articles/cgmzg1gl2p3o?at_medium=RSS&at_campaign=rss) |
+| Three British nationals among 16 killed in Lisbon crash | [阅读全文](https://www.bbc.com/news/articles/c62lmed42p1o?at_medium=RSS&at_campaign=rss) |
 | Errors by machines leave 55,000 diabetes patients needing new tests | [阅读全文](https://www.bbc.com/news/articles/c4g7d3w7gdlo?at_medium=RSS&at_campaign=rss) |
 | Sir John Curtice: How Reform's capture of the Brexit vote could be enough to win an election | [阅读全文](https://www.bbc.com/news/articles/cwy853rj2kzo?at_medium=RSS&at_campaign=rss) |
-| Putin rejects Western security in Ukraine, warning troops would be target | [阅读全文](https://www.bbc.com/news/articles/czxwl15w2qko?at_medium=RSS&at_campaign=rss) |
 | The Duchess of Kent dies aged 92 | [阅读全文](https://www.bbc.com/news/articles/cwy5v4lgkqpo?at_medium=RSS&at_campaign=rss) |
 | 'I'll try to kick his ass' - Sabalenka wants 'battle of the sexes' game against Kyrgios | [阅读全文](https://www.bbc.com/sport/tennis/articles/c0m40npwezko?at_medium=RSS&at_campaign=rss) |
+| Putin rejects Western security in Ukraine, warning troops would be target | [阅读全文](https://www.bbc.com/news/articles/czxwl15w2qko?at_medium=RSS&at_campaign=rss) |
 | 'I feared I'd find her dead in bed' - teens harmed by spice-laced vapes | [阅读全文](https://www.bbc.com/news/articles/cj3l231xz5ko?at_medium=RSS&at_campaign=rss) |
 | David Bowie’s secret final project discovered locked in his study | [阅读全文](https://www.bbc.com/news/articles/c3dpdpvj083o?at_medium=RSS&at_campaign=rss) |
 | Sunny weather and football boosted retail sales in July | [阅读全文](https://www.bbc.com/news/articles/c5yjd7v9xj0o?at_medium=RSS&at_campaign=rss) |
-| Trump seeks to rebrand Department of Defense as Department of War | [阅读全文](https://www.bbc.com/news/articles/cgr9r4qr0ppo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | House won’t act to extend Trump’s DC police takeover - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOcG1adEwxNHJWTkcwU2ZEUTVfM1ZZOFdFeW9CcjBFNDhLd1ZRVDdoWDRpdzVzQThTMkZuRk1oWnJqZFdBZ0xlaDhVSXgzNThiVXhmcTZROXpjUjRJV1RGaFdwTXRxUHFKc2VDZ3hCOGxPMGJBcXlUYUNtWXNxdWdKcW93RE45RzlBNWxhUE1xWHBHQzVNbkFXQg?oc=5) |
 | 450 detained in raid by ICE, other agencies at huge Hyundai site in Georgia, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPdVlTNUxnZTlpOE0yQVRPdjZyQ244MTk0QURVMDAyN1BuYmJiSVhuQjF3S09uY2hLc2h5UkExbmt5aUlmZWctV3VKZWpuWGdLWERiWXBCM2VNR2gyUlBfdTV0S082T3ZlM05TTVNlV2p3UHI3ZU01YkRaUjg1YnlUUVVFUUY3bWdPWk1UUHY0N2x5WGlMWDJOOWg0QmfSAaIBQVVfeXFMUG94TWhCaF9Xc19YbVNmZFJUdS1GelBaVkFBLVBFY1I3cmptWVZ1czJlTG5QY3dOMzZoLTVoRXVUSXdJOWxiZnBMZGpvUzlqQU9ucnRtV3J1RGVpREFrMVZrT0d1aGRKbGhOeHN1bUxxOHFoOEpVZlY1OTVZQXJWb3VvTlpBazhMVHVqWnA0YkIzRVYzSlM0U3QzNmJlTVdSS1pR?oc=5) |
 | Trump’s maneuvering in NYC mayor’s race fuels push for Democrats to unite behind Mamdani - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQNGZUU2ZBMHFlb1Z1cTNIMldQX2xJb0pIQmxUWXR6VElYdmpnWjFoX2NWRmdFU1lXWEdNekxWS3NjLU1Cdl8zSjZRd2JXZVVGZHJRNTVPSGNTZU1RdTUyOXlod1h5WDhfQnAxNmNnQ0kxakNLaFlQckRTb2JqckhxU2dROWJONlUyODFPelRGNWJZM0JYNzZhTWh3UDR5MnRrNnpQb0hrYk91X1lBcXN5X0Q3M3I5cDVva3NoZ3lNRjJFODNsYVlBU1ZYblhzOTF1V0E?oc=5) |
+| Stephen Colbert Sounds the Alarm on ‘Death by Florida’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOMVcxR09jS19QMnVIWkRuc2FBTDExVEhBaXB4cXJGMzJlMTNvMFZEWXFLamdyNzhYMVVtZHZ6WU1CVlhRWTl1bmtOVEc2b2JGZWZCTndRek5KNkNsYVlaeWU0cWtySWRXODNpV0NoM21EUUZ2YXBIbDFZOWVnSXZldjNrM0FfYi10cmwzTjRaZlNWUQ?oc=5) |
 | Missouri Republicans begin redistricting to erase one Democratic seat in US House - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9VdWpScl9xZnUzVHUydTBDaWZFSnF4Tkd2YUJzR09ORklIaEM5eGc1TG5pYmRJaHY5Sm9Cd2RBU2RTR0JwSVNNVXc3ZnV2ckpvRkFxVlFCbXdNZEdQRzY2M1V4SXNLNzJuUG9KSG9HZS1uZkVWb2h2cXdUZkdCRUk?oc=5) |
-| Justice Dept. Accuses California Utility of Starting Deadly Eaton Fire - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5aZHhneXRvamx1MW9UV3QyNTdkWXRURTJGSHdkZWo3RlRsVFB4NUxkYmg0MF9qT0xaVHY0czN2VUk4VzhqQ1ZKbmx3TDNwRnB2X1lxQTR0RVV5ZXlkQm5HTlY4clhISGV3TTdSN1RkUHljRjZtYk93b1h3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
