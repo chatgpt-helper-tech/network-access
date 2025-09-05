@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 21:12:01（北京时间）**
+🕒 更新时间：**2025年09月05日 21:25:00（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Trump to rebrand Defense Department as War Department - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOanlVd1Zmcm5HS2FhZWhJckRQaWRlcktORGo5aTJWc2wxN0dDU0ZBckJoYkhiZ2NuTHUzZmpxX1d6ZmhNcTJFN0ZjTEhsVW5jSklBZkJkck5xaF8tZFMyZDdPU2RmWnBnV003NXhBMWdwUGs1ME9aREJHUEIydGpabE42SzJUWTct?oc=5) |
 | How a Top Secret SEAL Team 6 Mission Into North Korea Fell Apart - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOd0puUVh6M2lZVjdROTE4T3A5cEE4QmxNcjNHSEdFVmYzb3EyQkJTNE9GckNnV05RZVg2cEVQWHRTY3BBRUVXazR0b1ZzX1QybzloOFBhQTJ4UHFhRHgtRGJuWF9fdF9UYXFYbG5OYnFyeXlxcFF5VmpXMGVhbjgxbg?oc=5) |
 | Why Trump is targeting Boston and its Democratic mayor as part of his ‘immigration enforcement blitz’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxON0sxWlZzSkFLMGpqUXR3aE9yQ0s4Nm5GTVlRZGVyb0pINzNWZ1QxOVhSckZwMHFUQWM5Tm04eUlHODI1c1VDSGNLY1JpNEhqLUNWcEtKSUZ6eEt6NlJyZFVUOEpOZUpvSUdQX24xVUVXcUY1RWt0Q2dwYTU0ZzNpVV9n?oc=5) |
-| Trump faces criticism over to order to rebrand Pentagon as ‘Department of War’ – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxQYjRIVWtSNTlnVTFKQzZ3WlU0WlRwQnRrMUlDY0ljUDIzZVpaYTNEZWRJU2o0ODJEeW80dng3T2dEWldOTW04OUJ0RHZUWDdfNDFfeTZBV1VTcWk3RDM2enNpNWVsS1VYRUp4U25sQWRoUEp3ZjdobmpRMGxKXzJsQzdEQTBIUkpmNFRJd1ZKb1pJdlN4eDlMOTFTNTFOT1Z5VW1uTnlMelFZN1FrMXpEbEJEdU51eERZZ2VDVU1haHlIdThQcWhndGh4dGM1ZWRvdjVWaTZ6RkFYQQ?oc=5) |
 | Trump says Zohran Mamdani likely to be New York's next mayor unless 2 of his opponents quit the race - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNZXB3Y0hRTm81ZHpmWk5Kblh4MjlBUXlGRFZNSzZ0cG1LbDc2N2RqUUR1bS1RVkpORUo0emZMal9WM2NVTlJYZUU3Vmo2NTdKc1BiQlVjbzRKTlNVaUJfck1YdGFTamZfclY0LVg0NWhLSG1KcVFTV3lZYTlScjZWZVJhT0RBWlA1Z3l5ZGhJd0lsR1VmZGdYS0s5eUlOb1E?oc=5) |
 | Donna Adelson Convicted in Murder of Dan Markel, a Florida Law Professor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPSzBzWHFSdWRpM1ZQWVRzdGpqd1NpNVVuVnZmYTNtRmk1MGJiNUtqWlVRQklBRlVpcnROb00wajMzRXB0OVROR1RrY091TW8zTnI1V21uVGVIVndhQVlWeTFrLXRwZzZFa2M4WGlYeWR2eU03bV9FQnFQdDBsNFR1RlN3?oc=5) |
+| Trump’s radical agenda will ultimately reach a supreme court stacked in favor of conservatives - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQU3JSUTdURmZ5RzFjdEw4cS1fT1VzNGxQd3Jzdk1tRE43T253VE5uMHNsVlJ0STB6U0h1VWZBbVZtSzFJT1M3bGNTX2J4b1dvczBUc1pvOTdvUjBYWnRlUEs0UDQwTG5KSlN3bkRJUEMxX2tKLTdNR3ZCNTlMbzExWTJYV0dZanhqcUl3RDNiSXBvMFljbjgyMUkyLXBUaHpWUjN3enZWUjUybk05NmRn?oc=5) |
 | Democrats say they were left in the dark on Trump's drug boat strike - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFB5cjByY05XbTJGU0NwbHp6YTJMSE12RldmOGUtRzY0UE1LTDBJQjE2elJVSHYwZXQwZDQtQkowWXBSX0dlR2YxWVc3VEt6VS1nS0tTdFc2NS1CRV94MjY5VDJ5V1BmeTJ0bEtXTGxkQ0RRN3lNdkI4?oc=5) |
 
 ---
