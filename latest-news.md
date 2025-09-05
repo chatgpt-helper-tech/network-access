@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 13:24:06（北京时间）**
+🕒 更新时间：**2025年09月05日 13:37:20（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Sir John Curtice: How Reform's capture of the Brexit vote could be enough to win an election | [阅读全文](https://www.bbc.com/news/articles/cwy853rj2kzo?at_medium=RSS&at_campaign=rss) |
-| Error leaves 55,000 diabetes patients needing new tests | [阅读全文](https://www.bbc.com/news/articles/c4g7d3w7gdlo?at_medium=RSS&at_campaign=rss) |
+| Errors by machines leave 55,000 diabetes patients needing new tests | [阅读全文](https://www.bbc.com/news/articles/c4g7d3w7gdlo?at_medium=RSS&at_campaign=rss) |
 | Trump to rebrand Pentagon as Department of War | [阅读全文](https://www.bbc.com/news/articles/cgr9r4qr0ppo?at_medium=RSS&at_campaign=rss) |
 | David Bowie’s secret final project discovered locked in his study | [阅读全文](https://www.bbc.com/news/articles/c3dpdpvj083o?at_medium=RSS&at_campaign=rss) |
 | Ex-Tory minister Nadine Dorries defects to Reform UK | [阅读全文](https://www.bbc.com/news/articles/cj9zld87y1go?at_medium=RSS&at_campaign=rss) |
