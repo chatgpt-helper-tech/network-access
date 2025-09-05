@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 04:37:52（北京时间）**
+🕒 更新时间：**2025年09月06日 04:49:24（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump to rename Department of Defense the 'Department of War,' official says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNbGRpRnN1dDdsWkNNS3I4eDhmQ3JyZ05rM3NXZVBTcU5uc3pYMUdJTXAySlRaZ19IMWVkRDF3MFItQTE3b080YUt6WEV0Y0UwRTdHaEN4ZzYxUFJSenhLSDJVbzFSdmt6SHpCTERUQmJrRG1KZWlJbDRkM3JSd3pFbDlVdks5Tl95RnRrZWppM1ZaY2xZSXZqWjRZaGxlM21ISjdoX3lOYWw?oc=5) |
 | Putin threatens any troops sent to Ukraine as Europe readies postwar force - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQc1hnMHk3SlpPd1dnWkd1QVoxT1MyU1FLZUdhYTM4ajh3MnNPOUlhWDFOZmwwUS03MlMwcDdIS1o2TE5neE8xa2d1d0d1RXRtTEQ3b04tMzVQM2E3TDNtcHMzQUFlNFI3RktVSXN0NWthX2U3dEFNUkloZEg4eGdJc1EwcVF5U1hTSjFndTN1OVQxd2hrYURYLUdKbU04Zw?oc=5) |
 | Trump decries Epstein "hoax" despite Republicans demanding transparency - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE0yWG4zWGZ6MndTMWlZYzZveExCVWVLdDBBUVllNnoyUk96a2l1NlNhbjYxSy1JUnB3a2Vvc3dUczdnZ0c3YkxHdElwaVdsUmhJS0h4ZlpZSHBkcEtKeTF1QjU3RjR3VEQxYlFaODBoZngwMVk?oc=5) |
-| AI company Anthropic agrees to pay $1.5B to settle lawsuit with authors - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQOU5MakJiaTZfckFXaklWUkh4Nmhad0hCeEdmbHFhaGVEREJRMktubmdkQUZCdWJZR1U1UjR4MnI2eXV6MVUwS1FSZXpBRDNLM01TVWVCYTl6dWxueGxyQVR6Rzg5SFhnLTBOSElYSnBIMG5mZ1dxOU5PeVBUdW1zS2JhM3M0WUw3RUJSdlZKRdIBVkFVX3lxTE93SnJ5MEJ2bmY0QXNaVi1mLWhwOW9ZSnJTSnB0TGowVndic3ZuWkFJYkZnaUdSQXpnSF9WRko2RVM5R2dhQUYtbGpMeUdFaXZZcUUzaHhn?oc=5) |
-| Florida grandma accused of masterminding family murder-for-hire plot found guilty - The Independent | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPSWh6U2pvdWhzMDdpRmRReWF1RVBUM3l3bHg3dWRQcVpmN1IyeHozYnB6MndSYUpLQ0Y0VFUwRHVSenA4eEs5QXZVXzFYRVg4OFh4TEVVUmgyVElhT1RReE1vMWQ0UkZzRU9WUkEtSHpMUWpWSFBVN0hFOXJ0VkRZZGJhVG5kLXdkdS1iNXEyaGNiRDRudEVLSmhvQlQzV1hITjh2WndZNDVKQmxLTzRndg?oc=5) |
 | Republicans move quickly to support Ashley Hinson’s Senate bid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOQ2c4LW5Nei1iaHBJWGw1ZnNLTXMzell4VjAxWmNwTDY1ZTMyeVZjdllQdXN3NzBYbWkwNldzWGVUWDUtNjhYbXZVb0hJMF9DZzlROG8ydDJwaERRQm5tVTZyT3ZPRWZiSG1sVzBicG9LeHJhNXpqVDZPcms5N2JFMkRR?oc=5) |
 | Texas Rep. James Talarico will launch a Democratic bid for US Senate, sources tell CNN - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1TVjFaTTI1ZXdfMlRlN1V6cXBpSllOX1NQUzBJMHUwQlBybk9yY0VjMTZEcHFDclkwV3RmaGR1OUVTOHdIWldtdExOdktUSFR2ZmhzQm9nOTFoLWhXX3FlYjZrcnVpdHNvQUl2MlQ1RUZPRmtQLVE?oc=5) |
+| Navy diver is linked to decades-old rape cases in California, Indiana, Michigan and Ohio - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQZnV2SGtESlJ1NTJwenU5aFlzY0FyNk02aGp2b05GV3pwSnlXMnpkZllCdDFvZklJNW9hbHJSb1RfaFFOZC1QU1RhWW5ua1lFazhCOERWV0ZHblJWLTZPRDhSSzNsUS1LQktMdkJPc2YwRS1NRlRUdlUySDM2N09kb1hOUEtfQjluSk90Ujk3NUlqVU9nN3FIRGNreDk1bXo1anhfeDk5cVV0b3dGejc3c0lhZmpCYVVRdUHSAVZBVV95cUxOSU1pZS1KdVBIT3dJNFhjV3I4VC02WTZWaXR1ZEdEbmtCaVZHMjVmdUtDeThUV1NGaHZlNS1NRS1VakdTTDk4cGVXVldkdjczSExLdk5wUQ?oc=5) |
+| South Florida matriarch convicted in murder-for-hire plot of son-in-law FSU professor - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxNSVJLMVhReUkyd0FpeWJObTk0V3BMZ1MwZC15Z2lUamZLSWxIS3diZlYyVm1uaWpuMGpQSE15YndYZ21EVUp5SXU4c05BUDdOU3VPOUxnTHNMMUNmeGpSdHlDWTdsNk90NjNFOFA3Q2g0Nm41X01YTDJaRk91MHRtajV3bktaZ2ROelpfQ1FlbkY3SmhCaG9fTzRiYnNIUjBnVTRUZFV5NWoxNUR0ZFdWZWNtdnpvUHRfZGN5TGNn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
