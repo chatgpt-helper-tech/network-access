@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 18:24:24（北京时间）**
+🕒 更新时间：**2025年09月05日 18:37:18（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Sam Altman, Tim Cook, and other tech leaders lauded Trump at a White House AI dinner - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOQ0ttbEZHbGt3Z2NYcUNycjNiampKMUJhSTh4cEs1LW8yQTZsZGpXOGdVV05fMU1kMXpnanpPVDdIdXJGaGdiY0djWVk1MXVHdXRSMTl1RmM0LW81NFZqMnFPbUJxdEdpS1N3LTdwR25LZXIyaTBUNHFxZzZNSnVyQzFTU3g2Sk9Rd2w3VEcyRzdELVFlMlo4YmdhbzdWMmpzcFItRg?oc=5) |
 | 4 major moments from RFK Jr.’s contentious hearing with senators - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQUDR0azAtd05abUk2Y09SU3FVMVBSMWJEc1kxS3djc3pDUndGMURmOFpVZ1hEMlBWZlhXbG43emVQdmFwOHp3YlQyR29nWXpvWHprSTIzQ24wcnR4OVc3WFFoWVlGNWxETjR3ZkNnY3ZhcWQxTjhKSjVYdVE3YlRhcEdYU0dlMnRyRnl1eXNJUDNqelBudWExd2hLT0lNLVI2UTA00gGoAUFVX3lxTE1hTFBMTWhIOGFPbjlsN1BLQWtCNnQ2SlN4ZE8zM0xjY1ZDNnhYbGFqTDBLYTl2anBsaldGT2dWX3lBd1JKNkhIdDI0TGp0b29DeDdIV1ZRRFktWDZyVzZ6U0M2RFdhZ0ZCdHVDeGYzYk1UcG55cDZEeE9XTUtIVmZ0TnNvbHRBMmlnbXo2cTA5SGxPcDRjdUdOa29hOEZBckZESHdWQ2dxbw?oc=5) |
+| Sam Altman, Tim Cook, and other tech leaders lauded Trump at a White House AI dinner - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOQ0ttbEZHbGt3Z2NYcUNycjNiampKMUJhSTh4cEs1LW8yQTZsZGpXOGdVV05fMU1kMXpnanpPVDdIdXJGaGdiY0djWVk1MXVHdXRSMTl1RmM0LW81NFZqMnFPbUJxdEdpS1N3LTdwR25LZXIyaTBUNHFxZzZNSnVyQzFTU3g2Sk9Rd2w3VEcyRzdELVFlMlo4YmdhbzdWMmpzcFItRg?oc=5) |
 | Trump to rebrand Defense Department as War Department - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOanlVd1Zmcm5HS2FhZWhJckRQaWRlcktORGo5aTJWc2wxN0dDU0ZBckJoYkhiZ2NuTHUzZmpxX1d6ZmhNcTJFN0ZjTEhsVW5jSklBZkJkck5xaF8tZFMyZDdPU2RmWnBnV003NXhBMWdwUGs1ME9aREJHUEIydGpabE42SzJUWTct?oc=5) |
 | 2 Venezuelan military aircraft flew near US Navy vessel in 'highly provocative move,' Pentagon says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQYlJzSDN4emNKb3MwM05MZXJHNEJNYmxxeXVHLV9VOHhoeGhkVDhVNjhnVlJpakp5bTQ1bkxYeU02NmdTdU5hLTdicWIyUTdFLVREXzJUVDJ2ZU55YURleG1rc1ZueU40NU5sQXlGb2lLNDNvd0tPM2E3T0xqTElPUzY5cW9tSnlDeDVJS2d1N3FWNHNtMW5WVlk4R0Jjcmp2U0pkcV9IWG9kQdIBrwFBVV95cUxQWU5BYXNzeXBQN0hRQTF0MzRVLTM3YjNqUXZmajBGb05FM1NjazktX3hkT3hCbVVHNGpqeUhRN0ZIdkNid3MxNkpfNl9wLVJ3RE1NY1N2LWtlWDZVck9fWmRpdFhES0tGNnZSWV9IS0VRekUwZUxsX0hMUHp3Wlh4QzVITmd4VTdtd3pJbTdGV0VXdzJ6b1NXNG9iLXNoNWpzXzdYV1lQbEdkV0NjUUQw?oc=5) |
 | Trump news at a glance: RFK Jr made ‘false’ claims in Senate testimony, says fired CDC director - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQSXNYakRVMmJEai0yWldwbzAzcVZyeUJuTGVTaEdJdVhlZGZFVVRabmNoSEpZRmdfUkxrUWF6MHZyYnJZdXBpcUgtc2RWazdMMkRvbmtNNjhRbmVYU2xrc3BMVFA4dlBzZWtCU05UOHEzejZHclFoNklNTy0ybDRJMlprYndRYmRKd2Z5QXpjUzRvd20zc01qemNn?oc=5) |
