@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 23:13:53（北京时间）**
+🕒 更新时间：**2025年09月05日 23:24:26（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump to sign order renaming Pentagon 'Department of War': Sources - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQempuLVExSEhpcmJlaXc3MFVpajFFYUhYNE4tczhWWXlpQkJtVnVIbE5PTUgwM2VXd2F0andjV1RiYzl4eWlsdnpCeHpsRUFkaElicWMyRE9DeFBXa01DeVgzSkNPdXNxMmxMQ3VOeXlpT0g1d2JRclpCd2JEMW95Nm1VdV9GSjBsbkFvR2YyaHZMTjJQSXg3NC0xMlRrUGtxdEHSAacBQVVfeXFMT3RDdGpzdnQ0MmxJX3pOeEo2MDNveW1lWHppVi00dzBJVHlpeHUxUjZ5bXFzaVEzOTVHWmtJc2RMOEFUVkpMeU1pSDlzS0J6TWRUMHcyWHBGejRKUXJwWmxxdy1QWUFiQkI4LW5UdUt5T204NTcxV3ZHTlJCSksxSUpUdFhtMDBxc3U0TDQxcTM5SzFpVjFvaUpNVld6b25BSV8yRmpOUjA?oc=5) |
 | Trump's D.C. takeover has led to more arrests. NPR looks at cases of those swept up - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOdVZKZlhkdnNWcTNzZE9VRHBfelVxNWlnVlFzeHRnQU9yMkhud1pxeE9BRUY3ZjMyOWEyazJDcVRuYXRzTzBUZUgzXzlWTHdxbE02V2lzTEMybUpYMHpCTFR4SlRnMlU4bWlfMlBDTGl1X0dyTG5KZFgzOEJNZmtiRkZudDYyQjNvbWt5M21zdkF2VFU5a1lr?oc=5) |
 | Why Trump is targeting Boston and its Democratic mayor as part of his ‘immigration enforcement blitz’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxON0sxWlZzSkFLMGpqUXR3aE9yQ0s4Nm5GTVlRZGVyb0pINzNWZ1QxOVhSckZwMHFUQWM5Tm04eUlHODI1c1VDSGNLY1JpNEhqLUNWcEtKSUZ6eEt6NlJyZFVUOEpOZUpvSUdQX24xVUVXcUY1RWt0Q2dwYTU0ZzNpVV9n?oc=5) |
+| Supreme Court's Barrett says US not in constitutional crisis - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNNjNpa1ZCbF81XzQ2ZllrMmJJYVJLRjVDd2hXWXVLZDNKcFlaQzEtWllZZF9VZGhSTFNMaUp5dHFITWRsMlhaRWlqWlloWW9vUkhpV2MxamhLSGwtb2pQMERKc0xqbzdkMThJZUltaWhlX3BocFpjckJmaFpQWmY2bERKdGxaR2lKUzNYOVY0VzY0OVJjWW9zZzc2VXpudWU5b1NN?oc=5) |
 | Talks Between Adams and Trump Adviser Center on Saudi Ambassadorship - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPQzE1VU1PWUpHOWkxUWxBM0hvZzZ3R0VvWUtIdkpMaXBzbTduWi1sMS1zZzFfTG1aNzZBTTJ5RmFub2t1ejJCZVhaYmFOSE1aWVhXTVJBUktDR1VLX3dBMmw1a3JOS29mTzc1S21MeDRqdW4tZ0RUOXctOC1XVUxMYUxGYWFqTE5wTlVz?oc=5) |
-| US commandos killed North Korean civilians in botched 2019 mission, NYT says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxOOEUwN1VmUkE4QldyZ1lFQzAtUEp5SURhdXlEQlNmYVEyUVMzTzRHSjBtb3RTUFU2NVdJeGVpeG9ILVZ6NHJrWnhxclhlclJwNlhHdHhOc2xrX3RySG5qeEIwVlVsdFRjVDBFTlhBZHdQdzJhMjlZQU5rdW1mWjJCbDAwS3BDTXJ0Q2JfY09remxxY0hvUkhWaTVyUlU4RjJnSXphWjE4RnJHYjJDVlhCWHZ1Q1N6WEYySGxwNGpqS2tYTVU2YmRVRjVn?oc=5) |
-| There Are More Unemployed People than Jobs Available in Trump’s America - splinter.com | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPbE13ZTlFMlZScWlROHNXOTBhVnM1NmZsSTZXWWdjaGdPTlVmMUR2dFMxTHZQTi1hdGZGX0ROa25iTUxLZllHMllTVHRkQWhCY0I4ZnlxclgwNFVleTNEbWlrMldpdDFidDB5aktCUWcwZlNFZ2plZEpUbXJQbUZTUVRhMklNcUxHSnNndUh0eE82OE05M3lTaF9EVQ?oc=5) |
-| South Florida matriarch convicted in murder-for-hire plot of son-in-law FSU professor - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxNSVJLMVhReUkyd0FpeWJObTk0V3BMZ1MwZC15Z2lUamZLSWxIS3diZlYyVm1uaWpuMGpQSE15YndYZ21EVUp5SXU4c05BUDdOU3VPOUxnTHNMMUNmeGpSdHlDWTdsNk90NjNFOFA3Q2g0Nm41X01YTDJaRk91MHRtajV3bktaZ2ROelpfQ1FlbkY3SmhCaG9fTzRiYnNIUjBnVTRUZFV5NWoxNUR0ZFdWZWNtdnpvUHRfZGN5TGNn?oc=5) |
+| How a Top Secret SEAL Team 6 Mission Into North Korea Fell Apart - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOd0puUVh6M2lZVjdROTE4T3A5cEE4QmxNcjNHSEdFVmYzb3EyQkJTNE9GckNnV05RZVg2cEVQWHRTY3BBRUVXazR0b1ZzX1QybzloOFBhQTJ4UHFhRHgtRGJuWF9fdF9UYXFYbG5OYnFyeXlxcFF5VmpXMGVhbjgxbg?oc=5) |
+| Republicans move quickly to support Ashley Hinson’s Senate bid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOQ2c4LW5Nei1iaHBJWGw1ZnNLTXMzell4VjAxWmNwTDY1ZTMyeVZjdllQdXN3NzBYbWkwNldzWGVUWDUtNjhYbXZVb0hJMF9DZzlROG8ydDJwaERRQm5tVTZyT3ZPRWZiSG1sVzBicG9LeHJhNXpqVDZPcms5N2JFMkRR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
