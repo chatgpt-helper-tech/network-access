@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 06:00:57（北京时间）**
+🕒 更新时间：**2025年09月06日 06:12:16（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Trump signs executive order rebranding Pentagon as Department of War - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQVmFJY1hzNVJkdzFob0pWbDR2LXc2LVdJMS1IX0xKSFRjcTNZTTd5MTJ6aWJRcmtkZjB1SkwzczhQbWhiSTNMU0JlT2dNb2dnN0RaVXhjSGtBd1kxSE1qUnRIcU95QUQ2TjZ2c2JlNlFLTWRKXzQ5NWV5X19ha25zMF84MnZjV2ZqbW56T1J6eUl2NjQydlI3bEtiYVYtRlM1b293?oc=5) |
 | Chicago gears up as Trump troop deployment looms: ‘We aren’t helpless’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOMWlJVzJIVE5oM0tIYTc0Y0Q4b2w3OUk1SDV2NWF3RmdpTmtzN0ZaQjAtaFJVTXh1enJIay1pSlZFZnQtQXVNQXpUOHZvYkJZdkRPRVo1NktFaEFlTjg5NU9ka3IyUzhWV0hWcDVwMV9sMDZYYlU2OWZCZUh1UnYxSDl2bjhFVVdVSWFRTmY4VW5sU1hvTEFB?oc=5) |
 | Putin threatens any troops sent to Ukraine as Europe readies postwar force - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQc1hnMHk3SlpPd1dnWkd1QVoxT1MyU1FLZUdhYTM4ajh3MnNPOUlhWDFOZmwwUS03MlMwcDdIS1o2TE5neE8xa2d1d0d1RXRtTEQ3b04tMzVQM2E3TDNtcHMzQUFlNFI3RktVSXN0NWthX2U3dEFNUkloZEg4eGdJc1EwcVF5U1hTSjFndTN1OVQxd2hrYURYLUdKbU04Zw?oc=5) |
-| Trump advisers make push for Eric Adams to get ambassadorship to exit NYC mayoral race: Sources - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQQWVRRDN0N1ZCYWFlTDNHLWZjVVNobmJKV3VmTFA1M3NZV29mTExtV0pRQzlvdVBIQ1JxeGV6TVRrY2liVHZyaHF2SkN5RDN6OURpeWFEZm1TbVA2cnd1WFZQS0E0a1BXcl9xZ3g0SGlTZ3VEdWpkZmV5c3hLUVhNcnN0MUdxbzNSVEZIcHVSakc5RzJZSXJYMTFjNU1KbW1tRUHSAacBQVVfeXFMTzU3UGFXc19WRW41aGQ5Snd5M2lNQzA4eXRWMFotVEJUNV82REpGX1JUaUxwdlVtMEhsSmZ4SF9IV090eG1Sd3pYU0o5cUFIVHpHYUlzNE85NFFPSnF3bVFXU3daNUJubjNqR0taUDFITGRQY0NLV0dEUFh6eUZhYWJkeTNUTEYzWGF2b3JGTVVGVkhzb2VWOTBvMDh6SjJiaWVYaEhtS2s?oc=5) |
+| NYC Mayor Adams insists he's staying in the race, blasts "two spoiled brats running for mayor" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNQ20yQXU4TkFTRzJVVmlTQ2NCam5JWDZVYUV0WHdYTDNpTHdmSHY3Sk04VHVJb0JtV0FrZDM2ZU52VjFTdkFPRm11ODRUMDNid1ZTN2wzTmJJcXRYc2plZUU2cThtVy1FOXVoMDk1c2FJT24xemdpdWJBSE5hazExS0x4RQ?oc=5) |
 | Trump decries Epstein "hoax" despite Republicans demanding transparency - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE0yWG4zWGZ6MndTMWlZYzZveExCVWVLdDBBUVllNnoyUk96a2l1NlNhbjYxSy1JUnB3a2Vvc3dUczdnZ0c3YkxHdElwaVdsUmhJS0h4ZlpZSHBkcEtKeTF1QjU3RjR3VEQxYlFaODBoZngwMVk?oc=5) |
 | Judge blocks Trump administration’s ending of legal protections for 1.1 million Venezuelans and Haitians - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBLMnpaWk1tYW5wcDZzQ18zSkNhSzV4YmEteDZEV2VyOTlxQ0thSlAtNmxEeEtvMkp3eG9SbEthdV9ITmJ1OENTU2N5OWdRV3A1WTU3RGM5MC02U3NCWm5ROFJwTWFqWHppTEZNR0REemE0TmMyQTFtbQ?oc=5) |
 | Donna Adelson Convicted in Murder of Dan Markel, a Florida Law Professor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPSzBzWHFSdWRpM1ZQWVRzdGpqd1NpNVVuVnZmYTNtRmk1MGJiNUtqWlVRQklBRlVpcnROb00wajMzRXB0OVROR1RrY091TW8zTnI1V21uVGVIVndhQVlWeTFrLXRwZzZFa2M4WGlYeWR2eU03bV9FQnFQdDBsNFR1RlN3?oc=5) |
 | State Rep. James Talarico to jump in Texas Senate race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPXzdMUnFBLW5sb21ndnVkYkNPWW9yZ0w1bDkwdWJabG84YzhzUkoxTzVTSG5TcU9xNVlGX3V6NVJoWElHeDdsWE9Odk50MjJ0OGE4Mmd1Y3hMOVBGUW4xOWt1cmI5Uk9FVzhtWWdueHcyeTNrWWk0dVUzQzlwdmNZTHlKTE9yT3M?oc=5) |
-| Republicans move quickly to support Ashley Hinson’s Senate bid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOQ2c4LW5Nei1iaHBJWGw1ZnNLTXMzell4VjAxWmNwTDY1ZTMyeVZjdllQdXN3NzBYbWkwNldzWGVUWDUtNjhYbXZVb0hJMF9DZzlROG8ydDJwaERRQm5tVTZyT3ZPRWZiSG1sVzBicG9LeHJhNXpqVDZPcms5N2JFMkRR?oc=5) |
+| Trump announces plans to host 2026 G20 summit at his Doral resort - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9vYVpDbmhyNVZRaGpnOUoyX1hLTlB1bnA1MXF3eEZ1QVdEQVRHeUZpUk1nakR6em0yZk0tMkVpTFhGWTRNV25rRWNxX1VtdV9mT3VCOTdCU0RZWXBzeHFYRHplODVJWFVDR1N3clZkRzBhdGJMN1VveHMxT0fSAYIBQVVfeXFMTk8yaXpzWmVWRU5xU0w0WDhHWjRZaXBndElsenJic2pKQThqZjNEUUtYTzgxN1RybmlyTE9IdGpHWFk1Y2RhbnktV1VTdm9WRG5WSm1oNm5GaTZ6TGJuejg2ZWVVc0h2cy13SE5MLUhTVzNSNG13RzI3N1dmeTQ3U3RfUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
