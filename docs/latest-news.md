@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 15:01:04（北京时间）**
+🕒 更新时间：**2025年09月05日 15:13:56（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | New Congressional Map Clears First Hurdle in Missouri - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOelFrWWxXM094Ty12UEZFYjRmRmZpNEZzVy1kU2VoOEtJb2MwLUgzbXNEWHZiZmRCRTVOVGdMQl9URHQ5OVNZd19uVERfMWhvQm0wUEx1cS05OU9XeThqLTA0MmVORFVvaW40aDVVNjJGVHg2RUhab0xkTk0xOThHaUJiMFRvTmc2SC1hd2NuWk1EU0djNlRrZVVrUUw?oc=5) |
 | Northwestern University President Michael Schill resigns amid funding freeze - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQOURLVEs3My1nTGhVU002djFGX0dXQ090UWI4T0NXOUxOcGNkQk01TGNJMlh2QWU2cldBcURjUTNZRVoxdmp3eEdnaDhLaVJBT2gxSDU4dFFKVGdfc0VsUGJJMzdjc3VmZEZuMmpSX2N0bkMzR3J6enlTNTVtYkRyZlVGdlAycDhKbXlSXw?oc=5) |
 | D.C. attorney general sues Trump seeking to halt to National Guard deployment - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQalRDYkd5T0F3LU5uY3c0SW5idG1pQWJfZEZBOG5FYzVUd0Y2d3lZakF2NFMxcWZzcEdGT1BKSWVrVmlrbF9IcWpVM0o3SEZ3VmduZ3ViOW9RZV8taFRBbG82MzdnRnhRR3BHUHJLNDE1ejh1Wlg0ZHE1ajh0U0RBbFQ0QV9vaWNZa05sdQ?oc=5) |
-| Trump's DOJ sues Boston over immigration enforcement policy - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQaEhPVE1oVXBiSk1KaEVub1FZOWJMaWo3Mk93cm1zb3lTaVdIOEU3NUtGWnhpSDYxdE9oNmtXWndfSEZWRGhDLVJMT3V2ZTIzY1ZTRzUtekpJUXZ0UEV0TG9ibjYzSzJwQ2lFbzRjaUUycFk3X28xaUNZajlGc1hFQVRwbXNhWmdVQm9kdDJvV1BFTHRncW8yZWgxZjIzQ3ZuM2RMY1lwNGRmdw?oc=5) |
+| DOJ mulling rule that could restrict transgender individuals from owning guns: Sources - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPUnRMVXRvVmpmOTFNaExfVlNkVThUQTRuTk5vaUZLOWtYYm5GRHNVWUlVanV2Sm8wYW4wd25XRUxKYWpMR1BVcWgxRlBSYkh3ZGg4ZUYyaFVJeV9lTW9iX19fTHU5R1ByQXMzdF9jV0Z5SUNtMjNHUlp4eDJuY09Yb1BET3RGeXVEVGdud1lDZGsxYldNUHRXbklmcmNudFJ1ODBDLVVWYUx6UdIBrwFBVV95cUxQVDlCSzNiUHhIekFvRkJnM2Qyalp4cDZveDBfOHdPdHRaSnRnYnlqWjZ2eWs5Q2JyeGxjbFVYWnBaLVJvbkNSeGNjTEc2aC1ZcFlkOFNEVFRYanlFbVphVnhTVU9yejBmRGlGbjRnVmNlOTMzVHpiR0RXcGxBcUYwdnBUdkhaRTBSQmk5MmtvZ1E0R3dwQms3R0Z3dVFDZVNMcGFQQWptWWpLTERWbzFR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
