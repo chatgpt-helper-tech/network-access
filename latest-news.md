@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 21:37:48（北京时间）**
+🕒 更新时间：**2025年09月05日 21:48:41（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | How a Top Secret SEAL Team 6 Mission Into North Korea Fell Apart - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOd0puUVh6M2lZVjdROTE4T3A5cEE4QmxNcjNHSEdFVmYzb3EyQkJTNE9GckNnV05RZVg2cEVQWHRTY3BBRUVXazR0b1ZzX1QybzloOFBhQTJ4UHFhRHgtRGJuWF9fdF9UYXFYbG5OYnFyeXlxcFF5VmpXMGVhbjgxbg?oc=5) |
 | Talks Between Adams and Trump Adviser Center on Saudi Ambassadorship - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPQzE1VU1PWUpHOWkxUWxBM0hvZzZ3R0VvWUtIdkpMaXBzbTduWi1sMS1zZzFfTG1aNzZBTTJ5RmFub2t1ejJCZVhaYmFOSE1aWVhXTVJBUktDR1VLX3dBMmw1a3JOS29mTzc1S21MeDRqdW4tZ0RUOXctOC1XVUxMYUxGYWFqTE5wTlVz?oc=5) |
 | Jury convicts Florida matriarch in murder-for-hire killing of her former son-in-law - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNNmtJX0I1ZjhDaTZaZTNpVFcyWXZPdFpnYWx3VXcxajd4UkRFUjlLY2tiUnc1c1otTWhVSGVneVZWaEpkVWFnalVRYWdPeVpXeEFWUjFHM2NOUmEtYnNjMmp3VWdCRU5qVWl0ZGhDNXJCa1UtYnowaDlLSDRKOGZMNlFscUlwU19kZzQ1RGtyUWlwb2lOQjc1N1VGUFpNY1Q5SmNnRGV3akxIZ3M2YnpEdlUxSG_SAVZBVV95cUxNNTZ6Y2U4TUFEbld1VFd3aW9CbWxOMWNuZjdRS1lUSnNLMndZOVZ1SEpVWGtVa2xocHdlMWM4QUpKWWpJcmJReXBqYmVncHFlN2g0VTZfdw?oc=5) |
-| Why Trump is targeting Boston and its Democratic mayor as part of his ‘immigration enforcement blitz’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxON0sxWlZzSkFLMGpqUXR3aE9yQ0s4Nm5GTVlRZGVyb0pINzNWZ1QxOVhSckZwMHFUQWM5Tm04eUlHODI1c1VDSGNLY1JpNEhqLUNWcEtKSUZ6eEt6NlJyZFVUOEpOZUpvSUdQX24xVUVXcUY1RWt0Q2dwYTU0ZzNpVV9n?oc=5) |
-| Democrats say they were left in the dark on Trump's drug boat strike - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFB5cjByY05XbTJGU0NwbHp6YTJMSE12RldmOGUtRzY0UE1LTDBJQjE2elJVSHYwZXQwZDQtQkowWXBSX0dlR2YxWVc3VEt6VS1nS0tTdFc2NS1CRV94MjY5VDJ5V1BmeTJ0bEtXTGxkQ0RRN3lNdkI4?oc=5) |
+| Trump faces criticism over to order to rebrand Pentagon as ‘Department of War’ – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxQYjRIVWtSNTlnVTFKQzZ3WlU0WlRwQnRrMUlDY0ljUDIzZVpaYTNEZWRJU2o0ODJEeW80dng3T2dEWldOTW04OUJ0RHZUWDdfNDFfeTZBV1VTcWk3RDM2enNpNWVsS1VYRUp4U25sQWRoUEp3ZjdobmpRMGxKXzJsQzdEQTBIUkpmNFRJd1ZKb1pJdlN4eDlMOTFTNTFOT1Z5VW1uTnlMelFZN1FrMXpEbEJEdU51eERZZ2VDVU1haHlIdThQcWhndGh4dGM1ZWRvdjVWaTZ6RkFYQQ?oc=5) |
+| Pentagon: 2 Venezuelan planes flew near U.S. Navy ships in "provocative move" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNWFJVclI3ekxiUTZmaTdqSFQzOVVQTlFkaWt2TUpySFYxSnJtSUpvZXdLNDk3UkhBOHR3UVJjN3M0eWdvVmhkX3F5NDNhYm93dUNxM2tjQ0ozNUVpaGZpUjF6RTI0SWhkZFF2M2lEUG9iZTFuLXR5RHhUS012cE0yY3NzT2c2TEE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
