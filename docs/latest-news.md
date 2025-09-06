@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 05:01:07（北京时间）**
+🕒 更新时间：**2025年09月07日 05:13:07（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | More than 425 arrested at rally against Palestine Action ban in London | [阅读全文](https://www.bbc.com/news/articles/c62qrmpd7l5o?at_medium=RSS&at_campaign=rss) |
 | Home Office clearout as Starmer reshuffles top team | [阅读全文](https://www.bbc.com/news/articles/cj4ydgr0nwpo?at_medium=RSS&at_campaign=rss) |
 | Starmer resets after Rayner row, but Labour turmoil is a gift for Reform | [阅读全文](https://www.bbc.com/news/articles/c39rk4jlpw7o?at_medium=RSS&at_campaign=rss) |
-| Snapped cable caused Lisbon funicular crash, investigators say | [阅读全文](https://www.bbc.com/news/articles/c2dnp9pre2lo?at_medium=RSS&at_campaign=rss) |
+| Cable snapped before Lisbon funicular crash, investigators say | [阅读全文](https://www.bbc.com/news/articles/c2dnp9pre2lo?at_medium=RSS&at_campaign=rss) |
 | Israel destroys second high-rise as assault on Gaza City intensifies | [阅读全文](https://www.bbc.com/news/articles/cz9jpzql958o?at_medium=RSS&at_campaign=rss) |
 | 'Keep your cool' during emergency alert test, government says | [阅读全文](https://www.bbc.com/news/articles/cpw15l5n78jo?at_medium=RSS&at_campaign=rss) |
 | Jamie Borthwick axed from EastEnders after 19 years | [阅读全文](https://www.bbc.com/news/articles/cy9njexd88qo?at_medium=RSS&at_campaign=rss) |
@@ -30,9 +30,9 @@
 | What to Know About a Rapid U.S. Military Buildup in the Caribbean - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPTVhWamhFbDZFY1ktMkFfaGVBMUtNTk9jT1hrMXNVeExtNGJ1XzYzX01KNk5iMno4bzM4RXE0bEROY0NtbU54S3RudnFJaURyaFVoT2ZMNFpJVVJkOFhPam1sdWtmN0tuM2V0anNMdzVxaV9MM2sxLU5vY0dOUGpfZlV6QzRfLVRfWlNR?oc=5) |
 | Over 25 million under alert for severe weather, flash flooding in Northeast - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPVWx1bFlrYkoyNGZ6MXBRN2VhLUxPdzY3b3AzeVlzNVlSMk5DSjYyQVd6aXkwMHdVeWRuWjVXTTlhQnRFVHdJMmplck82MU9ZTDJQOFBsWnFocG9FSGd3b0hta3JtazlpRXlaZEVZX3RlNEFnemtDV1ctcWhjdXktRzRmRVRVZFh1cldGUzJtRTRyMi1ObnUtR1RvdGZ1WTNDc2N30gGoAUFVX3lxTE9RQnhkOERlTTZ0Z2REVUxLbXBCdDQwcmpjRXhXU0xWS29lYzlQdWV4bFIzd1hJcFJ5YWJIZkpHRzFFU3pZclRlZVZZZlJWWS1tZHFWSUdlSHplalA3aVZiZ1Z5TTdJZnRWMGgySDdhU2RyRmFWM2s3MndzaUpOdHN3SG9Zc0VTQ0dpSXJUM29jejBlYTVQY0hqS2FJNGJPQjV6THZHXzRBNg?oc=5) |
 | Chicago's Mexican Independence Day celebrations shadowed by Trump's threats for the city - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPdFYwUXF0Mk5iNld6YnZsN01td2k1dEd6TnlWOWhFTHNGaVJRMXJrU1VFbnhZVDMxYUJibmNQLTY1dUgtaEtQWDYxcExJTlU2a0F2b0NXYy1CUVZ5czkwOWRQOTVWa2xUQXQyVHNCV3F2VWdpVnlyTWtZekxCcEVEaFg3NVN0NDVRaTJLYkhpRFZFcHhqX2RwNDRlemJ0R2c5c1djc2J6bjJpdXMxOVlMbEZpVW1GZ0pl0gFWQVVfeXFMUDNOZVpWQ2xFZmVJbU5BZEQyS3ZHVTc4Z0NMa0VlVnFPTVhuSDRtbFFOS1ZraE02dmJzaVlfM2VqZ2Vncm9mclRpaEpXY3JRX0dwRDlnaVE?oc=5) |
-| ‘It’s bad politics’: Why California Republicans are avoiding Donald Trump — and muscling in behind Arnold Schwarzenegger - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPajN4RDUxeDJEd01tekktTV83QlpZbzNvbTVzbEdxRUU4Z3ZDdDR1OU52enhSM1FMS1BkUVlUcVBpLWFLSldWa25LOXVFNkZnN0g3U29Zem1lclZ0VHhPa1NHaVdRV3J3TkxtR1p3U2ItTndxd211WURoQVRsYUtwY190RHUyeGl1bVFNckh4eXdCYlA5R1kyOVItQktkdm9VOFFBbnRR?oc=5) |
 | Robert F. Kennedy Jr.'s family calls for his resignation - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFB4WXhFRXlJckQ3X0U1ajQ5QVdKLTcxanlMZkdyeWVmWWg4ZERRV0lOTlVrbENRR2FfdUg3NHhIMHA4OUZfRndNZFdsRFJfdUVVRS1Yd2lvTmlJSXR1czF5WFBFQm04NjJoSGg1VEZZMkQ1RE9HN2ludTB3?oc=5) |
-| Adams refuses to leave NYC mayor race after reports of Trump job offer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9MVW45UzJCVXJ5YUZJNTUwSFNNdVBRMTAxakgxVFdHZi1uWGRvZ2lzYjFJR052ZTBiRmFqbWZ3WHEyb2tiejZfUTRuNWNmNHVNN0VUX1dVNDlPVVVjeGxpUVRpeUtiTXgyNGYxZkNuYWFHQXl0Vk9z?oc=5) |
+| ‘It’s bad politics’: Why California Republicans are avoiding Donald Trump — and muscling in behind Arnold Schwarzenegger - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPajN4RDUxeDJEd01tekktTV83QlpZbzNvbTVzbEdxRUU4Z3ZDdDR1OU52enhSM1FMS1BkUVlUcVBpLWFLSldWa25LOXVFNkZnN0g3U29Zem1lclZ0VHhPa1NHaVdRV3J3TkxtR1p3U2ItTndxd211WURoQVRsYUtwY190RHUyeGl1bVFNckh4eXdCYlA5R1kyOVItQktkdm9VOFFBbnRR?oc=5) |
+| Trump seeking ways to take over 9/11 memorial in NYC - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE10OTh0Q05CTnFTcjlNUkJmYzI4MURadmpCYzZxUmNRbHY0emE1MzhVeUdhV2tCeUdsZld3aEVna0RzNzZHX3V3Q3BWSEd2d2NFSjlQelZJT3ZRRE9UaWFsOHpBYmNRbHBha3NtU3hlQVFydFZZRkNhRTJNWkg3QQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
