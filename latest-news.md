@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 09:12:13（北京时间）**
+🕒 更新时间：**2025年09月06日 09:25:02（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Former Alaska Airlines pilot who tried to shut down engines midflight pleads guilty - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQOEo2SVpTaTZTOXdHdDNOZ2JnVElmUTJ6amtOcnR5ZXg4SVZ5M3dfdW9uM19wWEd0WGlCeTNPZWxYUHFBX0Iyek1QZnRodmZEV3dzZGwyb09aVDFUSTJXdjQ2V2JBTE9fbVZfNk5DNlNEM0FWNXNQWlU1TkJmcmtOVnp4aktMSDBJMUpldDZfd0lCQmFzUDJpYXpEUGxQVGx2MmVoRGp30gGrAUFVX3lxTE1PckRzcTBvLTdfb3Zsb3EyZklreU16dEhab0c1eG9ib1hUTF9CVHUxQkh5b2lLa3VXc3BMSVc2OFJQQUxJekstVEswQzRSbmlzcWlKUzZ3N1BXYlJTZHpad1B0NG9kMGxUYy1pM25MdXVxTnNJMnlTMVl1RFNiNFBzeGViVDVGRTNCem1TcGRQb3J5MHBnMDROM1JaZi1QcXkxeW1TZ1ZQRU51dw?oc=5) |
 | Texas Rep. James Talarico launches Democratic primary bid for U.S. Senate - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNc296UTBQTTVDOE8wMWRTejJhZFIzUWxRYm9jVjdNUC1ETVhVUHVaQktPd3RZQ0tBMFZZZWptaHJ2Vk9jSHY3aHJ6QUQ2NXpnYm9oX09QQVhEczNDdngxbk1vQ0ViTFFfNTJFUmNoZTh2RjNDeXdvQ1B3N1RqTkZhX3ZPbWpJUFE2ckE?oc=5) |
 | Trump breaks from RFK on vaccines: "Pure and simple, they work" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1GV053cnhUSGNmS2EzZ01VMHhoNzFuWExTZ09QX2l3NnlEUkVQUFNrbWY4LTgyRmczSFZyUXpCMS1qQ3daQjVBbTBqUmZCay1zM1dRYXVIWjBOZnlqenJiQ2dKd2hqYmhzbmtKeXdJSHg?oc=5) |
-| California man found to be living secretly in condominium crawl space - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOUDN3TWtTc0ZPZlBRaTZrLVd1amlrUHRFOHMwYklVWEtQWFIwZEpiQWpGS2IybGVEZFhTeXRQSU1CSVdpOXpYWl9Ub0x1eDhwNVFsQ2dNWUpXQ2hvSDVXSUxhdTRIb1dSWXJFXzRvRzFTX1ZaSHQ0dmRhQUdpdGJyRTdmNE51dFlIV2c2ajlSN0hmblBJaDc5Y0p3SnNYYklXN3BIYXU5WC1pdw?oc=5) |
-| What to Know About a Rapid U.S. Military Buildup in the Caribbean - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPTVhWamhFbDZFY1ktMkFfaGVBMUtNTk9jT1hrMXNVeExtNGJ1XzYzX01KNk5iMno4bzM4RXE0bEROY0NtbU54S3RudnFJaURyaFVoT2ZMNFpJVVJkOFhPam1sdWtmN0tuM2V0anNMdzVxaV9MM2sxLU5vY0dOUGpfZlV6QzRfLVRfWlNR?oc=5) |
+| US special forces killed North Korean civilians in botched 2019 mission, NYT says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxPSTRia3VzOTVCYUNaWU1VaDEzYTVDVWhKdkRhMHFOcjN4NnJrbUp0ZVhpVl90X3lFQ2MwY2xsR0k0aHA0R0wyVEhHdnVCOXNoNWU4WkpaRHNBcEJOU094OE4zaDhVa2hZZ3BSVmYyaWNDakQxSVpEUFJUaTFNbWpFYWNwVzRjbkpxeG1iVHZVaDhxZk5KaV9IdS1KTTFJa3ZybzhEMG9zUkttLW9iS1pWSGxxSDlkbDdvdm14cUhBaG9hV0EwMmYxN3NxdWlWaE95?oc=5) |
+| Venezuela flies military aircraft over U.S. Navy ship for a second time, Pentagon officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPU3A4NnNISnRXNHhEZWh1VmRSV3BWQlVPd1ZHNjB1Smt0YkRLclo4Z2w1ekJDUjlEb01KWXk4dDhOYlg2ZEQzOXB2T3c1UEFZaVZLNHAtLWdXLU9ybFFwNG41RGc0SjJsal8wOEFtU093ckZab3B5eTdBdTZqRDdhR0FadVZuZGsta3hJZDljU2xZbHFfeGV1b0N2ckNtRkl2ZTlxMXE0czJ0WkZoWWdQclJNWnktUdIBuwFBVV95cUxNVjZmc3hGV19Ic1NGXzgzdEJlUnh2YmFjWV9SMmk5SWZNZjFKenZ1ZVVhWmFRaGI0LVE1Vl9UYkdKbVhUOHd1T1RySGE5ZUdCT0lfS0dZbGt3TGt4MEFjVEd6TksxNEE4S1JUTTFsdDB6QmRDWlB1bDdJeHpRVUJ3M250M1N1V203MWdhU1o4QXBnbWFmWFR1cXcwcWdaaWVjUVMyQ3F5VlE3N2V6Y3FpX2l6R3c3cS1ULVJB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
