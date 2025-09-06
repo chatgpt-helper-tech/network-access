@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 16:01:30（北京时间）**
+🕒 更新时间：**2025年09月06日 16:12:59（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump administration plans to deport Kilmar Abrego Garcia to Eswatini - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQUVA3R0dxcW05am1BdDhBR1FaQmg0cTgyeU55TUZUSGdDS3dDUkpHcEgxbnpCV3dUSF9VcHlXajFaeHNVTk9YVGFkRFFpWm5OSXdRZHdVVWhfdGdabUJibGswN2xOd2dnTDdWOGpEOGxTUUZsSy0zdDdVTTZsVHFiNV93?oc=5) |
+| Trump administration tells Abrego Garcia he now faces deportation to African country of Eswatini - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPRDZlaXRaNmotdldiY3hoWktjeEpQLTlGcFhEX3hFVDl2RlZBdWp6c25KMTYxZm1wbjVyc0ZDMjNua3hFN2l5eFhkV1ZwOVJ4R0E0bVBseFN6UjB6TjBrNmluQ2tDQ1ZkTDQxS0xyM1VEdFdiblN4Y0ZFSTBZY0ROTnpJd9IBiAFBVV95cUxPU1BlTFRpeTZadEdEcVBzMkpnVGMyYUZZTllCMHFSMGFQQk1IRV8yc2JUa2hhMHdaMy1fdDRvQVIwSmtxOEV4aG5ObTFjOEtDZUdhNUIyTThxTnZjaWZyTG9tY1psMkhQVXBveld0Q0p3azlKdTBwR0xtMjNqc3NFYVFlSjdhWkJW?oc=5) |
 | Raid at Hyundai factory in Georgia is Trump administration’s largest yet - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQZURRYmhUV3p2clN5TkJKQzBQQWo4OVlRNFdITnd3LXc3MHRleGY2T2taWEh2Z2U1cWw0Zmk2SFRnSXUwdjdnVjBIcEhnV0ZUOWppUnhSY3hsaVVOUTJzeF9sYkRaUDFOd1YxalRYSkxGNEtHY2tCMl9xZTkwdmQ4cDFEdEVfbXNKZ3ZrTXdoZzc4WktaX0RDMHpTUV9rZw?oc=5) |
 | Foreign troops in Ukraine would be considered 'legitimate targets' to Russia, Putin says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQZU5SaGVkMW53QmJJSlVQMkJyRGtReC1hSGlTSFVUX1NYOXhfVXowYW1lN0hHcEdVX05kMW5WbnozUG1QRm5tbEZFaGRXdlhHRGdGWFljRXNnZnEyZ3FVd0JaZXk1b08xSnhHOURvWEd2Y3p2MWJaUnR0ZWQzQnlmbHN1WmNiMnZkLUlWQXFNRllvVVAyMVFwQU0ySEpvV05EOWJHUzNrZTZrOVNCUUd3ZEFyVWF5NGhkRW1yWExB0gHDAUFVX3lxTE1XV0ZaWEFpY1FESnYxQTNfZVRjbWhwUVNZSkJPaFJZTGx1TEgwYTFtUjFxcHFiTnBiQ1B1RHpud3pIZTJQM3pqaGliNjZ0SnR6VGFrZDFGNUpOdkJNQ19uLWplY2NZaGxBQzBqd2VReHJCUkFUeHlmMS1SU3d0R1BTdTdpcDhRV1NzYTgwS3QwekVpNmdKNzNQamtYbWdyM1dxUGE4VEY3X2wyenBySjNIbnYzOU0wNjFrenI3SVRCU1pKdw?oc=5) |
 | Judge rules ending protections for Venezuelan and Haitian migrants is unlawful - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1KZG5OUi1COVFfRldJcTB3OGVINHIyNWZYTkp2Zm5uWlVibWI4SEFlM0lHcml2d0lGc1lxTWRGWkl1YmFVRUxFYVdNdFRYVVJ1dmR2dnkzYk5oQdIBX0FVX3lxTE9CYkRzZEhjYkp4WlNfUHpLQklfVkZYb2k3RkFsNm9XdHVyeGxKY3p3M1RyNlZPZmFsSVA5aXMta2tmVEhYeF9vY0R6ZUQtOVBDRUFDeEhVcVpaR1hKNGhN?oc=5) |
