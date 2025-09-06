@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 03:36:52（北京时间）**
+🕒 更新时间：**2025年09月07日 03:49:16（北京时间）**
 
 ---
 
@@ -9,9 +9,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Arrests made at rally against Palestine Action ban in London | [阅读全文](https://www.bbc.com/news/articles/c62qrmpd7l5o?at_medium=RSS&at_campaign=rss) |
-| Israel destroys second high-rise as assault on Gaza City intensifies | [阅读全文](https://www.bbc.com/news/articles/cz9jpzql958o?at_medium=RSS&at_campaign=rss) |
-| Starmer resets after Rayner row, but Labour turmoil is a gift for Reform | [阅读全文](https://www.bbc.com/news/articles/c39rk4jlpw7o?at_medium=RSS&at_campaign=rss) |
 | Home Office clearout as Starmer reshuffles top team | [阅读全文](https://www.bbc.com/news/articles/cj4ydgr0nwpo?at_medium=RSS&at_campaign=rss) |
+| Starmer resets after Rayner row, but Labour turmoil is a gift for Reform | [阅读全文](https://www.bbc.com/news/articles/c39rk4jlpw7o?at_medium=RSS&at_campaign=rss) |
+| Israel destroys second high-rise as assault on Gaza City intensifies | [阅读全文](https://www.bbc.com/news/articles/cz9jpzql958o?at_medium=RSS&at_campaign=rss) |
 | 'Keep your cool' during emergency alert test, government says | [阅读全文](https://www.bbc.com/news/articles/cpw15l5n78jo?at_medium=RSS&at_campaign=rss) |
 | Royal Catholic funeral announced for Duchess of Kent | [阅读全文](https://www.bbc.com/news/articles/c1mx9vzmjy3o?at_medium=RSS&at_campaign=rss) |
 | He was a respected surgeon so I believed him, but he had a secret about his amputations | [阅读全文](https://www.bbc.com/news/articles/cy0vr20gxvno?at_medium=RSS&at_campaign=rss) |
