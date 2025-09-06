@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 19:24:22（北京时间）**
+🕒 更新时间：**2025年09月06日 19:36:20（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Judge says Trump administration's effort to end TPS protections for Venezuelans and Haitians is illegal - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNdWJhLUk0d1FrUjFDVmdXdEM1M0tzWlYycWJhQVhNZEpDdGZ1SGVFb2U5TTRrMmx6R2NlZ2RBUVYybG9rNE9kT0JqZzIwZndiUGhZeHY4aXlrbzlfYTFtOHp3SHoxcFVQZTJrNk5XV1ZDREZPVGZUMkRjd1JJRmpWOFJXRzUta1FFUjFJUXlvVS1zUDDSAZgBQVVfeXFMTkZ3Mjc0WFgxdkdnMEpPNjJTYnYxZzc4SHdPTnFuR1ZrZ1pNSndnNU5JTEx5Wk9CbW4za1ZaWmdsQ1ZINkNwY0RFSDNfa3ZSSUZkS1ZtZWRNMzh6b3pmemxZdUFxUWJVUDA4LTZMLXFRdW5ISjhLOGhMUDc3LVJfeXhDX3VsTV9rODZSdmctS1JzMVNTMlFsWGk?oc=5) |
 | Trump breaks from RFK on vaccines: "Pure and simple, they work" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1GV053cnhUSGNmS2EzZ01VMHhoNzFuWExTZ09QX2l3NnlEUkVQUFNrbWY4LTgyRmczSFZyUXpCMS1qQ3daQjVBbTBqUmZCay1zM1dRYXVIWjBOZnlqenJiQ2dKd2hqYmhzbmtKeXdJSHg?oc=5) |
 | Eric Adams refuses to exit NYC mayor race after reports of Trump job offer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9MVW45UzJCVXJ5YUZJNTUwSFNNdVBRMTAxakgxVFdHZi1uWGRvZ2lzYjFJR052ZTBiRmFqbWZ3WHEyb2tiejZfUTRuNWNmNHVNN0VUX1dVNDlPVVVjeGxpUVRpeUtiTXgyNGYxZkNuYWFHQXl0Vk9z?oc=5) |
-| New Summer Camp Safety Laws Follow Texas’ Tragic Floods - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOOEtaUjdPZnVISzFPY2tyclNfS2xySHo0bDd2WllnNDJyMUZIZkM5OEw0OW8wMTVnRXVLT2FSRGlPWnJVUUlRMjlvX25ZeU8zcnotb0tmbmtvZGRxZzdEVEUzY1R5bmxzdkdERnNLcTc0Q1hHaDZaTkZiZ1VMaDVMVUNWTUlxSGpFaFE?oc=5) |
+| After catastrophic floods, Texas enacts sweeping camp safety laws to protect kids - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5EVU4tejc4dkdlVnZHYllpbnZ1NENiaERobFBUZFowMnlXT29rXzkyVFBzVTB3dmJFYkZoWkcxcDdQM1gxX0JHY1ZkcEZ5T1RFU2paWFlUbEpsY1ljNnIxcGNDeTdXbkRsaTlHWmtzV3lrUzdJ?oc=5) |
 | US Navy SEALs killed North Korean civilians during botched mission: Report - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQVU4zenZwTkFGdENiQjhDM09SWjBVR0REM3QyNmhvNVVDN1BsS2tqRWl0MzNJaHhrdEpxQ2xLcVVpV2NfRExHT2pncUVTQTlReng5OGIwRGY0a09meEpVS3RpNzVGaDd1ejdqbXQ1REtYLUZSUEFLbXlWOVFEcE9qV0tLaGRsS0J1cFViOUQwbElkZnVJQVNqRVFHWlRfTWNtX2pnck9ibUd0M0Y4V3RqNktGZ9IBuAFBVV95cUxOQ0MtbG9BSDR2MDRpdmp4NktUVjV4am55b0NkODhIXzRnTUZFb1NCcEpCV3FJaGh3cE9LSnhDQ3U2OTdpb012aHhnOWhZY3BiYWlaS3kyY2lrcUhPYURmczRNenJSZDVyeDRmUUZCQ1pXNjN0Nk44ZzJnNm5WSXotQkZIQVhzUUZINHFLMVBHWkZpS0xUNE5CRVM5cDBXOHhoTm43QUdZWlp1TUxSdXo5Ukludnlaekdj?oc=5) |
 
 ---
