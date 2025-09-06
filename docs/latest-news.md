@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 17:14:02（北京时间）**
+🕒 更新时间：**2025年09月06日 17:24:07（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Judge rules ending protections for Venezuelan and Haitian migrants is unlawful - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1KZG5OUi1COVFfRldJcTB3OGVINHIyNWZYTkp2Zm5uWlVibWI4SEFlM0lHcml2d0lGc1lxTWRGWkl1YmFVRUxFYVdNdFRYVVJ1dmR2dnkzYk5oQdIBX0FVX3lxTE9CYkRzZEhjYkp4WlNfUHpLQklfVkZYb2k3RkFsNm9XdHVyeGxKY3p3M1RyNlZPZmFsSVA5aXMta2tmVEhYeF9vY0R6ZUQtOVBDRUFDeEhVcVpaR1hKNGhN?oc=5) |
 | Will Trump Have to Run From the Economy? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPR18wemlkX3M2S2d6TTllZFV2YU1MZ0lObmJaOU5RSXFzN2FMdzU1czRGVS05azFRbjFlTElNU3c4NGJudWRLdEhoT216NHM4MGR2ZU9IZTB4WjRkLTl5TVVMZWVndTBqc3hETDFpTy1TaVNmUE0xZ0sybXQ1MWZlcTAzb0Fxdw?oc=5) |
 | Trump breaks from RFK on vaccines: "Pure and simple, they work" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1GV053cnhUSGNmS2EzZ01VMHhoNzFuWExTZ09QX2l3NnlEUkVQUFNrbWY4LTgyRmczSFZyUXpCMS1qQ3daQjVBbTBqUmZCay1zM1dRYXVIWjBOZnlqenJiQ2dKd2hqYmhzbmtKeXdJSHg?oc=5) |
-| New Summer Camp Safety Laws Follow Texas’ Tragic Floods - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOOEtaUjdPZnVISzFPY2tyclNfS2xySHo0bDd2WllnNDJyMUZIZkM5OEw0OW8wMTVnRXVLT2FSRGlPWnJVUUlRMjlvX25ZeU8zcnotb0tmbmtvZGRxZzdEVEUzY1R5bmxzdkdERnNLcTc0Q1hHaDZaTkZiZ1VMaDVMVUNWTUlxSGpFaFE?oc=5) |
 | Fact Sheet: President Donald J. Trump Restores the United States Department of War - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQUGtvcDIzNUNmQ1lwRWgyVC1WeERrRDFxd0pzdUlnLU94SVFuR0M3UVUxSXJpbU5qMHY3ZUZnVWNRN1YxaTJZeTVyb3hLWUs4b2pWaXhSODg4Z3hWS0N5dnNVNDFxSnpoanVXanZZLXhnbTZJUTlBZi1xOTA1eTVHYXpxS0VPM0cxY0VLcGlEZHpLc1pkTmItczM4clJWUVRZZWxvRGNaS3dveXZRSFNpdlVpUkRXOGszVVMtOUZHazI4SkxxY0dJ?oc=5) |
-| Venezuela flies military aircraft near U.S. Navy ship for a second time, Pentagon officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPU09CWDBCQUJyRWpBWXV2TE5CQnVqdktWVUxheUdWdlF3RTB2MXE1TXlybm5Sd25JU0JIMEZkdlU0V01qV1FOdkE4UW5CeDlwbUpEU0ZDUC0xZERuN3dmZmVWdWQ5VV9HMUxLNEtEOGxhVllYOXpnSUpUbVlDZURPWld2VnI5Tk9zUl8wNXRjTWpRLWh5UGZ6Rm5FdUcwOHdmdjZsZnFiUnFTcEVkcFlvOGlJMFhqZ9IBuwFBVV95cUxOU0xyYVNYWG1YR1ZyYWV1RFhyemdXdWd3aWlzanNWcmxTRHY5X0llNXJEMTAzd1NOQlF1WlRZT053MmFISXRqcVJJbnJWaURHNERiX1VVcHYxWnNuMHUtMEFGaWhROTVJd01aLWlWQWowd3ZKNGhhdGlxcnVkNUdzWUtEZkRoamJzbG40TUFWN2dPNTdIVy1ReTR3RXFJUEZrNjZpdlc4UEtlRkZtY21ZZXV0TV9JQWMzOVI0?oc=5) |
+| What to Know About a Rapid U.S. Military Buildup in the Caribbean - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPTVhWamhFbDZFY1ktMkFfaGVBMUtNTk9jT1hrMXNVeExtNGJ1XzYzX01KNk5iMno4bzM4RXE0bEROY0NtbU54S3RudnFJaURyaFVoT2ZMNFpJVVJkOFhPam1sdWtmN0tuM2V0anNMdzVxaV9MM2sxLU5vY0dOUGpfZlV6QzRfLVRfWlNR?oc=5) |
+| New Summer Camp Safety Laws Follow Texas’ Tragic Floods - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOOEtaUjdPZnVISzFPY2tyclNfS2xySHo0bDd2WllnNDJyMUZIZkM5OEw0OW8wMTVnRXVLT2FSRGlPWnJVUUlRMjlvX25ZeU8zcnotb0tmbmtvZGRxZzdEVEUzY1R5bmxzdkdERnNLcTc0Q1hHaDZaTkZiZ1VMaDVMVUNWTUlxSGpFaFE?oc=5) |
 | Eric Adams stays in NYC mayor's race after Trump aides tease ambassadorship - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQQWVRRDN0N1ZCYWFlTDNHLWZjVVNobmJKV3VmTFA1M3NZV29mTExtV0pRQzlvdVBIQ1JxeGV6TVRrY2liVHZyaHF2SkN5RDN6OURpeWFEZm1TbVA2cnd1WFZQS0E0a1BXcl9xZ3g0SGlTZ3VEdWpkZmV5c3hLUVhNcnN0MUdxbzNSVEZIcHVSakc5RzJZSXJYMTFjNU1KbW1tRUHSAacBQVVfeXFMTzU3UGFXc19WRW41aGQ5Snd5M2lNQzA4eXRWMFotVEJUNV82REpGX1JUaUxwdlVtMEhsSmZ4SF9IV090eG1Sd3pYU0o5cUFIVHpHYUlzNE85NFFPSnF3bVFXU3daNUJubjNqR0taUDFITGRQY0NLV0dEUFh6eUZhYWJkeTNUTEYzWGF2b3JGTVVGVkhzb2VWOTBvMDh6SjJiaWVYaEhtS2s?oc=5) |
 
 ---
