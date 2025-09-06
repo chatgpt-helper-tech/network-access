@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 21:25:47（北京时间）**
+🕒 更新时间：**2025年09月06日 21:37:55（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Putin: Western troops in Ukraine would be fair 'targets' - DW | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQSWZCaXcwTEVHbVpJYlBRX3YtRENteTVFbG83X0tpR0dsTnUzdlhvZzQxb0V4YUhHTGx5YjBrVEdySjFRRWRIM0R5eDBGeDVHellLdUgtYlF1VnJxUDNMYWdZY25TUlBWTkUxYWpTazk3elMteEIyQy0yZDZNaUh5UEpMSHptWERGWWstUjlUb0d3a00?oc=5) |
 | Trumps says Venezuelan jets will be 'shot down' if they endanger US ships - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE02eHpLczdTUFVLb3RhQUJWSWVJYThDWkZCbWEzTUVWclJ5elVweW1PQkhqRTNGdGFLanJFdFFlOVZCbW1ZZlY1ZG91TVNfcmlNSFVQbXVUdnVXd9IBX0FVX3lxTE1iLUVQN1NELXNGV29NcUtEb1dnb1hkcld3dVpUNkNrUUNMS21MU0MzWjZfY0w0Ym5TZGZSdWEyUmtIei03bHRlTi1IdzV6M3AtQTVmMmFhdW1WczRUaUdj?oc=5) |
 | Eric Adams refuses to exit NYC mayor race after reports of Trump job offer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9MVW45UzJCVXJ5YUZJNTUwSFNNdVBRMTAxakgxVFdHZi1uWGRvZ2lzYjFJR052ZTBiRmFqbWZ3WHEyb2tiejZfUTRuNWNmNHVNN0VUX1dVNDlPVVVjeGxpUVRpeUtiTXgyNGYxZkNuYWFHQXl0Vk9z?oc=5) |
+| Experts skeptical of legality of Trump’s strike on alleged drug boat - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNeGU0Z1BGZUdvVU1nWmNCZnA2TGxxbU5yX3VJOFBwTF93b2p0VXc1dkwxYmhiM09faTZhc3AtVWxReDh2MDF1UUhubVhiTHFKTEpDMzI4YmwwVlpTU2RjZ1ZoTldZZ1JlVG5wd1NnRzNFZGtkM2tMbXN3azFyVDZqbW1B?oc=5) |
 | Fact Sheet: President Donald J. Trump Restores the United States Department of War - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQUGtvcDIzNUNmQ1lwRWgyVC1WeERrRDFxd0pzdUlnLU94SVFuR0M3UVUxSXJpbU5qMHY3ZUZnVWNRN1YxaTJZeTVyb3hLWUs4b2pWaXhSODg4Z3hWS0N5dnNVNDFxSnpoanVXanZZLXhnbTZJUTlBZi1xOTA1eTVHYXpxS0VPM0cxY0VLcGlEZHpLc1pkTmItczM4clJWUVRZZWxvRGNaS3dveXZRSFNpdlVpUkRXOGszVVMtOUZHazI4SkxxY0dJ?oc=5) |
-| US Navy SEALs killed North Korean civilians during botched mission: Report - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQVU4zenZwTkFGdENiQjhDM09SWjBVR0REM3QyNmhvNVVDN1BsS2tqRWl0MzNJaHhrdEpxQ2xLcVVpV2NfRExHT2pncUVTQTlReng5OGIwRGY0a09meEpVS3RpNzVGaDd1ejdqbXQ1REtYLUZSUEFLbXlWOVFEcE9qV0tLaGRsS0J1cFViOUQwbElkZnVJQVNqRVFHWlRfTWNtX2pnck9ibUd0M0Y4V3RqNktGZ9IBuAFBVV95cUxOQ0MtbG9BSDR2MDRpdmp4NktUVjV4am55b0NkODhIXzRnTUZFb1NCcEpCV3FJaGh3cE9LSnhDQ3U2OTdpb012aHhnOWhZY3BiYWlaS3kyY2lrcUhPYURmczRNenJSZDVyeDRmUUZCQ1pXNjN0Nk44ZzJnNm5WSXotQkZIQVhzUUZINHFLMVBHWkZpS0xUNE5CRVM5cDBXOHhoTm43QUdZWlp1TUxSdXo5Ukludnlaekdj?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
