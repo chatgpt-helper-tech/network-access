@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 09:36:23（北京时间）**
+🕒 更新时间：**2025年09月07日 09:48:17（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Over 25 million under alert for severe weather, possible flash flooding in Northeast - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPVWx1bFlrYkoyNGZ6MXBRN2VhLUxPdzY3b3AzeVlzNVlSMk5DSjYyQVd6aXkwMHdVeWRuWjVXTTlhQnRFVHdJMmplck82MU9ZTDJQOFBsWnFocG9FSGd3b0hta3JtazlpRXlaZEVZX3RlNEFnemtDV1ctcWhjdXktRzRmRVRVZFh1cldGUzJtRTRyMi1ObnUtR1RvdGZ1WTNDc2N30gGoAUFVX3lxTE9RQnhkOERlTTZ0Z2REVUxLbXBCdDQwcmpjRXhXU0xWS29lYzlQdWV4bFIzd1hJcFJ5YWJIZkpHRzFFU3pZclRlZVZZZlJWWS1tZHFWSUdlSHplalA3aVZiZ1Z5TTdJZnRWMGgySDdhU2RyRmFWM2s3MndzaUpOdHN3SG9Zc0VTQ0dpSXJUM29jejBlYTVQY0hqS2FJNGJPQjV6THZHXzRBNg?oc=5) |
 | ICE Has Begun Immigration Crackdown in Massachusetts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBldU5yZ2c0OWhTMjlCM2NJMDRCc0hLamQzbkpDdmRLdTRZVXNpS2hXdU9QRUxmN1BFODdMZklJcm1hSzZvTGVvU1dWVHpxbEU1QkJKTzZZUFhHbzBSempzckF5OFpqYnhkNEZjaW03MkhZcFUwajJBTnN3TFo?oc=5) |
 | In Chicago, ICE fears turn Mexican parade into a ghost town - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPYXplSlRCVzdWMGwtOUQ0b0JEdk1CQVUwQy1hYktzNDk0RFVkd0V5blBfVXVJNjQxdlhZbTNvVUJlbXlOQkVkZWctTk84RWxRZUYwQVltb1BGTzZ1NjdIdzRYa3V2dkVXVXZpUkpEaDZnbFpLNHdXaVNfQTNEdmlSTkNiSzdlQjVfZ0tUVEJrMzFTbktwbWg4dkNIWk9Bc2c?oc=5) |
-| Maduro vows to defend Venezuela’s sovereignty as tensions with U.S. escalate - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPengtZ3ppSExPNmc1M2JlZGpYN2NoNWd6LW85eDdvQkpmU011dExqcFFLbXJlMDdfS3pRSElaOHQxMDR4MjJ6S18wcXVGVlBVTGJ2NC1IeXVwc29aUzdwa0hGbHZlUURnQ3R5ZzdTdm1MN3dVbjJmWmd0RXdnbFpDWEc0YnZiaW9RRjQ3ZnRCNFN5TU5uN3phN2JzUmRScG5RSGdYZmV0dE1tZmhPR3fSAbMBQVVfeXFMT24xb1QtWXNMSmJpb1FrSjUxaGhQcGZxeWZRUnFxdS15V1RZSFg4SG1aZ2t1TEh6aURaM3ItOXljd0d4OWp4SXVkbElYNVdrLXJ2X2FQQkRTREdPUXBocFQ5YmlSVGFmdlJZemNSbUpBeDBFSlpualY0aFdxQ2ctcUVxOXl0SlF2ZXc0dFltWTdsNnh0MzNXVlpFYjlLX1FRcEtwbGhsZWNWTGhvN0UyckpHYWc?oc=5) |
 | President of Peace, Department of War. A New Name Sends Mixed Signals. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNemVDb29uMDU4c1lBaG9lSW5GdGl0bVpZMm41QTl1WHliZkNxTW1oVjlROF9vTDc1VmFXUXlmZDNrMVFPMlJwc2hxSDlpb2RDamhmVlBJdWRmVGswOXpObTJaRFVoMG1NeFdDTTlfcTR4MjNTVThHd3M4RkpFSjFWYw?oc=5) |
+| Maduro vows to defend Venezuela’s sovereignty as tensions with U.S. escalate - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPengtZ3ppSExPNmc1M2JlZGpYN2NoNWd6LW85eDdvQkpmU011dExqcFFLbXJlMDdfS3pRSElaOHQxMDR4MjJ6S18wcXVGVlBVTGJ2NC1IeXVwc29aUzdwa0hGbHZlUURnQ3R5ZzdTdm1MN3dVbjJmWmd0RXdnbFpDWEc0YnZiaW9RRjQ3ZnRCNFN5TU5uN3phN2JzUmRScG5RSGdYZmV0dE1tZmhPR3fSAbMBQVVfeXFMT24xb1QtWXNMSmJpb1FrSjUxaGhQcGZxeWZRUnFxdS15V1RZSFg4SG1aZ2t1TEh6aURaM3ItOXljd0d4OWp4SXVkbElYNVdrLXJ2X2FQQkRTREdPUXBocFQ5YmlSVGFmdlJZemNSbUpBeDBFSlpualY0aFdxQ2ctcUVxOXl0SlF2ZXc0dFltWTdsNnh0MzNXVlpFYjlLX1FRcEtwbGhsZWNWTGhvN0UyckpHYWc?oc=5) |
 | Trump’s former surgeon general calls for RFK Jr. to be fired - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9XSHpjUlNsY1pnZTBGMENDOHRHWkZMbi1ZbGF2WUk0MVpnSHRyQU5WNFo5RjcyTU4zckRmSTlKMlUzWHJGQ1ItTWJybVJkSXBTZk01X2M2R3RvcTNKOXJSeEVHNTU4T1BEZjZsMWJncHdhT1hR?oc=5) |
 
 ---
