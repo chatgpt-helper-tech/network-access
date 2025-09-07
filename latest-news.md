@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 00:48:20（北京时间）**
+🕒 更新时间：**2025年09月08日 01:01:19（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Pope Leo XIV declares teen computer whiz Carlo Acutis the first millennial saint - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPTVZsMWNJZzliRXVYYUZ3U2xmYnM0bXBNaEVGNmtUQk1rMld4cmt1X3VwT0NXWWwzSzd1a0o2bnJOMVhxc21hYjBwS1JQWUlDQ2RUSzRULWNsOTlJcTVQSEdaWEdLckRHdTVVRXpHb0xCT1RrNUxqdmYwVWQ4eHRuRU50SGNqZ29Gb3RVQWdqeEgzUEFhcFFvdmhDdHpScDBqRWfSAacBQVVfeXFMT093LWhGb0w5WF9hTzc5NHhLeWZLSDZmMm9mUFd1bmFPUlg5VVZxWElnRmJmU0RHYUhPc01QenM3Nms2d0FFRDhneDRINjFyZF90Q0FqTFVFZl82R3Q2Tk5neHBoT0VzNlVheTRUdEg5eUloWkZGZk1tYVZneEg4dVhsbDZ2OTNReElpQUVFdGRzUHlid0FMMDhPV3dKUzJjLUtwaDFDU3c?oc=5) |
 | Zelenskyy says Trump’s Alaska summit ‘gave Putin what he wanted’ - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQZXFuWXY5Uy1fNzNFbVhiQXdqQ2JMdjdnMFU0MG1kTDhYU0JscGRyMHZwZ1Zya0I4TkZ2bVFnSWl0bjJWMDlVdER2UzU5dk0yUF8zaVVXY3o3cmpDenFNWlM3cGdvMmVnd1A0RlJlSW5pRy1seXZmLXUyQWNwbmxKZ3ZsbWVPOE5nb0g0S2lscUVJTUpOX3lzT3hONGJUMTcw0gGmAUFVX3lxTE8zZXlXSXdhUUtfVWFDOVdUNDdad2hrYXlRbEFwVGRoZ21KOTVRVEJLN1gzVzNsSVE0VUhtWHh6SERGMzBHbnFySTVOSG9vbXBId2Q5N0FNVks1OUZaYTFmWkVzZ0lwOXdpNTdjbDNyZFZNOXRpMG1XRWVVakFwdmtnMWRTdnNjQlRXNEMtN3dtaEVtTGhPZlBJaHRfSWpqbW4yR0hnMnc?oc=5) |
 | In Chicago, residents celebrate Mexican Independence Day amid threats of heightened immigration enforcement - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBjbTYxbnZzTEVTb1VGdW9Ibk5sdGtTOVNxRFVoV2ZOajR3NFNiZTZOdTJfNWFZbHdNbWEwX01kQUlwZk1pSEh3S0xDSFhSVlQ1ODJMLU5VNUtRSG5yY1lqT0ZWc0xUQmt4Qlc4NTFBX0toamM?oc=5) |
-| Rand Paul clashes with JD Vance over US strike on boat leaving Venezuela - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPZHlnXzlZcHRySS1wb1BhZjEyNlZ2NHBrbzZGbHdKdTNNOG16Mkg0RkkxLVVHU0tyRllrUm9DaFkxNmZXMmZXbE9VRU1fcjJGM3lFZXd1NF9qTFhJTWIxV0xfaDRFNXRsUWNadXZ3aVZWdHdPUFVYYXRQSmd3RXYxTGZpYXR3bFNncnRQQnBVM0VmWE8yRUxFYkh6aVhyNG56NmVCOXNsV0VXVlFKbkVBd3RLdDRxUQ?oc=5) |
+| "Despicable and thoughtless": Vance's drug vessel strike praise slammed by senator - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9qdUJYbzdXcktoUVIyamRnZEdUMGlsa0pYYlcwWk1ZTDg4bGJLZkY0elJ5aWZHQ19pWlVsS2N3WkN0SS1LX0NwOTZrRzlFWmt0NW9sWnpseF9YeExrWnJPbkRndHpRanhIVE9aUDZ5OVhoLWxfZmc?oc=5) |
 | Justice Barrett defends Supreme Court’s decision to overturn Roe - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQYThGRW9TMWJPa3NvSEVNUFRoQjhYVndrZXFoRm9ESDBnbzAtWkFMN3BKSUR3X25vREJPU2lsd0lwY1lueHZILU5yckZkVzRBRHpjbGZUQWgxQ2Q4RnQ0SHJQZkhadW9vaThtY09PWVk1XzloQllfazdmVWpFRE43Z2JBcGNvX1JFdnZuZExhQzlzQQ?oc=5) |
 | Conservatives have a message for Trump: We want more babies - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQTmMwbk43bVN6MG0wMWJJeTN6dGNOYkpkdjhqaXRLU00yZHBEcEtjVTl3MFNIQ2lFV0lOUS1xemNodGFEX3ZqamtxZlNSSG5hVzlaVHA0RHhaaUt2Y3pJYjcxYWVhdDV3UXQzYkV5eGVVdnM4Wjc0U1FtakVTY0NlSXMzX2JCb01OWW1KYmR0Wk5FOVhrNmlFOW9BQUFKa1dFQXdQaExIUXBobEszQTF1Mm80TWYxUVRPaXpFQXRSV0dQY0c0OHdpR0hiMDA?oc=5) |
 
