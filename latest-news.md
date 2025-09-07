@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 23:26:01（北京时间）**
+🕒 更新时间：**2025年09月07日 23:37:54（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Zelensky condemns 'ruthless attack' after Russia hits main government building in Kyiv | [阅读全文](https://www.bbc.com/news/articles/cpq5dl5y4nlo?at_medium=RSS&at_campaign=rss) |
 | Healey says more military sites could house asylum seekers | [阅读全文](https://www.bbc.com/news/articles/c5yvxergw4xo?at_medium=RSS&at_campaign=rss) |
 | Arrests at rally against Palestine Action ban rise to 890 | [阅读全文](https://www.bbc.com/news/articles/c8rvly00440o?at_medium=RSS&at_campaign=rss) |
+| Sirens blare from millions of phones in national test of emergency alerts | [阅读全文](https://www.bbc.com/news/articles/c2lx9x251xgo?at_medium=RSS&at_campaign=rss) |
 | Teen gamer who 'performed miracles' becomes  first millennial saint | [阅读全文](https://www.bbc.com/news/articles/c5yg5me8dvlo?at_medium=RSS&at_campaign=rss) |
 | Piastri told to let Norris past as Verstappen wins | [阅读全文](https://www.bbc.com/sport/formula1/articles/cx2rn7y5r36o?at_medium=RSS&at_campaign=rss) |
 | Tube strike begins with reduced services as five days of major disruption looms | [阅读全文](https://www.bbc.com/news/articles/cx2rg128l68o?at_medium=RSS&at_campaign=rss) |
 | One of the world's most sacred places is being turned into a luxury mega-resort | [阅读全文](https://www.bbc.com/news/articles/c707kx2nk7go?at_medium=RSS&at_campaign=rss) |
 | My clothes wouldn't fit in my new flat - so I invented Vinted | [阅读全文](https://www.bbc.co.uk/bitesize/articles/zttrp9q?at_medium=RSS&at_campaign=rss) |
 | How will the EU's new border system work? | [阅读全文](https://www.bbc.com/news/articles/c39rkpe8mj2o?at_medium=RSS&at_campaign=rss) |
-| Anna Wintour was Vogue. Now she's stepped back, can the magazine stay relevant? | [阅读全文](https://www.bbc.com/news/articles/c04q91q3zvpo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
