@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 16:13:33（北京时间）**
+🕒 更新时间：**2025年09月07日 16:25:10（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| More than 425 arrested at rally against Palestine Action ban in London | [阅读全文](https://www.bbc.com/news/articles/c62qrmpd7l5o?at_medium=RSS&at_campaign=rss) |
+| Watch: BBC at the scene of Ukrainian government building strike | [阅读全文](https://www.bbc.com/news/videos/cy04lx67e1eo?at_medium=RSS&at_campaign=rss) |
 | Prince Harry to visit UK for first time since security court hearing | [阅读全文](https://www.bbc.com/news/articles/cz9jpdq1k04o?at_medium=RSS&at_campaign=rss) |
 | Tube strike begins with reduced services as five days of major disruption looms | [阅读全文](https://www.bbc.com/news/articles/cx2rg128l68o?at_medium=RSS&at_campaign=rss) |
 | Teen gamer who 'performed miracles' set to become first millennial saint | [阅读全文](https://www.bbc.com/news/articles/c5yg5me8dvlo?at_medium=RSS&at_campaign=rss) |
@@ -30,8 +30,8 @@
 | Japan Prime Minister Ishiba to resign: reports - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOaVVGUEJla0lUSEtKNkV2ODZYNHhIWV8zY1BLOXExSDhtYVB5M3lneEVFLWZzQ1lHaTNoWGhMOEdwM1FDblpnYnFxMy1aNnR0Zl90WFdFZ1ZsRFdLVlpVeXlnOVFMWWNPam9PT1lYUFBjSlppVE5IbVF4V1NWdm16cXlxY3ZiXzN6OVo4?oc=5) |
 | Trump administration begins new Ice operation in Massachusetts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPTkZMS3pkeTJiR3pPeDhOZmJaQlllMVNCalRDaFV4Uk1lSnJta0QxT25Va05PdVJPWkRLT3E3cHZNbzJndWI3RkxOTkNKUTdYVGEzdDUyQm05TVFFVlluaFVxdlNEbW9vQ1ZWcXY1Q1lYdm50ZzNJNDlaNUlnTTJGY25JVlRpZENhYlpVaG1BekdRYVd0WWNKUlBENEZhRUZwekRCLVVpTQ?oc=5) |
 | 2 tickets -- sold in Missouri, Texas -- win massive $1.8B Powerball jackpot - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOWGE2LTRDMVV4d0dJVjdpWWxSLXpYMlhqOU13MlJGN3JIYmR4d2JXVFRzMWdhZnBMZTJzUERNZ01wb3QyZ0k4SWFCZ1lsblZEako3NGowNFhMa3RaWXJpeGFHNVZ4bTlZU2NjMUR6Z0pmeVAwemlNdVFFamJoZDlpZVR2QUJaZThyOG9nTFBCOEpyZDBERWhsQWxCU1fSAaIBQVVfeXFMTXlQM08ySUdRM1RjVFNjeXpDU21mcFdsOGpUZHJfQjhMX3hjZ1U1azgzaVA1QU1xR1BhVHFnb3AzMFNQOVFUeFF6WFdGTkx5NUNBeVd3eGU4LXFxb0FjN3VvVGZvT2dNWFkyWDRiTXFvWTFXQ2hHS3UwOFp4ZG52QnFNZHhSOHdpU3Zqck5yYWdCeU85MEl3eGpNN3ZVaTB5dktB?oc=5) |
-| Trump news at a glance: Anxiety in Chicago as Trump plans to send troops; postal traffic into US drops 80% - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNVTcwX1RUQWZiX3NEaVBieERUbURLbi1RY2x0TEUtZExoRF9lRW1sODFpbTQyS1lfQVp6RXdpODFBYjdhT2M3MlpWZWlhVXU2UFM4aGswcUJ1SEJpel9WSWJYQjlFYWJHZU5sY2FTVVdaYUxseU1Da194dzNHd1pRc25KRHBuV1ZkdUE3bXBpVEU?oc=5) |
 | LAPD ends protection of former VP Harris amid criticism, sources say - The Seattle Times | [阅读全文](https://news.google.com/rss/articles/CBMi4wFBVV95cUxNekFKal9UdWJBQmEyZXd3UWRUNVA1QnY1RWRBUWdIeEJNTjJub0loUF8tVzhGajZ3ZTRmRzFKNmd5c3NpMU54SGlwNG1vZXRYVGdNSnNqQ09zX1lSZmh4Ym85V1dLSTRkR3hEVUdpbzluc3prYW9sWnZGV3hrakJMTFFYODZKRGF3VkdiS0wxR2szLWpEc3Y0ckNnZGYzazU1VEpSNHkzNmdkeF9zdy1jek94dmZpaUxwX2FnYnlQUkRRUjFwY09RbEo4ejRoWS1SSGszS3p1S3pSbGJibjBmZ3NMdw?oc=5) |
+| Pilsen’s Mexican Independence Day Carries On Amid Trump’s Threats: ‘Joy Is Resistance’ - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOVzBMcHhtNnJiVkF1QUFnUzFxdHBsSXdwTVhOZDNNVjA5SWFKMjJiWGlRVF9WMXVhTTczSHdNbEh4cUhqajVweWJ3ZU9lMGYteC10RXFpRDF0MnN3N19iRmJGeTJtbTBqVDNHLVM5ZV9vdWU3WnJRNDM0eU5DZnBOMlpONlROTzEyd1RXWlFmeGJaa0RHaUUtb2lxMlQwcEg2QkRoNlpKNmVhZWprSTRxT3R1bHVyM09FTHdYWktXMA?oc=5) |
 | Carlo Acutis: From London baptism to first millennial saint - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1KQVpOY0pyVGdBVmtNNmZUN2d0THUxdzNKT0NuVmtMNmVlNXhDZ3ZVRC1BVDhqcXJwZnpVMXdQS3Z6RHF1RmdPX01NQkZKQ1pEaEhORHQ5SGp4UdIBX0FVX3lxTE02dVY5SGpTSWpxY2NQZWtnZ1drLW5iVmh1c3JkTTdaSEdyUWJlSGZIRmFqRWkzX2MzX01HMWhLNHhVaVBHQjdTNURGRXI3LTFneXBFRVNRZFBVWVVtZkNV?oc=5) |
 
 ---
