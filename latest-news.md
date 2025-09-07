@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 19:24:02（北京时间）**
+🕒 更新时间：**2025年09月07日 19:37:17（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | ICE surge underway in Greater Boston, Herald rides along: ‘Our officers aren’t stopping’ - Boston Herald | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPVWNQNDZ2blZ6aS1tdVU1NHVGMk9MQ2p5SGFkN3JhNTd1dkkzaXE3OS1UcGxsN21JeTM1TnJiS1pVakVLbWs1blNDQnNoaFRiMENtTl83X1Z0WFBuS05jSDFYaHZyQzdGSUgxdVJodEZWQktMYVA5bWlMSWxVWHlzY3FhaXlSNTRiNjdnXzZ6aVJFZ3ZnVlUzdFRacm1mWnkydmxvVDFZZWl5TGx4eDkyb0RLZ180S04tUS1aaDlHRXM3d9IBxwFBVV95cUxQaGt4eEdBY2xRVlY0TldkRTQ2VVRBNC0tREVJaVFWdHBfWHRITmEtc01ESmZWaVRsVV80VGM0ejdmZThLQ000X2Y0RnREdzdrZU5qZzF0eUpXVFJRbkJTVXgtb3pvSGdFZzY3NlEwU3htWlBTMjRFV2ZZLUZuaHZIay1oMVRGNFIydDZlVXBJOFc2UEF4WjN2NVFBTi00dlBTU1dkdmJjc3hvb0pWajBUcUViU1pLY19NWjlTZjRvcjRpSTFpTXhF?oc=5) |
 | 2 tickets -- sold in Missouri, Texas -- win massive $1.8B Powerball jackpot - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOWGE2LTRDMVV4d0dJVjdpWWxSLXpYMlhqOU13MlJGN3JIYmR4d2JXVFRzMWdhZnBMZTJzUERNZ01wb3QyZ0k4SWFCZ1lsblZEako3NGowNFhMa3RaWXJpeGFHNVZ4bTlZU2NjMUR6Z0pmeVAwemlNdVFFamJoZDlpZVR2QUJaZThyOG9nTFBCOEpyZDBERWhsQWxCU1fSAaIBQVVfeXFMTXlQM08ySUdRM1RjVFNjeXpDU21mcFdsOGpUZHJfQjhMX3hjZ1U1azgzaVA1QU1xR1BhVHFnb3AzMFNQOVFUeFF6WFdGTkx5NUNBeVd3eGU4LXFxb0FjN3VvVGZvT2dNWFkyWDRiTXFvWTFXQ2hHS3UwOFp4ZG52QnFNZHhSOHdpU3Zqck5yYWdCeU85MEl3eGpNN3ZVaTB5dktB?oc=5) |
 | ​​Trump Tried to Kill the Infrastructure Law. Now He’s Getting Credit for Its Projects. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBWRjMwZUFEOUJMN1VRVUJvZXAwN3ZQby1FM0ZiZjhIMUtza0lTYmJBNm1GWXlNanN6WFhBSnhad0Z1Mko3ZWk1Qnc4cVJXRVJtclFacXAzbVpqU0pGNGd4U18xX2FiNTJaU0p1c19tbjJxS3JHaXlrSw?oc=5) |
-| LAPD ends protection of former Vice President Kamala Harris amid criticism over diverting cops, sources say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi5wFBVV95cUxPNUNoWWNfeUlOdmJ3bnRKaWh3RWdQa2hnU2Q5bUFlYTRjRGo0MHp5ZVk4WmljMXdfTDNzR3F2c3ktTWtDUTMyLWtLMktlRFhGdUhQaFFNUksteFFCQ1RpR0o2M1ZYci1ZM2xZb1MxUmwtd2pIbDZ1Rjd1MFF5RENRY0dqY1hUeElXMDNKWXFhQWlkajBFdnZlejFNYUUtRmpzOW5SeWRpOGZRaUxFRWRKMG1mckV6RHU1YkJWVU1Bbmx5cS1RM3phd1BySFF0Y21YcWZSd1BwY0ZSbXNzbnVadWJrcHZQOFE?oc=5) |
+| Pilsen’s Mexican Independence Day Carries On Amid Trump’s Threats: ‘Joy Is Resistance’ - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOVzBMcHhtNnJiVkF1QUFnUzFxdHBsSXdwTVhOZDNNVjA5SWFKMjJiWGlRVF9WMXVhTTczSHdNbEh4cUhqajVweWJ3ZU9lMGYteC10RXFpRDF0MnN3N19iRmJGeTJtbTBqVDNHLVM5ZV9vdWU3WnJRNDM0eU5DZnBOMlpONlROTzEyd1RXWlFmeGJaa0RHaUUtb2lxMlQwcEg2QkRoNlpKNmVhZWprSTRxT3R1bHVyM09FTHdYWktXMA?oc=5) |
 | Washington DC rallies in protest of Trump's federal troops. See photos. - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOMjM3Qmd5Q1dlOVJtdXZ3U2NiMmp5SWRiYmRFWFF3SnFzVUNiX25HRHdzNEdNVWpKMl9BVEpQenlTYXRUaVk0QXJ0RVNYSllqVlF5cUVjTFQ0LTZEZ19YWEhpRF9CdWFicGlhZDRCcFBWckRraGJlT2FtT1JIX3Y0S1lsNnU3Q0VPZmlvUENsYTFzNHplTnVyZlAxT2FYb0w3OG1oMmdrT01lZHk5ZW9BZHhBQlU?oc=5) |
 
 ---
