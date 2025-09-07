@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 21:37:46（北京时间）**
+🕒 更新时间：**2025年09月07日 21:49:43（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Tube strike begins with reduced services as five days of major disruption looms | [阅读全文](https://www.bbc.com/news/articles/cx2rg128l68o?at_medium=RSS&at_campaign=rss) |
 | One of the world's most sacred places is being turned into a luxury mega-resort | [阅读全文](https://www.bbc.com/news/articles/c707kx2nk7go?at_medium=RSS&at_campaign=rss) |
 | My clothes wouldn't fit in my new flat - so I invented Vinted | [阅读全文](https://www.bbc.co.uk/bitesize/articles/zttrp9q?at_medium=RSS&at_campaign=rss) |
-| He evaded the FBI for 21 years. Only to be found in a Welsh cottage | [阅读全文](https://www.bbc.com/news/articles/ckgjpn8gl97o?at_medium=RSS&at_campaign=rss) |
+| One of America's most wanted evaded the FBI for 21 years - only to be found in Wales | [阅读全文](https://www.bbc.com/news/articles/ckgjpn8gl97o?at_medium=RSS&at_campaign=rss) |
 | Anna Wintour was Vogue. Now she's stepped back, can the magazine stay relevant? | [阅读全文](https://www.bbc.com/news/articles/c04q91q3zvpo?at_medium=RSS&at_campaign=rss) |
 | Inflatable tanks and flat-pack guns - inside Ukraine's decoy war | [阅读全文](https://www.bbc.com/news/articles/cr4e435x4kqo?at_medium=RSS&at_campaign=rss) |
 | Burnham concerned about balance of cabinet after Rayner exit | [阅读全文](https://www.bbc.com/news/articles/crkj46z4v84o?at_medium=RSS&at_campaign=rss) |
@@ -26,8 +26,8 @@
 | 300 South Koreans detained at Hyundai plant in US to be released, says Seoul - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPckUxSnNhbVRFVE1GUFo0QkdBR1JUaVB3NDh3blN1LWo2UEcxVjFlUlYxby1ReWp6QnJiMGZTcnEwNEpyNzNYcGZQLUtrRGlEUTlUSFdFR213NF9KRWZZdXhENFJKN21rOUlzNHRZWUtJMXhDZ3lMdFVCbXZhN0VLUGNYV0RrdW1jQ2tHQjBBX2JxbkEycVhYQjVTZGo0SkczX28wSzJBRmQ5VXQ1MnV3U1dFNmZQSTMzWUdnYld2T28?oc=5) |
 | Ukraine cabinet building hit in largest Russian strike of war, Zelenskyy says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOTmotOTU1dVhqSkpaNGcxODFzNHNQbVhISVVHV3djQjBEVnk4azFPR0k3ejNuZGdRTmpvVmhjd09HU3pJbTlxbVhzN0wwNHB2SnlVSXJydjFqWHVvcmcwSXZWSUl3Zi1pRFduUUlSdk40WDg5XzhNYzFRczY5Rk9xWS0tVG1GeDlQNFlDaVZ1SGhjYkRIUDRmQnBhZUU4VFVVNW1wdVNEU1JHbWhiTlh4bdIBtgFBVV95cUxPb05IaUFZUUNZNG5FQlpiVEdlRy1scTg5WnNlYTRfT2d3aTluTkpiR2dxUHBuNXJ3Y3g3S0RvRGJwQVBCNGdkdWswT3pSNnE1VjRKSGh4dE10a3B3d05mSlUteHBQUXdLdkwtQUd0dzJQYXhzLUlnazl0eTJ6SUhJbFhWMDJEbVBEU0ZGbWNiLVMtNjEtbjF5aTlEeEg0cEZlUjN4ZzVEN2txTi13SGlpQjBBdV9kUQ?oc=5) |
 | Tensions Mount as Trump Administration Threatens Federal Crackdown in Chicago - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQemtPMngtblhpQkpBU2FoS2QzdHAxV0h3M0VnbS1LWFh6anBuM3R1SWJUTEhGOC1YN3JnYTVnU0ZiVjhkdjR5SXpVVUJpdlVtX0ZkUTlVMm9BdTdsYUJ4RWV5b0x5aDBQMnJQWmlyNWh5aG54eXhmZWtxWjM4YU5ndG9Eb04?oc=5) |
-| Japan PM Ishiba resigns after bruising election losses - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPSTVtc1k0Nlk3VmtaY0ZKQVQ4eklDYnRxRDloQzM1VlpSQmZKX3ptM0VfX0pzQTRweDRFa0dLMURfQnRDUW9GQ2ZrM3poZzJsOXBqSWw4M1JiemZvUWRxdDlLN3lpRGFMZEFCaVZzaTZKT294TjFJd2F6WHRiS2V5X1NveEs1emdRS3pGLUl0V2h5bl90b3Z0aTJsa0Y?oc=5) |
-| Carlo Acutis: From London baptism to first millennial saint - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1KQVpOY0pyVGdBVmtNNmZUN2d0THUxdzNKT0NuVmtMNmVlNXhDZ3ZVRC1BVDhqcXJwZnpVMXdQS3Z6RHF1RmdPX01NQkZKQ1pEaEhORHQ5SGp4UdIBX0FVX3lxTE02dVY5SGpTSWpxY2NQZWtnZ1drLW5iVmh1c3JkTTdaSEdyUWJlSGZIRmFqRWkzX2MzX01HMWhLNHhVaVBHQjdTNURGRXI3LTFneXBFRVNRZFBVWVVtZkNV?oc=5) |
+| Japan's Prime Minister Shigeru Ishiba resigns - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5tWWxMU0M2MS1vYktadnlPVFV2V1BmSlN3ejdwMURrV29mdWlzYlhfN2Z4eFdzZXdGWnJLT3VSOHZaTzFVX05zWXVqdWZBZ1pVMkIxQzdrUVJDd9IBX0FVX3lxTFBSYl9xMERSOHhXN185NFl4RHRkTEdjR1c0UkR5RUJqOUhhLU1kb3RDdnN5aF9DenBJQ2N2M1VQcngyZU9JLUJMc2RISmM5a1JpeU1FeFZkZFRvZmctbWVF?oc=5) |
+| Teen coder made first millennial Catholic saint at youthful Vatican event - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPcnVNNzM5WHc5czNlVG90dHJRa3BUVFh3RFpBTWc3dXpmZGhYNjFVaG9lTmNNMmo1QklsLTZwbkQ4WjdHS0pvTXZQdnJSamZsNlFTdFRBejM0UkFud1U4ZkpET1RPSk9XcExLV1c1d1JreUpCdktTUGFPZ3FTd1ZLNGhGcE5PQWNFd0c1MzdvemVVNUdleEVjNUJKQWZPa2RTZ1VsX2ZORFZFSC1sbHR1Vl93?oc=5) |
 | Thousands march in D.C. against Trump’s law enforcement takeover - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBaTjN4aUt5TlZBclZmbEkyRzE4bWFLeXo5YUdsa1EtUER0SndQR3R3dnBRc1I5UW9IbEwxRzJzQndHaVU2YUpzdk8zeWJSNlRDV2dKSHgwXy1QTHR5RTFnS1ZCTWhuTEJ3Z1NqOEh5eEJOaHRRSDh5Vjhpbw?oc=5) |
 | Winning tickets sold in two states for massive Powerball jackpot of nearly $1.8 billion - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQRm5KSDlNSFBtY09nM0xBbnAzT01mbWZDeFlxMGtPc2hHNTIxT1NYZnA1Q1o1czZZZDZXdTF0d1JGRHpmQjY5STZKOXF1bjVGZkhMMnR5ZFdpdDdib19Sb1R4UmkxR3RWeUUyNm9PRXFhWkFNOEhwdjdmOTRGcWZJZXpJMA?oc=5) |
 | ICE begins immigration crackdown in Massachusetts, DHS says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQUjAwWjZwUWhGTEZoWDluUFZld09YbUFCU0cyZTJkbk8tcWRROTFtckFyOE4yUHhuOEMyTDRGT01JNnZiX2RtM0JuOHpRNV85XzN5VlFMTlBudDNfRC1FYlBxMU9WV3d5NVJ0VEVIWmNZZlY5N3FFMUFMZDRPUDJkSWwxbXdVZHF2UEkzaXNvVmF1d2U2ZkNj?oc=5) |
