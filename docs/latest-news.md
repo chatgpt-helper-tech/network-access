@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 14:49:26（北京时间）**
+🕒 更新时间：**2025年09月07日 15:01:56（北京时间）**
 
 ---
 
@@ -9,10 +9,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | More than 425 arrested at rally against Palestine Action ban in London | [阅读全文](https://www.bbc.com/news/articles/c62qrmpd7l5o?at_medium=RSS&at_campaign=rss) |
-| Home Office clearout as Starmer reshuffles top team | [阅读全文](https://www.bbc.com/news/articles/cj4ydgr0nwpo?at_medium=RSS&at_campaign=rss) |
 | Starmer resets after Rayner row, but Labour turmoil is a gift for Reform | [阅读全文](https://www.bbc.com/news/articles/c39rk4jlpw7o?at_medium=RSS&at_campaign=rss) |
-| Carlo Acutis: From a baptism in London to the first millennial saint | [阅读全文](https://www.bbc.com/news/articles/c5yg5me8dvlo?at_medium=RSS&at_campaign=rss) |
 | Charity visit on the cards as Harry returns to UK | [阅读全文](https://www.bbc.com/news/articles/cz9jpdq1k04o?at_medium=RSS&at_campaign=rss) |
+| First Tube strike since March 2023 under way | [阅读全文](https://www.bbc.com/news/articles/cx2rg128l68o?at_medium=RSS&at_campaign=rss) |
+| Carlo Acutis: From a baptism in London to the first millennial saint | [阅读全文](https://www.bbc.com/news/articles/c5yg5me8dvlo?at_medium=RSS&at_campaign=rss) |
 | 'Keep your cool' during emergency alert test, government says | [阅读全文](https://www.bbc.com/news/articles/cpw15l5n78jo?at_medium=RSS&at_campaign=rss) |
 | Anna Wintour was Vogue. Now she's gone, can the magazine stay relevant? | [阅读全文](https://www.bbc.com/news/articles/c04q91q3zvpo?at_medium=RSS&at_campaign=rss) |
 | One of America's most wanted evaded the FBI for 21 years - only to be found in Wales | [阅读全文](https://www.bbc.com/news/articles/ckgjpn8gl97o?at_medium=RSS&at_campaign=rss) |
