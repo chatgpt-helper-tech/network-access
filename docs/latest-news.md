@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 15:37:03（北京时间）**
+🕒 更新时间：**2025年09月07日 15:48:14（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | More than 425 arrested at rally against Palestine Action ban in London | [阅读全文](https://www.bbc.com/news/articles/c62qrmpd7l5o?at_medium=RSS&at_campaign=rss) |
 | Starmer resets after Rayner row, but Labour turmoil is a gift for Reform | [阅读全文](https://www.bbc.com/news/articles/c39rk4jlpw7o?at_medium=RSS&at_campaign=rss) |
-| Charity visit on the cards as Harry returns to UK | [阅读全文](https://www.bbc.com/news/articles/cz9jpdq1k04o?at_medium=RSS&at_campaign=rss) |
+| Prince Harry to visit UK for first time since security court hearing | [阅读全文](https://www.bbc.com/news/articles/cz9jpdq1k04o?at_medium=RSS&at_campaign=rss) |
 | Tube strike begins with reduced services as five days of major disruption looms | [阅读全文](https://www.bbc.com/news/articles/cx2rg128l68o?at_medium=RSS&at_campaign=rss) |
 | Carlo Acutis: From a baptism in London to the first millennial saint | [阅读全文](https://www.bbc.com/news/articles/c5yg5me8dvlo?at_medium=RSS&at_campaign=rss) |
 | 'Keep your cool' during emergency alert test, government says | [阅读全文](https://www.bbc.com/news/articles/cpw15l5n78jo?at_medium=RSS&at_campaign=rss) |
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Tensions Mount as Trump Administration Threatens Federal Crackdown in Chicago - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQemtPMngtblhpQkpBU2FoS2QzdHAxV0h3M0VnbS1LWFh6anBuM3R1SWJUTEhGOC1YN3JnYTVnU0ZiVjhkdjR5SXpVVUJpdlVtX0ZkUTlVMm9BdTdsYUJ4RWV5b0x5aDBQMnJQWmlyNWh5aG54eXhmZWtxWjM4YU5ndG9Eb04?oc=5) |
-| South Korea says US release of video showing workers' arrest was regrettable - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxOY0lqWmRua29Pd3pyNlNEWWNxeU1XaDhscXRlRzFoSV9ESzY3WGtENGpFbmRDY0tFMEdOR0lRR01OWTQyVVIxMkFLVzRjRWFqWmJrak9QcXVVMTQyTktRWjNhNVB5UnVaZEFmamlUSlhsa2hmZFI5LVdlSnl4SjFMMWNZMFU3cE5DbDZ1b21uT0lrVXlDdl8xRWRZTmdfVXhrX2FuQWFFdVZ6NEl3ckx0QjFKZEtvQkZ4RnhIS21samw0Z0VKdXZIaWcxYmMxTy1laFhMZw?oc=5) |
 | Russia's largest air attack on Ukraine sets fire to main government building - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNcFVmR2U5N0V2VWFwWkhqSGV4SXlSeER3Vm1jcEk1LVlvTGVPNGtrM1JmQk9LNXNOMWNJRXVXQlJQRnRXY1E4a2x0RHI1d2xaUXlQNWg3REd6RU0zOHVLVGo2UFdTaklfaFdtUlRPUlYtemRxYWFYd0UzMXZjLWlkQnlNMDRMUnNyZTVmNE4xRHRVblJEOHZoMXZzbXFISlIxdDRPVTlJXzZKTWZzSzdLR3QzOXJpTWo5YXc?oc=5) |
+| Inside the raid: How a monthslong federal immigration operation led to 475 arrests at a Hyundai plant in Georgia - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9jV2wtX3FTLVBGWjl1MmFtTHgwQUYxZlIzcVpYTDhjTF9YMTdRZWxPRWJOdHh1QmpkNlVpaG1jRXVDbng5cHJpRXJSM09xVk1yZTZSX2pwam9GSVNDamJVMWZOWG9TeTY4TUx0SmQ1c3JkUEN3Ukpibw?oc=5) |
 | Thousands march in D.C. against Trump’s law enforcement takeover - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBaTjN4aUt5TlZBclZmbEkyRzE4bWFLeXo5YUdsa1EtUER0SndQR3R3dnBRc1I5UW9IbEwxRzJzQndHaVU2YUpzdk8zeWJSNlRDV2dKSHgwXy1QTHR5RTFnS1ZCTWhuTEJ3Z1NqOEh5eEJOaHRRSDh5Vjhpbw?oc=5) |
 | Trump administration begins new Ice operation in Massachusetts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPTkZMS3pkeTJiR3pPeDhOZmJaQlllMVNCalRDaFV4Uk1lSnJta0QxT25Va05PdVJPWkRLT3E3cHZNbzJndWI3RkxOTkNKUTdYVGEzdDUyQm05TVFFVlluaFVxdlNEbW9vQ1ZWcXY1Q1lYdm50ZzNJNDlaNUlnTTJGY25JVlRpZENhYlpVaG1BekdRYVd0WWNKUlBENEZhRUZwekRCLVVpTQ?oc=5) |
 | LAPD ends protection of former Vice President Kamala Harris amid criticism over diverting cops, sources say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi5wFBVV95cUxPNUNoWWNfeUlOdmJ3bnRKaWh3RWdQa2hnU2Q5bUFlYTRjRGo0MHp5ZVk4WmljMXdfTDNzR3F2c3ktTWtDUTMyLWtLMktlRFhGdUhQaFFNUksteFFCQ1RpR0o2M1ZYci1ZM2xZb1MxUmwtd2pIbDZ1Rjd1MFF5RENRY0dqY1hUeElXMDNKWXFhQWlkajBFdnZlejFNYUUtRmpzOW5SeWRpOGZRaUxFRWRKMG1mckV6RHU1YkJWVU1Bbmx5cS1RM3phd1BySFF0Y21YcWZSd1BwY0ZSbXNzbnVadWJrcHZQOFE?oc=5) |
