@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 13:36:33（北京时间）**
+🕒 更新时间：**2025年09月07日 13:48:24（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Winning tickets sold in two states for massive Powerball jackpot of nearly $1.8 billion - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQRm5KSDlNSFBtY09nM0xBbnAzT01mbWZDeFlxMGtPc2hHNTIxT1NYZnA1Q1o1czZZZDZXdTF0d1JGRHpmQjY5STZKOXF1bjVGZkhMMnR5ZFdpdDdib19Sb1R4UmkxR3RWeUUyNm9PRXFhWkFNOEhwdjdmOTRGcWZJZXpJMA?oc=5) |
+| $1.8 billion Powerball drawing turns up winners in Texas and Missouri - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOemhzcGZ6bElscnYxNE1FOGJWTHhjWEpJOEI2bmZaQXM3REhyWUI0bm1QNlFEMjdwajUxWUpwYnIyUEJUYWx4LXZGejBxM1hBRUZNUVc0clVaMm56S21PdWZMWnNDN1FVcGpMZUlKV1hyLXJla01DQTE4eVZWWWdNd1g4Vk1mWWRUYUFaUjRoZTB3c1U3RmV5SlBhTGVxSkxwYm5UelRneTDSAVZBVV95cUxOd3RsODdjdEZwR0FJcFpmUlA2Z2JvQnhEOWZxVnZuamFfZmlHWHdJa1N3akdZVlZMdmRyMHUtd3BrWW01cW92dDY2amx0bEZHc2V3aEpEUQ?oc=5) |
 | Tensions Mount as Trump Administration Threatens Federal Crackdown in Chicago - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQemtPMngtblhpQkpBU2FoS2QzdHAxV0h3M0VnbS1LWFh6anBuM3R1SWJUTEhGOC1YN3JnYTVnU0ZiVjhkdjR5SXpVVUJpdlVtX0ZkUTlVMm9BdTdsYUJ4RWV5b0x5aDBQMnJQWmlyNWh5aG54eXhmZWtxWjM4YU5ndG9Eb04?oc=5) |
 | South Korea says US release of video showing workers' arrest was regrettable - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxOY0lqWmRua29Pd3pyNlNEWWNxeU1XaDhscXRlRzFoSV9ESzY3WGtENGpFbmRDY0tFMEdOR0lRR01OWTQyVVIxMkFLVzRjRWFqWmJrak9QcXVVMTQyTktRWjNhNVB5UnVaZEFmamlUSlhsa2hmZFI5LVdlSnl4SjFMMWNZMFU3cE5DbDZ1b21uT0lrVXlDdl8xRWRZTmdfVXhrX2FuQWFFdVZ6NEl3ckx0QjFKZEtvQkZ4RnhIS21samw0Z0VKdXZIaWcxYmMxTy1laFhMZw?oc=5) |
 | Israel destroys second high-rise as assault on Gaza City intensifies - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9YV0FUeFZBRDBKNFRwdXk2a1YzYnIxdnVyenBJT2NNYjY0NFFqc0dweC11Vm8xcDdJYUgyUklCdVpqZEtDRkdfYzU5a1IzcUtvMlJXb21CSV9QUdIBX0FVX3lxTFBFVHFPemlHVGVYZ3Utc19VYmFCcHd0NFBmRUVKdzF3OFVZZDhhSjNoVkQ2RmF1SFBUcUVlTUNnOVFldkNRSkt6Q0ZYQmtWUEJwdUFVbmFVSmczLUU4Mmhj?oc=5) |
