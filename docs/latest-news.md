@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 17:25:47（北京时间）**
+🕒 更新时间：**2025年09月08日 17:37:19（北京时间）**
 
 ---
 
@@ -13,10 +13,10 @@
 | 'He put his hand down my tights': Sexual harassment widespread among barristers, review finds | [阅读全文](https://www.bbc.com/news/articles/c8xrejzk0edo?at_medium=RSS&at_campaign=rss) |
 | Australian triple murderer jailed for life over toxic mushroom lunch | [阅读全文](https://www.bbc.com/news/articles/c1jzr1d5xk9o?at_medium=RSS&at_campaign=rss) |
 | 'Don't be afraid': The self-written note that inspired Alcaraz to latest US Open triumph | [阅读全文](https://www.bbc.com/sport/tennis/articles/c9v7nld4we2o?at_medium=RSS&at_campaign=rss) |
+| Watch: Glitz, glamour and emotional speeches at VMAs 2025 | [阅读全文](https://www.bbc.com/news/videos/crl5ngr2069o?at_medium=RSS&at_campaign=rss) |
 | Supertramp singer and co-writer Rick Davies dies at 81 | [阅读全文](https://www.bbc.com/news/articles/cp98zg2k2xko?at_medium=RSS&at_campaign=rss) |
 | Unions warn government not to water down workers' rights bill | [阅读全文](https://www.bbc.com/news/articles/cq65l5epl3eo?at_medium=RSS&at_campaign=rss) |
 | Ex-sergeant major admits sexually assaulting soldier who took her own life | [阅读全文](https://www.bbc.com/news/articles/ckgqzxq0z55o?at_medium=RSS&at_campaign=rss) |
-| I haven't lived with my husband for 15 years - we're still happily married | [阅读全文](https://www.bbc.com/news/articles/c5y21nvd56ko?at_medium=RSS&at_campaign=rss) |
 | Trump threatens tougher sanctions after Russia's heaviest strikes on Ukraine | [阅读全文](https://www.bbc.com/news/articles/cwyrx205dj2o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
