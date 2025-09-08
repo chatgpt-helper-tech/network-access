@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 16:36:43（北京时间）**
+🕒 更新时间：**2025年09月08日 16:49:09（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Four killed in Jerusalem shooting attack, paramedics say | [阅读全文](https://www.bbc.com/news/articles/cr70ny0l7vgo?at_medium=RSS&at_campaign=rss) |
 | Huge drugs bust reveals battles on cocaine 'superhighway' | [阅读全文](https://www.bbc.com/news/articles/c5yvplyrrwno?at_medium=RSS&at_campaign=rss) |
 | 'He put his hand down my tights': Sexual harassment widespread among barristers, review finds | [阅读全文](https://www.bbc.com/news/articles/c8xrejzk0edo?at_medium=RSS&at_campaign=rss) |
 | Australian triple murderer jailed for life over toxic mushroom lunch | [阅读全文](https://www.bbc.com/news/articles/c1jzr1d5xk9o?at_medium=RSS&at_campaign=rss) |
 | Alcaraz beats Sinner to win US Open and topple him as world number one | [阅读全文](https://www.bbc.com/sport/tennis/articles/c8xrpd5jeveo?at_medium=RSS&at_campaign=rss) |
+| Supertramp singer and co-writer Rick Davies dies at 81 | [阅读全文](https://www.bbc.com/news/articles/cp98zg2k2xko?at_medium=RSS&at_campaign=rss) |
 | Unions warn government not to water down workers' rights bill | [阅读全文](https://www.bbc.com/news/articles/cq65l5epl3eo?at_medium=RSS&at_campaign=rss) |
 | Ex-sergeant major admits sexually assaulting soldier who took her own life | [阅读全文](https://www.bbc.com/news/articles/ckgqzxq0z55o?at_medium=RSS&at_campaign=rss) |
-| France is set to vote out another PM. Can anything break its political deadlock? | [阅读全文](https://www.bbc.com/news/articles/cm2z8xyz68mo?at_medium=RSS&at_campaign=rss) |
 | I live in a different country from my husband but we're still happily married | [阅读全文](https://www.bbc.com/news/articles/c5y21nvd56ko?at_medium=RSS&at_campaign=rss) |
 | Trump threatens tougher sanctions after Russia's heaviest strikes on Ukraine | [阅读全文](https://www.bbc.com/news/articles/cwyrx205dj2o?at_medium=RSS&at_campaign=rss) |
+| In pictures: Blood Moon captivates sky-gazers around the world | [阅读全文](https://www.bbc.com/news/articles/cx25nyjl4pdo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | South Korea, irked at U.S. raid at Hyundai plant, announces deal for detainees’ release - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPeUVsbGFvdGVtVmp3NTFvZzdJd1NmMU1Wcm1ZWXdFN2FXUW44TnZiY3hRRzRkY0xUVW1ScnlteFBtUnFPQTFFNDVGd2tOWU9CS0g2ZmhlN2xIazlJaUx3RjI3My1GMjN4YUJ0dERiTEJoc3VTZ2I5aTN2WXNYOVpqNUxZd2R3RW0tTXpPdktzTUpmN1NVbXBNNEN4THN1SHNSOVcySXpzUG9JeWlYRnVVSVNoVHJtNk9SUGVtR2k2VG9kdURXZVhld0pQOS16ZmNRUUE?oc=5) |
 | Trump Downplays Post Threatening Chicago, Saying He Wants to ‘Clean Up’ City - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNZkVadGVnZmIzRGRjd3Q4clI3V0xadHc1U3A1aTBWaUNDT3lZNHVHSDZVNi10ekJSWUJBeEhiN3ZrTmltbWpDQ2FzTHJ2aUF0YkNPRmhhRjZ5akh2NklmWVJVbWJJeVN5OFNhd210N09TYThMamYyaHhkaXFlSEJNNlZ5MA?oc=5) |
-| Japan's stressed bond market, stocks brace for PM Ishiba exit reaction - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQQlVrbkRPUVFsOHVPYm5LMzRXYUR0X1VJUFd2djVGWk5tY3l5T0drdW5jd05LQi1vRUJKNklmY0x4ekFLZ2JwaHJ3R2xWLWZlQ3V3MHU4aG53RW5VNVZNZFRxZVB5TER5Wi1CR3NuUWVsczEya25kd01yNDNDSUVseEFObXFmbHhfR2xHU29MSzZjbHFUR1UwcGpLV1ZRaWF0WGctRXM5M01wX3QyY3c?oc=5) |
+| Fed rate cut optimism lifts sentiment, yen slips on political uncertainty - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9OX2JXVU1iaWx4MTFHOEo1aWRMMnJZenc4eklScUFVMHZBME90d2N0OVUyM252SzFpczE1WVlYMFdCSFVmS2tHSUVoWHliWGdtVnlUNFJzZkswcTZqd2dwVFNKNkNkdXY2U2ZUMGROOG43RU1oZFF1RnpmZw?oc=5) |
 | Venezuela to boost troops to tackle drug trafficking as US strengthens military in Caribbean - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxQYTBTS0NTdzJoS0g2OHRHY2tfRm5KcmgtM0pwM29wNGdmX3VnWGlkY1R6LTlUMkdnNWVXblVVdkJGOHRQQWE0eXlXVkl4VTZCUE9pQ1ZrdTl6cmJGQklvbEFjcDhVV2NyMW4ycmh4SlVoZ21RclZ0bXpCUThBVHNGeWxUNU5QaVBoTm1uUWdDNGRkcG9oU0hLSjc1VU8yemJCTVE2MDZscFJzT29DemJTWEZmVzdiNVp6VG00UXg3azdYTnhTLTIyNnlRUEZsc0xHX21wSzBrR2FvS28?oc=5) |
 | Doubts about RFK Jr. grow for some Republicans - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdzlHcGVhdWowQ01LX2xuRFE5ajUyRHMxVjlsaTdHQW92NmtJYWxyeW4wd0pyT1J1TDlCTjl1cU9GNGZqdjhNVnRyd1hlLUl6S2pTSVkybVhJN0U0c3VJc09VTnpkUkozbmh0WWI1YXZpWGhBMUo4SEctRDJnRWxJMVNqQ2o?oc=5) |
 | Pope Leo XIV canonizes ‘God’s influencer’ Carlo Acutis as the first millennial saint - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQUUlzU2p6aHRlcUtlN0FnR2d5djJBOUtUSV9ZUV9vZGpVY0x1WFpBZzVaTUdQOWNuR1QydXVGS2ZEblJpYnpESDNicDN4bURrSVNSMU9rTVVWTll4aGlKRXpicjlFMHc0b2ZzRTdMbGloRHZMc2ZnRE0wVnJwdEtLQ2tmbjVGTm9IRUVWRzcyTUNqaTRBeWNnUUgyVFQ4NjNycy1RTzZrSU44QVZNVFYtZzd1ZVZqdzTSAbwBQVVfeXFMUEgwZkphWUJGN0VsOXVYV2VWRVlZNGVWT0xOSVFUOHpYZTJWRHlVZDdlTVFrdnlUN2dHZ3JSbDV4Y1l0QW5EMDdOMEdablFmNU9yTzJ1TUpMUDBTeXdCLTktYTdWME5wSFBoQkRCZVAxMGFyMUJNaVlVNk5qYzhneTFtX3M1Tk9NaU9iRG81WjhhYnM5Vy04MnM0UEY1OW5mTC1mal9uOUhOZkVqc0U2NjU4czRmTk9Yck90R3I?oc=5) |
