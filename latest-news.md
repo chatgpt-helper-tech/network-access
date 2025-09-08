@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 20:01:29（北京时间）**
+🕒 更新时间：**2025年09月08日 20:12:10（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | UK could suspend visas for countries with no migrant return deals, new home secretary says | [阅读全文](https://www.bbc.com/news/articles/c4g7xyn03yno?at_medium=RSS&at_campaign=rss) |
 | New Zealand dad shot dead by police after years on the run with children | [阅读全文](https://www.bbc.com/news/articles/c75qlerp2e5o?at_medium=RSS&at_campaign=rss) |
-| 'He put his hand down my tights': Sexual harassment widespread among barristers, review finds | [阅读全文](https://www.bbc.com/news/articles/c8xrejzk0edo?at_medium=RSS&at_campaign=rss) |
 | New Banksy mural appears at Royal Courts of Justice | [阅读全文](https://www.bbc.com/news/articles/cgrq0r0y878o?at_medium=RSS&at_campaign=rss) |
+| Great North Run medals show wrong city and river | [阅读全文](https://www.bbc.com/news/articles/c4gq2gdlnygo?at_medium=RSS&at_campaign=rss) |
+| 'He put his hand down my tights': Sexual harassment widespread among barristers, review finds | [阅读全文](https://www.bbc.com/news/articles/c8xrejzk0edo?at_medium=RSS&at_campaign=rss) |
 | Rayner replacement must be a woman, says Harman | [阅读全文](https://www.bbc.com/news/articles/c059z4g836eo?at_medium=RSS&at_campaign=rss) |
 | Huge drugs bust reveals battles on cocaine 'superhighway' | [阅读全文](https://www.bbc.com/news/articles/c5yvplyrrwno?at_medium=RSS&at_campaign=rss) |
+| Harry returns to UK and lays wreath as William remembers late Queen | [阅读全文](https://www.bbc.com/news/articles/c2378j5154jo?at_medium=RSS&at_campaign=rss) |
+| French doctor goes on trial for poisoning 30 patients, 12 fatally | [阅读全文](https://www.bbc.com/news/articles/crl5ngj9zwgo?at_medium=RSS&at_campaign=rss) |
 | Five key moments from MTV VMAs as Lady Gaga and Ariana Grande win big | [阅读全文](https://www.bbc.com/news/articles/c5yk5jw6w5ro?at_medium=RSS&at_campaign=rss) |
-| Mushroom murder survivor's plea to grieve away from the spotlight as wife's killer jailed | [阅读全文](https://www.bbc.com/news/articles/cly1v06xz7qo?at_medium=RSS&at_campaign=rss) |
-| I haven't lived with my husband for 15 years - we're still happily married | [阅读全文](https://www.bbc.com/news/articles/c5y21nvd56ko?at_medium=RSS&at_campaign=rss) |
-| 'I don't dare go back': BBC visits Cambodian villages caught in Thai border conflict | [阅读全文](https://www.bbc.com/news/articles/c059j8759rlo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
