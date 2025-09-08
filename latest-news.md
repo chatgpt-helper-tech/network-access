@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 20:24:38（北京时间）**
+🕒 更新时间：**2025年09月08日 20:36:40（北京时间）**
 
 ---
 
@@ -9,6 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | UK could suspend visas for countries with no migrant return deals, new home secretary says | [阅读全文](https://www.bbc.com/news/articles/c4g7xyn03yno?at_medium=RSS&at_campaign=rss) |
+| Six killed in Jerusalem shooting attack | [阅读全文](https://www.bbc.com/news/articles/cr70ny0l7vgo?at_medium=RSS&at_campaign=rss) |
 | New Zealand dad shot dead by police after years on the run with children | [阅读全文](https://www.bbc.com/news/articles/c75qlerp2e5o?at_medium=RSS&at_campaign=rss) |
 | New Banksy mural appears at Royal Courts of Justice | [阅读全文](https://www.bbc.com/news/articles/cgrq0r0y878o?at_medium=RSS&at_campaign=rss) |
 | Great North Run medals show wrong city and river | [阅读全文](https://www.bbc.com/news/articles/c4gq2gdlnygo?at_medium=RSS&at_campaign=rss) |
@@ -17,14 +18,13 @@
 | Huge drugs bust reveals battles on cocaine 'superhighway' | [阅读全文](https://www.bbc.com/news/articles/c5yvplyrrwno?at_medium=RSS&at_campaign=rss) |
 | Harry returns to UK and lays wreath as William remembers late Queen | [阅读全文](https://www.bbc.com/news/articles/c2378j5154jo?at_medium=RSS&at_campaign=rss) |
 | French doctor goes on trial for poisoning 30 patients, 12 fatally | [阅读全文](https://www.bbc.com/news/articles/crl5ngj9zwgo?at_medium=RSS&at_campaign=rss) |
-| Five key moments from MTV VMAs as Lady Gaga and Ariana Grande win big | [阅读全文](https://www.bbc.com/news/articles/c5yk5jw6w5ro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | At least 6 killed in shooting attack at Jerusalem bus stop, Israeli officials say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPTlV0amYtdTRuaEprVUktSjB2a2JFRDgycmhqSWVwMW85WkQzU1F1OFpvWVJCalQyNVNWcnhhYjVwMUtCSjlDZjlGSk1FMHdSS1I3X2ZDZFNuYVh5ZnVCNURmVE1Qbll1VnA1OFFlb3l5SWZBcGd0bmE2WlNKZjdQd1hOTQ?oc=5) |
-| Immigration Raid Exposes Tensions From Seoul to Washington to Rural Georgia - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1QVVpwdWprWG5NYzczTm0xcjU2Vi1NaUM4VlB3TlgxNUdkMmRNX0dOdDY1Y2dnYklxUGxveV9KN3hrV0tOalZrU2poTUppSDZCV2s4OGFja0lCQVo5ZVlGSGRiTzFIZ3FZWDE0VVVuRmxnbWxzZnc?oc=5) |
+| South Korea, irked at U.S. raid at Hyundai plant, announces deal for detainees’ release - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPeUVsbGFvdGVtVmp3NTFvZzdJd1NmMU1Wcm1ZWXdFN2FXUW44TnZiY3hRRzRkY0xUVW1ScnlteFBtUnFPQTFFNDVGd2tOWU9CS0g2ZmhlN2xIazlJaUx3RjI3My1GMjN4YUJ0dERiTEJoc3VTZ2I5aTN2WXNYOVpqNUxZd2R3RW0tTXpPdktzTUpmN1NVbXBNNEN4THN1SHNSOVcySXpzUG9JeWlYRnVVSVNoVHJtNk9SUGVtR2k2VG9kdURXZVhld0pQOS16ZmNRUUE?oc=5) |
 | Fed rate cut optimism lifts stocks, as investors watch politics across continents - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE4tU0lNcl9sWEk4OC1TeGJydDlyZjlDNHFGb25ZbllBS2c0SHFONGNsZGxDLVBWdXRmZ2RaNmZmV1g3ZnNnQVNCU3Vud2RublFmM1dfOVRURDB2dWFSQmctSEJ0VUl5UjNZTGNpTl93MlN4Z2V2LTRHQ25lMA?oc=5) |
 | Justice Amy Coney Barrett responds to criticism that the Supreme Court is allowing Trump to expand his power - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOT2JTWWZrdVQwcWg0ZTVJNHlPNlJ4Q2ZiTUhET1BadFZEMTN4Z3p0VjZmb2lSbmFNeEE0bXRMeUxrZWV2OUhUOFdTOEROWFV3RmhSWVBSdm1RbXZaaERKNTdTc2t0enlsU3N6ODhTMGltdmlfTVBGZmhoWkR0bTNQLUthZUY3YjVCTEctbm5sN1LSAZYBQVVfeXFMT2FyRzhPX1RyNklEOExLZVNaQ1F6b3hBeVhJV1QwVTZmY0prQVZ4WFdMWHBoMjhzRE5jRTJjMEtkU2R1eVdxd3BwQ3drYjdSdDRlVmFXdS1ibmN0TWFXdy1IY0NjVy1wa1FtOFhudWl5d19fckt3dFNzZDgyMmN2ZWRSaUxLNWR2NnFMSVAySFRyRUdMaXln?oc=5) |
 | Javier Milei suffers stinging setback in Buenos Aires polls - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE01MUlYWlVnTDktdXR4c0xNNndObUZwREI1LUZJQzlxZF9zZ2EwcjF0UUJoaTB2WFFVQWFQcloxRzh5M05jVW41TFdDZVdTR2dPcXgzbmFuS0lmSV85UldHdFpEaUNwWjU5Z1o2UVJfU0I?oc=5) |
