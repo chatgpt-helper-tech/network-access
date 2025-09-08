@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 22:13:21（北京时间）**
+🕒 更新时间：**2025年09月08日 22:24:15（北京时间）**
 
 ---
 
@@ -14,9 +14,9 @@
 | New Banksy mural appears at Royal Courts of Justice | [阅读全文](https://www.bbc.com/news/articles/cgrq0r0y878o?at_medium=RSS&at_campaign=rss) |
 | Great North Run medals show wrong city and river | [阅读全文](https://www.bbc.com/news/articles/c4gq2gdlnygo?at_medium=RSS&at_campaign=rss) |
 | 'He put his hand down my tights': Sexual harassment widespread among barristers, review finds | [阅读全文](https://www.bbc.com/news/articles/c8xrejzk0edo?at_medium=RSS&at_campaign=rss) |
+| At least 19 dead after protests against Nepal social media ban | [阅读全文](https://www.bbc.com/news/articles/c78nd2zy9jgo?at_medium=RSS&at_campaign=rss) |
 | Labour's new deputy leader must be a woman, says Harriet Harman | [阅读全文](https://www.bbc.com/news/articles/c059z4g836eo?at_medium=RSS&at_campaign=rss) |
 | Harry returns to UK and lays wreath as William remembers late Queen | [阅读全文](https://www.bbc.com/news/articles/c2378j5154jo?at_medium=RSS&at_campaign=rss) |
-| French doctor goes on trial for poisoning 30 patients, 12 fatally | [阅读全文](https://www.bbc.com/news/articles/crl5ngj9zwgo?at_medium=RSS&at_campaign=rss) |
 | Five key moments from MTV VMAs as Lady Gaga and Ariana Grande win big | [阅读全文](https://www.bbc.com/news/articles/c5yk5jw6w5ro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
