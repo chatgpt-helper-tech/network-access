@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 11:36:40（北京时间）**
+🕒 更新时间：**2025年09月08日 11:49:02（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Playbook: Trump’s ‘Apocalypse Now’ moment - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQbWVsU3hDdEJxcnJsWGZzdkxUWksxZ1hSTWt2aWQyMUQxWkRjUU1EbS1oZXVGZFp3ZDlKajl4RkdEOVExd3lTU0kxNUNWNUYwUDlMWlljTEFxV0JUUzNUbXNtTnZ1cDMzWlFSVldvMVl2LWVGU3dISXp3WmlsblRhaTNfTDhoaXVtUWdGelB2eGV2Rkxwa3BXLVV3?oc=5) |
 | South Korea reaches deal with U.S. to return home 300 workers detained in Hyundai plant raid - PBS | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNZXItNHUwNWpPck5uaVJKRUxUcHNCNl93UnJseVphZVdWNllIOGlFdXNFYlJGYVZEa3ZELW5sRVNqNkM1Y0xSZ0ZlenNGRFdLZE9jaHlYLV9XaXh0RjZlalZJdXYtaHVNcUxfUjRhX2Mwbk9BSDY2emN4MkhHci1SUTV6RUVHaWF1QnVPRllOV2VRZ3hZYTBmYjcybXpvRW1FSjF1UnNMZWp4SWxObHpmNHF3M2c0WHdFX205bEZFRUJvWDVO0gHKAUFVX3lxTE1GX1hvTldpc0hZM2sxWXNBU2U3UTRieDV5bzA0VE1tUXhFU2duMHh5VDRBM0VBOHF5b3pwYWNIZVh0aWJSNS14M1lJT0NjNW5CTU1ZSWJkSkZlcjdXd20zajU0ZFdObndqeUxJWjNBaU5IY2I0REpKSmhYVnBxVkMtYnk5Vi1YTnVtNk5oOUtHN01lYlZPczhHUDd5Tlk3N2VZc3NLVTUyZkJTQWJHaDJoSjBEUV8yYkh3Z1JnSTc4SmYwaGc1MWtoQnc?oc=5) |
 | Doubts about RFK Jr. grow for some Republicans - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdzlHcGVhdWowQ01LX2xuRFE5ajUyRHMxVjlsaTdHQW92NmtJYWxyeW4wd0pyT1J1TDlCTjl1cU9GNGZqdjhNVnRyd1hlLUl6S2pTSVkybVhJN0U0c3VJc09VTnpkUkozbmh0WWI1YXZpWGhBMUo4SEctRDJnRWxJMVNqQ2o?oc=5) |
-| Pope Leo XIV proclaims Carlo Acutis the first millennial saint - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPaUFOMlVSZkRqRTNxZkxQUS1TUVJZYVFyYVlUdC1sMXB0MkxFRnZIbEtfYktOZlhrQVA1TnNFVUxRWWhVd1d0RW5IQUhVdlJHRThrem8wbDBaMUtaUzRZNGRnSk51eGptMUZDZ29hdkxGU1BSYjcwZ2cwdHU4SmFrTjRqT1RjeGpsV1R5dnRscm11TUQtVG01cA?oc=5) |
+| Japan PM Shigeru Ishiba to resign amid fallout from disastrous elections - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQalZWQ21hTlA0ZFRFVDNxclVmUG9JdUV3eU1XZFFoLTVLWTRXbmJMUUUya3NDSHNpMDZwRDRwd3R0dHhCY3ZhelhZUy1PQURFWjJHMlVHTzFOZHNpNnQwLVdxWWhialZabkRBRE9CMjAwMWdaR0M2TjhyYnJmZi1RLU53?oc=5) |
 | Adversaries Bruce Springsteen and Donald Trump Both Attend U.S. Open - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOU1BvZ0x3dnM3bzhQYlhjd1Z1OFlxVDVka1YtekwtUDdna0ladjA0RHZrVzlUOC1qczRKdjZ2cDlvbHBLSnNOSFk4UHEtdWMya0tobWIzOVptTjAzZzJ1MUw1Y1lCVGcyZWpFeVZYa1pHSGVLdDNacXdBU0p0T2ZYbUoxWUZLMlJCdC14bDl1b3M1TTUzUUVWVkNCcTc?oc=5) |
 | President Says He’s Not Declaring ‘War’ on Chicago - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE41WjlpVnkyaGJvOUNCMHFkUTlqc3ZVWV9ldFRreDJtek1ZWGxRZFNNXzZfMWZoRDJqR3ZOWU1oY3B1NDkxNnhFU0puR01aVnhpWnRZcGw5bmV0RFRLb2NUSGNiWQ?oc=5) |
 | Trump administration launches immigration enforcement surge in Massachusetts - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPNDEzV0xfbklKMDMwc0xMandwLVQ5c1NpLWNibXMxR1poSjlOcGFqU1lPY194Wm9IZV81RTR0dWtPVHIwd3dhQkFBNDhwYkNPMmtZZUY1OS1PZF9FSVFseTlFelEtZkFRaG9rSHczekJnV1k4Z0lZRlB6U3dFMDk3MXhBQktCWnFtdFgxQmNqaw?oc=5) |
