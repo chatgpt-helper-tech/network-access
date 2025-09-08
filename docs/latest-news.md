@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 09:25:56（北京时间）**
+🕒 更新时间：**2025年09月08日 09:37:06（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Why some Republicans are newly worried about RFK Jr. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdzlHcGVhdWowQ01LX2xuRFE5ajUyRHMxVjlsaTdHQW92NmtJYWxyeW4wd0pyT1J1TDlCTjl1cU9GNGZqdjhNVnRyd1hlLUl6S2pTSVkybVhJN0U0c3VJc09VTnpkUkozbmh0WWI1YXZpWGhBMUo4SEctRDJnRWxJMVNqQ2o?oc=5) |
 | Sen. Tammy Duckworth says Trump "essentially just declared war" on Chicago, but there's no "indications" of deployment - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE80WkhpS0Flek1CSnBuM2JOYjQ0Yy00Zm9vb2JzdlI3ZkMtejJ6X09ZS1VkMy1nbjlkNldDTzU2TC12ZGpJWmRzdGp2OC13bE1GbEl0ZVRoTmFxT0VPMHJsSjBwbVUzTWh6V0RUWktNc2pLelZBbUJaTFJYaTRkMlHSAYQBQVVfeXFMTk5VMzg5a09KVDhYQXlNYmRKV0YyMDJkLXozajh0Q2o1SHRabWxtMU93cTlWSXdTbThUOVdYOWxDclFDRXBOc014YW9ySENROXEyUXVGUm05T2R6YkVJSjRxa3p1c3BKTUFzN2ZQMzl3NVRUeFZyT05haDE3NU1YQ2lGTlFR?oc=5) |
 | Trump Is Met With Mostly Boos at U.S. Open as Security Delays a Match - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNT1EzR2l4dFFZUEhJeV9ZY2NHT2w0bmlxN043ZGxSaGg5U3daTkpjQTNrQkMteHdrZGFLeWVpek1EM25Qc3pfQ2xWV1ZDNjFCeVlFTDRxVHI5OWJsYnp4OG8wTFFmRGlRcm9sdkd2bmpQYWJUbnA3dndnWk1KcEpiVkJJdlMtWXMwamszaw?oc=5) |
+| Trump administration launches immigration enforcement surge in Massachusetts - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPNDEzV0xfbklKMDMwc0xMandwLVQ5c1NpLWNibXMxR1poSjlOcGFqU1lPY194Wm9IZV81RTR0dWtPVHIwd3dhQkFBNDhwYkNPMmtZZUY1OS1PZF9FSVFseTlFelEtZkFRaG9rSHczekJnV1k4Z0lZRlB6U3dFMDk3MXhBQktCWnFtdFgxQmNqaw?oc=5) |
 | Republican condemns Vance for ‘despicable’ comments on Venezuelan boat strike - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNVUxtNzF4dUZyQmJxOS10ODRqYmhWZUtud3NOWG9QS1ZweTc1R3RVckRfdkRhVFVaZUFCYjh1MjdkajF2UFRMRU4xOUpRMEx5NmxpLXA0QTg1SEgtbFh4Q0Z6QkZRMlpzeFdKeHFoLV9yNXY1RWZRejNyWFpaS2dBVXVGaXc4MzJaa3VWZUE1cUN5bTQ?oc=5) |
 | Florida’s plan to drop school vaccine rule won’t start for 90 days, won’t cover all diseases - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPcFNDUXpYMjg2dDNrSjdhTkRwcmZ3ZjJ5V1Vpdmw1QUlfOUtaWFZORm43bS1yejRYZUdyLXN3eWdTeXFCSnVzN2tDTTA5QTE1QWpXbzdGQ3FMdFd0dkM3VFd1ak1uTU5kQzZSUGxfUFdZX3I5WFlRVWFOMWh3SmxvRGRyQWxINmF0cC1VLWRRUTFwMGNoOHJ2Yg?oc=5) |
-| Treasury Secretary Bessent warns of massive refunds if the Supreme Court voids Trump tariffs - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxORnJkVjdLVlN1U2h0b1hBVlFvTkE4ZldveVljallIN1VLdW40bjhSemlpQzg4dmMzdXc4eEN1TTRTdHNnZVNCUkNKQTlFVHFiZGUwS3dZUzc3eDFNRzNRWlFPVGpiLUduY1hQM2ZhQmt5VE43bHdGOVc1VFVYR2RScmNGREvSAYoBQVVfeXFMUDNYTnFneWNPb09qcnJtZllfMnhHUnhaWHprTGVRei1WaF9xbHVNR21aR1A4UDR0cXN6dmpOVnNydVVodmpnem1wX3Qwb3J4Q2V3SUMyYVZQZkJLUF9hd1lpOUcwY3YtYllYRy05RmJJSVp2eVNEQ2lOZnltZjViUDZ6SHRldy1lM0F3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
