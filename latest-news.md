@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 17:00:22（北京时间）**
+🕒 更新时间：**2025年09月08日 17:12:44（北京时间）**
 
 ---
 
@@ -9,6 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Huge drugs bust reveals battles on cocaine 'superhighway' | [阅读全文](https://www.bbc.com/news/articles/c5yvplyrrwno?at_medium=RSS&at_campaign=rss) |
+| New Zealand dad shot dead by police after years on the run with children | [阅读全文](https://www.bbc.com/news/articles/c75qlerp2e5o?at_medium=RSS&at_campaign=rss) |
 | 'He put his hand down my tights': Sexual harassment widespread among barristers, review finds | [阅读全文](https://www.bbc.com/news/articles/c8xrejzk0edo?at_medium=RSS&at_campaign=rss) |
 | Australian triple murderer jailed for life over toxic mushroom lunch | [阅读全文](https://www.bbc.com/news/articles/c1jzr1d5xk9o?at_medium=RSS&at_campaign=rss) |
 | Alcaraz beats Sinner to win US Open and topple him as world number one | [阅读全文](https://www.bbc.com/sport/tennis/articles/c8xrpd5jeveo?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | Ex-sergeant major admits sexually assaulting soldier who took her own life | [阅读全文](https://www.bbc.com/news/articles/ckgqzxq0z55o?at_medium=RSS&at_campaign=rss) |
 | I haven't lived with my husband for 15 years - we're still happily married | [阅读全文](https://www.bbc.com/news/articles/c5y21nvd56ko?at_medium=RSS&at_campaign=rss) |
 | Trump threatens tougher sanctions after Russia's heaviest strikes on Ukraine | [阅读全文](https://www.bbc.com/news/articles/cwyrx205dj2o?at_medium=RSS&at_campaign=rss) |
-| In pictures: Blood Moon captivates sky-gazers around the world | [阅读全文](https://www.bbc.com/news/articles/cx25nyjl4pdo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,8 +30,8 @@
 | Doubts about RFK Jr. grow for some Republicans - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdzlHcGVhdWowQ01LX2xuRFE5ajUyRHMxVjlsaTdHQW92NmtJYWxyeW4wd0pyT1J1TDlCTjl1cU9GNGZqdjhNVnRyd1hlLUl6S2pTSVkybVhJN0U0c3VJc09VTnpkUkozbmh0WWI1YXZpWGhBMUo4SEctRDJnRWxJMVNqQ2o?oc=5) |
 | Pope Leo XIV canonizes ‘God’s influencer’ Carlo Acutis as the first millennial saint - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQUUlzU2p6aHRlcUtlN0FnR2d5djJBOUtUSV9ZUV9vZGpVY0x1WFpBZzVaTUdQOWNuR1QydXVGS2ZEblJpYnpESDNicDN4bURrSVNSMU9rTVVWTll4aGlKRXpicjlFMHc0b2ZzRTdMbGloRHZMc2ZnRE0wVnJwdEtLQ2tmbjVGTm9IRUVWRzcyTUNqaTRBeWNnUUgyVFQ4NjNycy1RTzZrSU44QVZNVFYtZzd1ZVZqdzTSAbwBQVVfeXFMUEgwZkphWUJGN0VsOXVYV2VWRVlZNGVWT0xOSVFUOHpYZTJWRHlVZDdlTVFrdnlUN2dHZ3JSbDV4Y1l0QW5EMDdOMEdablFmNU9yTzJ1TUpMUDBTeXdCLTktYTdWME5wSFBoQkRCZVAxMGFyMUJNaVlVNk5qYzhneTFtX3M1Tk9NaU9iRG81WjhhYnM5Vy04MnM0UEY1OW5mTC1mal9uOUhOZkVqc0U2NjU4czRmTk9Yck90R3I?oc=5) |
 | Trump administration launches immigration enforcement surge in Massachusetts - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPNDEzV0xfbklKMDMwc0xMandwLVQ5c1NpLWNibXMxR1poSjlOcGFqU1lPY194Wm9IZV81RTR0dWtPVHIwd3dhQkFBNDhwYkNPMmtZZUY1OS1PZF9FSVFseTlFelEtZkFRaG9rSHczekJnV1k4Z0lZRlB6U3dFMDk3MXhBQktCWnFtdFgxQmNqaw?oc=5) |
-| Florida’s plan to drop school vaccine rule won’t start for 90 days, won’t cover all diseases - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPcFNDUXpYMjg2dDNrSjdhTkRwcmZ3ZjJ5V1Vpdmw1QUlfOUtaWFZORm43bS1yejRYZUdyLXN3eWdTeXFCSnVzN2tDTTA5QTE1QWpXbzdGQ3FMdFd0dkM3VFd1ak1uTU5kQzZSUGxfUFdZX3I5WFlRVWFOMWh3SmxvRGRyQWxINmF0cC1VLWRRUTFwMGNoOHJ2Yg?oc=5) |
 | Pete Hegseth Reads From Notes in Awkward ‘Department of War’ Promo Video - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPc2JLVTY2R1J2c0JqQ3VoNU1wVlN4VmJIbXh3M3RTZE1mLXkyVnJSYmFUVlJqR2M0aE00Z2g2UEdiMHZtU1ZLSzU0YkxVTGl3YnhIa0dVWXFocDMxQXdoSHA0X251WEVzdmYtRDB4RzJsWDZVTlFpX2xDeHFITWp1UXVXSUJ2MERxZEk0OHBFblhCaEJxUFNmd0gxODFKM3k2UnA0?oc=5) |
+| Florida’s plan to drop school vaccine rule won’t start for 90 days, won’t cover all diseases - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPcFNDUXpYMjg2dDNrSjdhTkRwcmZ3ZjJ5V1Vpdmw1QUlfOUtaWFZORm43bS1yejRYZUdyLXN3eWdTeXFCSnVzN2tDTTA5QTE1QWpXbzdGQ3FMdFd0dkM3VFd1ak1uTU5kQzZSUGxfUFdZX3I5WFlRVWFOMWh3SmxvRGRyQWxINmF0cC1VLWRRUTFwMGNoOHJ2Yg?oc=5) |
 | Republican condemns Vance for ‘despicable’ comments on Venezuelan boat strike - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNVUxtNzF4dUZyQmJxOS10ODRqYmhWZUtud3NOWG9QS1ZweTc1R3RVckRfdkRhVFVaZUFCYjh1MjdkajF2UFRMRU4xOUpRMEx5NmxpLXA0QTg1SEgtbFh4Q0Z6QkZRMlpzeFdKeHFoLV9yNXY1RWZRejNyWFpaS2dBVXVGaXc4MzJaa3VWZUE1cUN5bTQ?oc=5) |
 
 ---
