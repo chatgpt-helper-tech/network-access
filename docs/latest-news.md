@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 03:01:11（北京时间）**
+🕒 更新时间：**2025年09月10日 03:12:23（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Why GenZ has taken over the streets in Nepal - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9heUVTbVhZcUJyWTB3WHd0RC1LTnVqaXJGT25tdHp1elIxY0U2Zlc5QmFhOVJ6Ym1fR05SdDJ4Q25hSjVyWk1oMndRMVFjZjBBajVISmZlWHhWQdIBX0FVX3lxTE93cHluTzZaQ3pJM0JYMlB0M3R4NmJWeXJ3WTBjMk5RR25qWTZsWDMyZk96LW9iYnJkWm5sWkpmYXNhemx2c2ZsZEdDaGljcko3V3Q1Tk1aSkxiR3UtRm9j?oc=5) |
 | How the lives of a Ukrainian refugee and a Charlotte man with a criminal history converged in a fatal stabbing - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPZXRRWTV6RUc3R0NSNWFRVEhXMWZSTjZyUDlTZWlUcXJHbXJyN1NEWjVmSlRSd2FUZmplUTdFNHRpaGJWSlBHcjg2U2x4aTM0Rml1XzRnNC1aRVcwc2FCaVdXZEY1andvQnFMWGRvWVdlRG9PZFdXRUt1MkYyQW1SMg?oc=5) |
 | RFK Jr.'s new MAHA roadmap is finally public - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxON2ZRVHFZUDlXVkV1UFAwN1VHVEtpOVVTWmtsOVVsLUlMbzEtQWEwS0JpNjFxQy1yUUVfakhZSl9xNjRqQmFJakkzY0lzUHFxT25sbmhqV0p5bU9YZzdSMjV4eVFmSFA0TXNMNmZnb0dUMTBCT21Rc0pfcnN1NUlyRDkxU3dxbnI2Z3V6ZkREQ3BlSFpfWTU3WnVWTUEzX3VyTjhiNWdIUkxENkVUY2c?oc=5) |
-| Missouri House is about to enact new US House maps that erase a Democratic seat - CNN | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE0zMnFkZFZ3d0VoZ09LMG1CUzltOHlFa205bHV3VDRYTWhncjZ6ZGI5a0JKOEJjNDN0d2xoc1ktcFhNSWRmYjk3aXZSM3hnTmJjYkI1d3Z4WDBOMGJkU2xYT2Mzdk1BRUU1MzZqazA5QQ?oc=5) |
+| Michigan judge dismisses charges against 15 pro-Trump 'fake electors' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPRUd2VU1ydDFUc2FsMXEwM1lubHUydlplMXRUSWtfNzdDbUJhOUhUVE5kWnItdmdZVHZyai1USVdQNTFub2Z2VnRhdjZMVFk4SDJXbjJLdzJEVHZGalVTam04bkVNdS1OV3h0SWU1eFhSOGdvLXVBNkVxS01Zbmdna3ZNUHdmaUhvX0JNYWRxMHAtTzg?oc=5) |
 | US high school students lose ground in math and reading, continuing yearslong decline - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQYXVNSmtzdkoyU2F3Zm1KNUx5LW5nUDFpSVplYlNQUjVqc1dWczNwZjlibW1ZLVlzU2pkdjZPTXJBQkdTblVab1FHYnF2dE9tVnUxcVN2ZTk0SHZ1bFNBMkdNYWgyUU92YlAwRlJOSGZzLWx2ZzJBSUNraExpV2FNdU1aYWhwNUZYSlg5ejZfakhYNUhRZUJXdXJzMA?oc=5) |
 | House GOP waiting on Trump for spending cues, Johnson says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOYXhQblBfb21YQ0N2ak5xSjNlTU42SmU0UDZzQzRSSG5tNDRnS3lWOUZ0eVd3aHRVVVl2S2xMU3pEeF9hMHFuTl9jSXl1eXR0RU5jUy1kRzZuMG9LSmt5dlA5VDhIeGVkaWVxTExlUG9wMUxSemtXS29taHRmRFo3WmRBV002bE9mdTlSSktoMC00UnRYd1laakIyS3BDTmRZa1Rj?oc=5) |
-| Early Addition: Some real estate developers are 'resigned' to Mamdani winning. Others aren't. - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOdTV4dmhLZHZLdzhHcnlEdzloRGlydXAtT1JKS2dubkIzTDVRbFRqM2FtTkVuXy1tMzY2akdveG9rOWx6VlRvbmI5RWw5R0JpamNLdjFmTkhJMUdJRk44TXVwWGd1WFllLXVUbTBOZkw4dmw5YnJkLWVPa3dxeGVIUWs5TXNrZW5NQ2R6MzRPVGVHNHpBQnktZlkwXzhYaGZMWlhvd0FCdWZGekduNS1ndGEtY1E?oc=5) |
+| Missouri House is about to enact new US House maps that erase a Democratic seat - CNN | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE0zMnFkZFZ3d0VoZ09LMG1CUzltOHlFa205bHV3VDRYTWhncjZ6ZGI5a0JKOEJjNDN0d2xoc1ktcFhNSWRmYjk3aXZSM3hnTmJjYkI1d3Z4WDBOMGJkU2xYT2Mzdk1BRUU1MzZqazA5QQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
