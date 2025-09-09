@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 05:25:36（北京时间）**
+🕒 更新时间：**2025年09月10日 05:36:35（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Suspect in Charlotte train stabbing facing federal charges, possible death penalty: DOJ - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOV181S3gtUmZqajRQUGRnTVk1U0RyQ1h2YWJPb0FBOFdiSldkVE1fanFpM1VHdWlRQkJMR1BNQWUwZ1k1UkpwdmVaS0Zpd3FPVGJlZ3N6T3pXZnBDUmxHWm4wTDBkZmk4YXJyZnpKaXhUQVFYcXRXX05hZmlndWo2UncxY1ZaXzFCVkVYYUQxUk1EUmF6bEQ4VGdyYUNZclRUSm4xTdIBqgFBVV95cUxPSWtBaTBaa0xCNDlvX09TNk9ERHRWNkJxZXE4MXpQSno5UEZpN1NwUlA5X29FODJ3U3ctVDNySnV5aXU1WDQ1aXdydmdWbzloQUREdGdidFZqVFk2VDFQYXJxMkZFdnZNV01VX2pja2RfZUlNZDlLYmQ5cDNaSUtyWE5uY1B2RnNIdERsYmpzX0hDUUVmLTU1SEZpZVE4U1FzMVV4aEttbUtrUQ?oc=5) |
 | The MAHA plan for healthier kids includes 128 ideas, but few details - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPVG5waGN4eUpkQXpYSXFNY2tBSXVHLWxZWnE0ZjRyblRheTFfV0NkUENxMnY0OXpqRDUxVlhvdnpPcF9kYjVQU25Hc1VNOUF2cHNpc081d24yd2E2YnRSTC1NeTVWRDQ3RURTZExuZ1hkNkFhZlBLSWIwcVlsRHBuTk5DNmkxRlk0eG12MEdySVNWSFE4amRTcjBqNHBpZmFEQ2dySEEyYw?oc=5) |
 | Trump's ICE targets Chicago amid objections from mayor, Illinois governor - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOWXBxLWdwOGV3ZlBaUlJ0QVRHbndtYjkwN0QzRlNPZGptVnJTT0lXcThGUUdLT1JFVU1jM0pfYzlYSk1saHJBT2dPV203di01dmcxaW45UXhwS1RNaExXa0JSU1BuTG9GQTJnWlNhRHc4VkFySW1vUHNaTmdEekNlZ01BUGpGQQ?oc=5) |
-| Missouri House approves new US House maps that seek to erase a Democratic seat - CNN | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE0zMnFkZFZ3d0VoZ09LMG1CUzltOHlFa205bHV3VDRYTWhncjZ6ZGI5a0JKOEJjNDN0d2xoc1ktcFhNSWRmYjk3aXZSM3hnTmJjYkI1d3Z4WDBOMGJkU2xYT2Mzdk1BRUU1MzZqazA5QQ?oc=5) |
-| ‘We can’t not pay attention.’ Student scores hit new lows on nation’s report card. - The Christian Science Monitor | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPNjR3cHlVSlNZYUwxVG9Ha1BKaXV6VU5zQlJhbkRzNWthQUZGVVJvemUweU1JMHZVR3FERTFwd2dqVDBsT2R0YmxnanlQc291TFZMaEYxT3M4dUVjcms5MzZ1TDMwdEtrMTlNelNyQ3B0Y2dZZVpiM1Ytc1hUWnZrVGRST2o3dnhCVV9RaV9yNWJoWVFhX2ctMnlDVWVZTzBR0gG6AUFVX3lxTE1JV3BsQ0xGMEFCRFFnTFpGSWFORzcycG9aQzZHdTQwQXNDTzFMemtBaTViTThSbUhVcjFZbWZHNUtVVlAtR0huZ0xnTzVLSWdhTUc3VWVpcDkyVXZWRkZETF9OZmNma2tWUGRnV0VSbVdLZlFGLUZZd1JLU3VmUnM0WjI5bnJKMmRWcmtDMXVuN1dXdjFnVEJNdlRONWQ2TkNkMjF2SG9JTjZIZWFjbE5CTmxSSGxYMGNtQQ?oc=5) |
+| Missouri House passes gerrymandered congressional map, limits on initiative petitions - Missouri Independent | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQYUhqNmR2ODdxekJsWDRLcDhlU2VpY0lIT1dFV3I2R1lVSDVZakVWcmlyRTJMdkphSWM5M0k2RkRCWHZHbHJnWTB0Q1pReHYxVVhIVnBfT3hQMDVLSjFhZlloYjNSVGd4ekFCSTVWdUI5YmRjaEh5YzJEbXh2SGl3aXJIaW9FOE1vVUNmRE5tZVFvbkRsUC12TGtjUV9BanluQTREd3hXUm1zMTBwbmRCUVVNVDBsY0lTcnlrNzRPQzR4RW9HRWtn?oc=5) |
+| US high school students lose ground in math and reading, continuing yearslong decline - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQYXVNSmtzdkoyU2F3Zm1KNUx5LW5nUDFpSVplYlNQUjVqc1dWczNwZjlibW1ZLVlzU2pkdjZPTXJBQkdTblVab1FHYnF2dE9tVnUxcVN2ZTk0SHZ1bFNBMkdNYWgyUU92YlAwRlJOSGZzLWx2ZzJBSUNraExpV2FNdU1aYWhwNUZYSlg5ejZfakhYNUhRZUJXdXJzMA?oc=5) |
 | How the Hyundai raid could upend Trump’s dream of more U.S. factories - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQdXJtMTE1bUJ1QjRYV1EzOFlYUTJ4RGdlLVlNbWsyck53YnZXWXAxQ2I2MU52ZllmLVdKVmVNRkduVUw1enBzY2ljS2dScXNhVjFrMWhLSFhCZU1ycUk2VE5ZV3BhNVlvSjE1YTdIWHQ2bVBFUFgyZHlKN0ZGcDRreWtZdWd5TjdGS2JnY3BwODVLTm13dmRBcV9oOA?oc=5) |
-| Chief Justice Roberts keeps in place Trump funding freeze that threatens billions in foreign aid - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOZ3RzZUo4OFFjWTNFMEU0QjM0VGl3M1hFaFk0cnBoMGt5U1E2Q1o2aEFZODl4MGhTQ2o2dVRocUdmXzREYWpXVTVqZElWUGxYbGdOUVJ3YTNtbzhTYnFhb3lWRTFzOWVVNFFUQ29EY3ZYWGRrVHlwbkJpZk5Kb20wTWhoZ2tMUlV1WlRkUUk4V2FXMExUQzZnWGhvVmxvZHc?oc=5) |
+| Michigan judge dismisses charges against 15 pro-Trump 'fake electors' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPRUd2VU1ydDFUc2FsMXEwM1lubHUydlplMXRUSWtfNzdDbUJhOUhUVE5kWnItdmdZVHZyai1USVdQNTFub2Z2VnRhdjZMVFk4SDJXbjJLdzJEVHZGalVTam04bkVNdS1OV3h0SWU1eFhSOGdvLXVBNkVxS01Zbmdna3ZNUHdmaUhvX0JNYWRxMHAtTzg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
