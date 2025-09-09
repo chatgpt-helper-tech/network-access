@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月09日 13:38:00（北京时间）**
+🕒 更新时间：**2025年09月09日 13:49:34（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | Mandelson 'called Epstein best pal' in letter | [阅读全文](https://www.bbc.com/news/articles/cwy9dwe50leo?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Rayner's replacement will show which way political wind is blowing in Labour | [阅读全文](https://www.bbc.com/news/articles/c0q701wy45po?at_medium=RSS&at_campaign=rss) |
 | 'I'm angry. It's not right' - locals want asylum hotels shut, but are shared houses the answer? | [阅读全文](https://www.bbc.com/news/articles/c07vn1y2jz2o?at_medium=RSS&at_campaign=rss) |
-| Graham Linehan: I don't regret my online posts | [阅读全文](https://www.bbc.com/news/articles/c7v13v3z6lgo?at_medium=RSS&at_campaign=rss) |
 | France in fresh political crisis after MPs oust prime minister | [阅读全文](https://www.bbc.com/news/articles/c2dnxxekyezo?at_medium=RSS&at_campaign=rss) |
+| Graham Linehan: I don't regret my online posts | [阅读全文](https://www.bbc.com/news/articles/c7v13v3z6lgo?at_medium=RSS&at_campaign=rss) |
 | Ofsted to bring in 'report card' school inspections despite criticism | [阅读全文](https://www.bbc.com/news/articles/cx2jnlj3e0yo?at_medium=RSS&at_campaign=rss) |
 | Disposable vape ban not working for us, says waste firm boss | [阅读全文](https://www.bbc.com/news/articles/c5y8563rjkdo?at_medium=RSS&at_campaign=rss) |
 | Best and worst-performing NHS Trusts in England named | [阅读全文](https://www.bbc.com/news/articles/cq8eqxlypv7o?at_medium=RSS&at_campaign=rss) |
-| Thai court rules ex-PM Thaksin must serve one year in jail | [阅读全文](https://www.bbc.com/news/articles/cly7k2g37g4o?at_medium=RSS&at_campaign=rss) |
+| First photos of site where New Zealand bushman hid children released | [阅读全文](https://www.bbc.com/news/articles/cj4y9ev2rw4o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
