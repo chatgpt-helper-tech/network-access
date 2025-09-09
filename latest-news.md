@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月09日 11:25:37（北京时间）**
+🕒 更新时间：**2025年09月09日 11:38:01（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | US lawmakers release Epstein 'birthday book' with alleged Trump note | [阅读全文](https://www.bbc.com/news/articles/cvgqnn4ngvdo?at_medium=RSS&at_campaign=rss) |
 | France in fresh political crisis after MPs oust prime minister | [阅读全文](https://www.bbc.com/news/articles/c2dnxxekyezo?at_medium=RSS&at_campaign=rss) |
-| Why has the French PM been removed, and what happens next? | [阅读全文](https://www.bbc.com/news/articles/cy4r7dmxgxmo?at_medium=RSS&at_campaign=rss) |
 | Murdochs reach deal in succession battle over media empire | [阅读全文](https://www.bbc.com/news/articles/cn825x71g4do?at_medium=RSS&at_campaign=rss) |
 | Ofsted to bring in 'report card' school inspections despite criticism | [阅读全文](https://www.bbc.com/news/articles/cx2jnlj3e0yo?at_medium=RSS&at_campaign=rss) |
 | Graham Linehan: I don't regret my online posts | [阅读全文](https://www.bbc.com/news/articles/c7v13v3z6lgo?at_medium=RSS&at_campaign=rss) |
+| Vape ban isn't working, says waste firm boss | [阅读全文](https://www.bbc.com/news/articles/c5y8563rjkdo?at_medium=RSS&at_campaign=rss) |
 | Nottingham Forest sack boss Nuno | [阅读全文](https://www.bbc.com/sport/football/articles/c2en2xnpvlno?at_medium=RSS&at_campaign=rss) |
 | Syria accuses Israel of carrying out air strikes | [阅读全文](https://www.bbc.com/news/articles/c79v1351ello?at_medium=RSS&at_campaign=rss) |
-| UK could suspend visas for countries with no migrant return deals, new home secretary says | [阅读全文](https://www.bbc.com/news/articles/c4g7xyn03yno?at_medium=RSS&at_campaign=rss) |
-| Vape ban isn't working, says waste firm boss | [阅读全文](https://www.bbc.com/news/articles/c5y8563rjkdo?at_medium=RSS&at_campaign=rss) |
+| It's taken three years to recover from China hack, election watchdog says | [阅读全文](https://www.bbc.com/news/articles/c80gl8yvj9go?at_medium=RSS&at_campaign=rss) |
+| Badenoch 'worried' UK may need IMF bailout | [阅读全文](https://www.bbc.com/news/articles/c89dx7z98g7o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -25,13 +25,13 @@
 |--------|-------------|
 | Democrats rekindle Trump’s Epstein problem with birthday note - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9wb295Mk5yMHlUVlpNSEpKR1lUQ0dVY2o5WldaVU9NSFUtS3RhSzFTX2Zwa0c3cC1rOGc2Mmp5dnFlYVgyWXZxcllsVTN5U2Rxc3RkZE56LUJ4NXFJelN5QW5HN0RPdGk4ZVlSa1FsM0I?oc=5) |
 | Supreme Court lifts limits on immigration raids in the Los Angeles area - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQdzRHVHVHSjJzYlUyQW5ENHRtSUlOVGx1Q1Ryc0ZEVkYydmpJbHZ5Wm9MSnduWWQ3VDR3dGJUeXJuSW5wVkNkbWNsYmNZMTNSRDR1SWphS29SdTFNREJBZnpFQmxJdHVCT1FfQmJGVFhNYWlucUIxX25VTjc2TGJEQmRWcVB5MXgzYmJZaTJFZlA1WGNNSVdTVk1iWG9tWlczY0VyR1ZTSHY4S1hYaWw1ZXlLUQ?oc=5) |
-| Noem says immigration raid at Hyundai plant in Georgia won’t deter investment in the U.S. - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOLVZodXRfMWdKQkRDc2tKazBQSHVSUG9rV3BjREIwbHRUa3VZRUlhVTM2alFESzNwREItaV9jOUVVUkQ0a2ZEQnVHZjVZVzV2SEE4UUZyZnFmVUlXX0lHZFVRUnBhNlY2SV9VYVc4UU9vd1JnbXNIcFRuUWRhbHZXMVhEMkJWN2RlendLQThHSmZKOVVmU0tUZHF5RTd3NnUyYWJaUEIyMXZob0kya3ZzZzJiOExjYWlTOE5WdTRnNThaUnfSAcgBQVVfeXFMT05DUGg2RUlCZURsbUd1Sk10ZUxwNFpBbWIybl91U1g5TXBUSUJzWXBRWlFETXRoSXdPRHVfUHZRNV84eHB1eS1sbDMxM1hWU2JvYUllSjlCVXQ0cGxTcGs0eWZoQTRKYnNoZVd1LUdIWlF3NWJldUdEdlR5UklzQm1XNmdoM0x6dE1ZSUtYQnRfcjFBYnZSQ1Y5Sm1VRTR5Wk1sakhxb3FheWJTZDQtcTEtS0JROVR4U09tZ2pPZUFjelEtMVh0SV8?oc=5) |
+| Trump trade, immigration agendas collide in Hyundai raid - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOcWFRMHQ2dWlQTnBNQTRqRlloRm9kM0lpQ0ZfaWFha0toeXB3aktBQ3E0VVBQSlNUNmZiSS1KRm5KWWw1UVpxcXRWSjZqdmozdDMwOHFIZFVxQjRyZE9GOXd0d0x0Ri05aUFiSl80QUFRTjVQQ0JOWnNsMVdEcDBSOHVLUHRJTEVYckRSNTEyWXRnYkJmNXZ0NVpLQ0RhWGpVMVJXbHJCUdIBVkFVX3lxTE1UbVdCZThtOFc0SVV5R0lOZTNVYkpRUVhleUdQMkl5cndJenlMdUdVOFh0MHdGNkhud2hTM1ZCTVN5d0xnRTl4TDRCdU5pemEyQUd0RmVB?oc=5) |
 | President Donald Trump’s administration announces immigration ‘blitz’ beginning in Chicago - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOeV9WU3hUTkVoVjhNU3Z0MTBJTVU1VjYySUM0S0xZWk5tVDBZLXlZUjFLVjhZZ0c0N3h6ZmNsTF9SWUhZOFNWUFF2OVAxRk92SVdwVHFOdkJGR1E2OWxpVC1CYmxzVFBnc2d0Tmp4cmpUMmdCbE5MVWplSkozRE0wZ1dhNVJpN29Cd2F0bXp4RW15S2FmSzBleDlhYWtvTUtwNnZUbmFwRjdwNDVUbnhtaU1pTllxOFEwTFdKY1dQdHc2T0QzWU5ydg?oc=5) |
-| At least 19 killed, hundreds injured in protests after Nepal social media ban - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRFZuRmE2dWplT1NDT2laUGtXZXJWODdwWGZ4SHZkZGpKZ3BiU0Y4QUxHZWhwWi1lelhlSEdNODBELXB3b1RpR3U4OExyaVQwUUlTVFdpVDVhWTBpU0FCNUNRamRCN1NFWjdtMHpwLTVTV05WY3dBZXhkeTdJcm9JdGVlclBWT1U?oc=5) |
-| Deadly stabbing of Ukrainian refugee on Charlotte light rail raises questions about public safety - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNMnRRMWNjZTVMM3paVUhzTWpHQU9kZzFQek9rRVNyMmJiTjRrNmEyc3dyUHh1QVpiREZfWUR3WHF1WnhEcFF3OG81QkdvVnM1UUw1YXVJak10dXlRNXFneFNOYnM1cjBuclpjcExGZWk5enVHaXhGanNuOVNjdURnRTJBdGIyNVFiYWIwc2xTMGRSYklwd0RXQ1NXUdIBoAFBVV95cUxNVjU5MG8zcVl1TF9YOGZVcWllN250WElJTzlvWUZ1MGtjb0Q5V2NxRGtnSGNRMzkwbWRRcGJ3VXRpV2xobG9nUUIyejdxd2I0dzY3c0FuTE9KWW1OLUIzMHZFUjZGTFc0MF9aZF9VSFU4Wnc0YW5HMzlDYy1oMTNCU3l6b0FZTnVzODRiLTB3Q19kdE9GZ0VGS1dUSE9YNGJm?oc=5) |
+| Fatal stabbing of Ukrainian refugee in North Carolina ignites crime debate - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NRUhTdEJtYUF2MWNaU1pvM3ZYZXdHREphR3BiZEgyXy1aeHd5aldtN0hhRHhrZ0xobXBsQWNTRUF0aHZQRXBkWmpsOWViWE1fZTdUbDNjaHpfZ9IBX0FVX3lxTE4xSUtYeUtkWnJvRzhqUUNyc3A4aVpxNEF0WEtOM0o0OG81SmZYWVQwMTFRRS12b2RvOURjTi1XSk9GUHhwZXJHdUd5a0lWN0VURnQ4WE16THlTY08tcXN3?oc=5) |
+| Government downfall tests Macron like never before - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNSUVOM3cxWkF1XzNQeWdtN0UtVmJETXZFcEFWcmtaZ0ZMcDdfV3kwcm1ZUU1PYTNRcjJyMHJGeS1vSFZKbEtiMFBoN250V2FOUnlTQ3JOV2EtdnRFaGRvTGZabGR0cFpWa0pFOEZENU5rQ3FtT3BLUjN1a29fcWQ5Z1hkR3lyRWdMUHhWMWM0bVFHUTFKUFpwY0VoY2E0ZU5GcmJjLWRaOHRXdkpfY2hSVFd0dlVJdw?oc=5) |
 | Trial Begins for Ryan Routh, Man Charged in Trump Assassination Attempt in Florida - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPaHlLYl9hU2hsendXYmkybTZUZmRlMTU1Nkg5TjFWN0VUQ2ZzQWxndm5qd1E1RmluNHdaUmxud2hlNV80WkRyejZwU1J6cEd3dFQ3ZmltLWpEVHdSa1lTekdIM2tpclpaM2tfLWNLVEFuaWJiRVBZVGJfbjYtQkYwVENxTDRhU2wyTWhFclZhN1Q?oc=5) |
-| Speaker Johnson walks backs comment that Trump was an ‘FBI informant’ in Epstein case - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPa0M3aHpnYjktR2ZjZHBUVGdjNXh1eF91Y0swcWpQOFgxU2hFZWtGejJDT1EwRVkyUXNfaWhCUUVkSG9zenlLempfWnB2XzJXVzJHbjZuZUZuYkJoVjNIQzFFYk4xbHo2MUI1ekpQMVhualZqOWp4Z1VJZU4zV2VvYQ?oc=5) |
-| Vance post on boat strike ‘really ticked me off,’ Rand Paul says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNSm1GenRIOWhXZmM5NGJKZ0FqVDFZUjRIU0NoTVkxSFJYalZOQ1lFQmk4YlpkTFEyQ1hLM3pFUU84alhVZ2ltZGtsLVRGelNVVDZ1VllxZ1F2VTdWc2lDSHh0ZDlvOXdHMVVoZmdwRWhQdGtTc09fdGk5SW9NSUNpYXBxVk5FRHVCRzFUczhJYVM0LXhNb1V1aWc2a25YUQ?oc=5) |
+| Johnson says he didn’t use ‘right terminology’ in calling Trump an Epstein ‘informant‘ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQZkRoelMxVmtsLWRmenJDNlMzcG9EU1FiUS1neDZFdFBMTzhVMWhlYU1OMTNCQXBXTWRFOHRyZVpjR3FoeTRXRk9VS09OdkRkcUxTbF9Ja1VCME9BOFNCdmk5ejdWY3JfX041NTlQQ05pV1Z4RlhpZ2I3REZvbWp3NkR0R3hhV0dPQnhhbWFKdFlkX0lpcEw0djFDN1UwYTFWR00yWTNsY29WTHh4cmhF?oc=5) |
+| US upends its role as the high-seas drug police with a military strike on Venezuelan boat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQNVhJd0pueXVJVjg4NzhZRWJmaFJ6QWdMbWRlYlNrTmpraUZGWXJrYXpFMUM1RFdkY01yWUh3SVZ5MG1JMGl3am5La0ItdkRrX1EyZGNma0xQX1lwYXpUVnRtb3Vkcy1Pa1ZqRnV3aHN1YzdOM2FsVlFMTHFmRXl2a0Myb3JYbEVFWEZtZUQ1UmJmamh5QnppTzJ0N0N3Zw?oc=5) |
 | 'We'd love to go into Chicago,' Trump says after controversy over 'war' meme - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNbXFVNEpOR3lmQ1pfTV93SHpBVnRaUkpGUWJvTG9URVhqQTFMUy1qTGhodS1UY3FhdWV1bU1INFluakppeUpURWhNdkxCS1lCLTNWZlp5Z2xYU2FXNFlmRnN3VUdVR0lESXNMZkRjWHFwR3pQZTdnNW5jTFo3bEFWaDUyVmVwdG43LWJ1YjBqNUd0T1FzM1ZteWp3VXI1NmQ0TEHSAacBQVVfeXFMUFBLU1BCMWVhVlV5OTdISWRPZEIxYVhtSmtyWXlGdmVKMkN3dlFSY3ROdU9TUTRSdkxGT2RUZm9BdGNVYkN0aWxDMmRQdXd2UkY3WnJmYXdMYUNzd3pRdDhLcHNiYW5uZ0ZndVkzeVVWdG9IN1A4WUJ3ZTJ5LTR0S1hacURCSzZlUHhGaEpETHEyTVBuZUxoRUh6UVhVOTJsMFRTc0Q2dkU?oc=5) |
 
 ---
