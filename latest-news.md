@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月09日 17:37:32（北京时间）**
+🕒 更新时间：**2025年09月09日 17:48:34（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Mystery donor offers £100k to find student who went missing after house party | [阅读全文](https://www.bbc.com/news/articles/c04qpd7y9k0o?at_medium=RSS&at_campaign=rss) |
 | First photos of site where New Zealand bushman hid children released | [阅读全文](https://www.bbc.com/news/articles/cj4y9ev2rw4o?at_medium=RSS&at_campaign=rss) |
 | Vapes causing chaos for recycling industry despite ban, warns waste firm boss | [阅读全文](https://www.bbc.com/news/articles/c5y8563rjkdo?at_medium=RSS&at_campaign=rss) |
-| Ofsted to bring in 'report card' school inspections despite criticism | [阅读全文](https://www.bbc.com/news/articles/cx2jnlj3e0yo?at_medium=RSS&at_campaign=rss) |
+| Who could replace Angela Rayner as Labour deputy leader? | [阅读全文](https://www.bbc.com/news/articles/c8jm9lk19v3o?at_medium=RSS&at_campaign=rss) |
 | Anastacia: Arnold Schwarzenegger made me sing Whatta Man 12 times | [阅读全文](https://www.bbc.com/news/articles/cm2zmd2rmnko?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
