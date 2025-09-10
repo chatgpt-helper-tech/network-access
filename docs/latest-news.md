@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 14:00:42（北京时间）**
+🕒 更新时间：**2025年09月10日 14:13:21（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Contactless card payments could become unlimited and £100 cap scrapped | [阅读全文](https://www.bbc.com/news/articles/czjv7jy2r9vo?at_medium=RSS&at_campaign=rss) |
 | Alzheimer's blood test could 'revolutionise' diagnosis | [阅读全文](https://www.bbc.com/news/articles/cm2ze84e8p1o?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Early skirmishes in Labour race highlight government headache | [阅读全文](https://www.bbc.com/news/articles/c0lkgylwn06o?at_medium=RSS&at_campaign=rss) |
-| Reeves tightens departmental spending ahead of Budget | [阅读全文](https://www.bbc.com/news/articles/cyv63l3395zo?at_medium=RSS&at_campaign=rss) |
+| Reeves clamps down on ministers requesting emergency funding ahead of Budget | [阅读全文](https://www.bbc.com/news/articles/cyv63l3395zo?at_medium=RSS&at_campaign=rss) |
 | Turkey's 'tough guy' president says he's tackling corruption. Rivals say he's silencing opposition | [阅读全文](https://www.bbc.com/news/articles/ckgqzk31qyzo?at_medium=RSS&at_campaign=rss) |
 | Approving China 'mega' embassy would be unlawful, UK government told | [阅读全文](https://www.bbc.com/news/articles/c864w2942vdo?at_medium=RSS&at_campaign=rss) |
 | Alleged abusers may get share of Jesus Army wealth | [阅读全文](https://www.bbc.com/news/articles/cqjqxrz5yd0o?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | Court rules Lisa Cook can remain a Fed governor for now while fighting Trump’s attempt to fire her - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNVnR2dnpQclp5cUo0dlU4Z0cyUTFJWTd5OE5IUUtJTVotMXhaSzJvSm4zMTFxUEJHZFFrUFZXMndsd0tqMTc4a2pBT3VkVm5DUU5iQnEzQnFNYU1PSnFHM0pZdWF0YTllTHUxTHFxb1BCMkhJaWgxTHhlMlYtVV9lRmZJa2g0c3c2bGJJOVNwSWVXc05nNWJmcF94TmN3dUxOaTkwX2d5VFVRZkk?oc=5) |
 | ICE operations ramp up in Chicago ahead of Mexican Independence Day - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNeVpjM3ZDaS1faUptY25nZm9aUUhCM1Y2aFpMQlVIaDJYR1JlRk5uTG93dGZEbnpsZmlySjdSNjE5bWkwV3pVMTBLXzJFUmR4WEMyQWhFTFN5cWpNMVRkeDdWMmxVZ08wVno0ZEVSQkRNZlBGVXFJdXM4VEoza1VWeDA1V2VqelpTeWpqUjFVampKdw?oc=5) |
 | Critics fault Supreme Court for allowing immigration stops that consider race and ethnicity - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxNNG5TRXpWMXRMakNxX01qQmlaYzBweUFSY3czSzdHNWpMOUNGbXltQTBvZkpreFNGT0pFWHpXeXJTX0FsdUVwaXpfWmluODVRN2hocmg4RjlxYWRnTUR1c3RiTGNVeHo1MXlWMG5VaG1vOWljZmc2OFJuUDhNSEFJQUJMX1VuOXAtelV2QWRVTDdtc2JJdHJDWmpLU29sRVViRE9LcXJYLTJ5bVYwUkRqazh2WkM1NkswcTV0Q3lPZml3aXJPSW55Y2F4SDlrMDFXWUs4?oc=5) |
-| Vance defends strike on suspected smugglers off Venezuela but concedes 'due process concerns' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNTXctVkVxUUNvWGpIUXBxbXhWSURQdzRuNnFxV2JQMU5uazBTR0dEMkY2a1VUZThINm5saFlhdG5QcWlScjhVSGF2RWV6NUJJcnRkTjBMUUtyWWdvQ18zdlg3bzRkOUtyeHp2V0RfWVlJVFFjV0VpSnpuaDBpSW0tTkUxS29YX1cwdzlGVmxCNUxRTXVtUFp2RlVYb1Z6VEU?oc=5) |
+| Supreme Court to weigh legality of Trump’s tariffs in key economic case - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNSTd1VTNnaGZhekxyaFpaUW9sLWF0SDgyZFM4dFBzNmw4WWlhb0pvODVtT01sVVhfNnNUelNZZ2JoTHduZTB5ZHNrWVFEVEVDdmQxd3RkbDFkU0xOa1VHek1rSVA4MWtWMG0tYndJQlV3Um9NQkJwcnZRSHM0MWl2VHYxcDRkdm5kTEgtSDN5bzZpMWgzLWJZb3poV1E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
