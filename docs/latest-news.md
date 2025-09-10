@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 10:00:45（北京时间）**
+🕒 更新时间：**2025年09月10日 10:12:02（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Hamas claims leadership survived Israeli attack in Doha, but confirms six deaths | [阅读全文](https://www.bbc.com/news/articles/ced58zywdwno?at_medium=RSS&at_campaign=rss) |
+| Trump says he's 'not thrilled' about Israel's strike in Qatar targeting Hamas | [阅读全文](https://www.bbc.com/news/articles/ced58zywdwno?at_medium=RSS&at_campaign=rss) |
 | Bowen: Diplomacy in ruins after Israel strikes Hamas leaders in Qatar | [阅读全文](https://www.bbc.com/news/articles/cm2zepgp5neo?at_medium=RSS&at_campaign=rss) |
 | Reeves tightens departmental spending ahead of budget | [阅读全文](https://www.bbc.com/news/articles/cyv63l3395zo?at_medium=RSS&at_campaign=rss) |
-| Nato scrambles jets as Russia targets Ukraine near Polish border | [阅读全文](https://www.bbc.com/news/articles/c147065pzdzo?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Early skirmishes in Labour race highlight government headache | [阅读全文](https://www.bbc.com/news/articles/c0lkgylwn06o?at_medium=RSS&at_campaign=rss) |
 | Contactless card payments could become unlimited and £100 cap scrapped | [阅读全文](https://www.bbc.com/news/articles/czjv7jy2r9vo?at_medium=RSS&at_campaign=rss) |
 | Turkey's 'tough guy' president says he's tackling corruption. Rivals say he's silencing opposition | [阅读全文](https://www.bbc.com/news/articles/ckgqzk31qyzo?at_medium=RSS&at_campaign=rss) |
 | Alzheimer's blood test could 'revolutionise' diagnosis | [阅读全文](https://www.bbc.com/news/articles/cm2ze84e8p1o?at_medium=RSS&at_campaign=rss) |
 | Approving China 'mega' embassy would be unlawful, UK government told | [阅读全文](https://www.bbc.com/news/articles/c864w2942vdo?at_medium=RSS&at_campaign=rss) |
 | More children are obese than underweight, says Unicef | [阅读全文](https://www.bbc.com/news/articles/c7v1e0jr9n8o?at_medium=RSS&at_campaign=rss) |
+| Alleged abusers may get share of Jesus Army wealth | [阅读全文](https://www.bbc.com/news/articles/cqjqxrz5yd0o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
