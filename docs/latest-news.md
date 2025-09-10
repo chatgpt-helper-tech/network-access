@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 20:24:41（北京时间）**
+🕒 更新时间：**2025年09月10日 20:36:31（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | More embarrassing Epstein exchanges to come, says Mandelson | [阅读全文](https://www.bbc.com/news/articles/c5yevwvvneyo?at_medium=RSS&at_campaign=rss) |
-| Sacked ref accused of making indecent image of child | [阅读全文](https://www.bbc.com/news/articles/c80g5v1lg0eo?at_medium=RSS&at_campaign=rss) |
+| Sacked referee David Coote accused of making indecent image of child | [阅读全文](https://www.bbc.com/news/articles/c80g5v1lg0eo?at_medium=RSS&at_campaign=rss) |
 | Banksy mural scrubbed from Royal Courts of Justice | [阅读全文](https://www.bbc.com/news/articles/cm2z30p033ro?at_medium=RSS&at_campaign=rss) |
 | Anti-Islamic US biker gang members run security at deadly Gaza aid sites | [阅读全文](https://www.bbc.com/news/articles/cm2zy4l8jgeo?at_medium=RSS&at_campaign=rss) |
 | See stunning shots of Chappell Roan, Charli XCX and Doja Cat up for music photo award | [阅读全文](https://www.bbc.com/news/articles/c306n1ve8y5o?at_medium=RSS&at_campaign=rss) |
@@ -29,8 +29,8 @@
 | Chicago immigration enforcement surge begins with 3 arrests: ICE - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNeWMtSzg5dUhiWnJNNmhKVlF5RTQzX1FpeEdVWFNhNVhLRGZxaW5ENjZwZlBzZHgwVFdGTVBYcHlORTB3NURtZHpTeHVONmRCTnZwVXlWSENXR1dtSGpzQ0NjWDVVZ1FtRV9VSlp5VTBBZzdTLWlGMEViUWpOXzltU2JRVmxHQ1RpZ1Q3X2xWRlRMY0xOWW5FVEdfb091TzNHZGhDOTVR0gGrAUFVX3lxTE4zTGxWNEFYaUFrS1dORmQ3blNKMU9RNDNvRzVUejM0RHIybGV5Ynk4MWNOMjU1bkhzTUh1cnBsRTAtbTRBQXZWSnZ0a3dNN29lc0t5cDdPWFNZN3libFpBaHE1NGc1OElKUTFzY21rUnVsamdMNEprVVlTQ2xrVGhnT2tRUXRlUmtQRFJuZi1tOF81eEI1RGRhOGc2VlQ3VVNnT25xbHh6dHhMYw?oc=5) |
 | Soldiers guard Nepal's parliament, patrol streets after two days of deadly protests - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPVXlFOGJvMkJ5cGo0Uk56Tk9rRWlXT2FHdlVpRFNLTFBZUGh6Y0hSeTVUU1RJQ1pYOVM3TEtRWmRUOFhUdzlJTUx4b3hmNUo4d0kxWUpRUXdOWGgzbTlkaThyd0FuUlh2NVNQTkRTU1JRY0xHbFEta3lhSGk3T3NwMVNPUTRfbkRCY1FCbWpLV3h1MG1rck5oY1ZyTndDVkR0THdqOVdYRHFMeE4zcVJQMDVlLThScHk1dmM4czRETU1QbkN4dWNJN2FwekFJZw?oc=5) |
 | Leaked Ice document shows worker detained in Hyundai raid had valid visa - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxObFVYSkJneFJ3dWJmNEg3Y0w0My1zZ041QTRuSTVUZjNGTkt0ZVJ5YUExZXZzdVVFR2s3cHZqTldnbjZRblhGY05HNWtIYjhHWVpFZVZXZXBOclp4VUJsc3FsREE5bzhCbm5OaFFPeVFLRFc2SkcyVHdCb1FjMDBHU2VaVmEyRWhqN3ZZ?oc=5) |
-| US judge temporarily blocks Trump from removing Fed Governor Cook - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOOEs0bldjZVVPSVd3bGN6STgyUkpWb0VkS0VZZWRkeDFsZFJCa1pPT1FyZkRxNG1rUW9DTEwzTlRkRS1yNXV5d3Y2dFpORkFrdzV2OWN3T1pqOGplQ0tFZW5WRndBTVlDdGVsTE1FSEh0VDdSSk5veE1OSDNOX2ZmZE1zdG5ub0tCcExvSFpKb29YcTlTd2RZZXdiR1hVd1FDQ09mLV9lQXc?oc=5) |
 | Trump's control of the D.C. police is due to expire tonight. Then what? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNY2Z2aTh1eUo4NFZVTXdjNm1iU05JRHU3dFNJV050ODUtZWt5aWdNOFIySENwbFQ0RVEwdFZfMHRsdV9xZlNtYkdvSnZadmJUS2RlVDBkTnl3ckE3bWkxTU94eHJGalhXV05tUE9SYUdEVDZBZ3d3aEhhRHYtc1pMbA?oc=5) |
+| US judge temporarily blocks Trump from removing Fed Governor Cook - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOOEs0bldjZVVPSVd3bGN6STgyUkpWb0VkS0VZZWRkeDFsZFJCa1pPT1FyZkRxNG1rUW9DTEwzTlRkRS1yNXV5d3Y2dFpORkFrdzV2OWN3T1pqOGplQ0tFZW5WRndBTVlDdGVsTE1FSEh0VDdSSk5veE1OSDNOX2ZmZE1zdG5ub0tCcExvSFpKb29YcTlTd2RZZXdiR1hVd1FDQ09mLV9lQXc?oc=5) |
 | Democrats embrace government shutdowns in Trump 2.0 - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxON0VJNVRLdGxQQW5fU3ZsZ3BYX0paQkVZbm9fZ3BfVy1xeTM1MTA3VXdwYkFxbWQtblhzak4tdjgteHlMOFZ4THFrOHJOX25mOHhnSnZnZ1BwRVNqcThrTWJnTU1mTHlvUllxUUt2d1pLSUVIVm14R05LVFlCbVpwM3N3?oc=5) |
 | Supreme Court to weigh legality of Trump’s tariffs in key economic case - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNSTd1VTNnaGZhekxyaFpaUW9sLWF0SDgyZFM4dFBzNmw4WWlhb0pvODVtT01sVVhfNnNUelNZZ2JoTHduZTB5ZHNrWVFEVEVDdmQxd3RkbDFkU0xOa1VHek1rSVA4MWtWMG0tYndJQlV3Um9NQkJwcnZRSHM0MWl2VHYxcDRkdm5kTEgtSDN5bzZpMWgzLWJZb3poV1E?oc=5) |
 
