@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 21:24:04（北京时间）**
+🕒 更新时间：**2025年09月10日 21:37:49（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| More embarrassing Epstein exchanges to come, says Mandelson as Tories press Starmer at PMQs | [阅读全文](https://www.bbc.com/news/articles/c5yevwvvneyo?at_medium=RSS&at_campaign=rss) |
+| More embarrassing Epstein exchanges to come, says Mandelson, as Starmer pressed at PMQs | [阅读全文](https://www.bbc.com/news/articles/c5yevwvvneyo?at_medium=RSS&at_campaign=rss) |
 | Sacked referee David Coote accused of making indecent image of child | [阅读全文](https://www.bbc.com/news/articles/c80g5v1lg0eo?at_medium=RSS&at_campaign=rss) |
 | Banksy mural scrubbed from Royal Courts of Justice | [阅读全文](https://www.bbc.com/news/articles/cm2z30p033ro?at_medium=RSS&at_campaign=rss) |
 | Protests hit France as new PM takes office | [阅读全文](https://www.bbc.com/news/articles/c8643qg252lo?at_medium=RSS&at_campaign=rss) |
@@ -30,7 +30,7 @@
 | Chicago immigration enforcement surge begins with 3 arrests: ICE - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNeWMtSzg5dUhiWnJNNmhKVlF5RTQzX1FpeEdVWFNhNVhLRGZxaW5ENjZwZlBzZHgwVFdGTVBYcHlORTB3NURtZHpTeHVONmRCTnZwVXlWSENXR1dtSGpzQ0NjWDVVZ1FtRV9VSlp5VTBBZzdTLWlGMEViUWpOXzltU2JRVmxHQ1RpZ1Q3X2xWRlRMY0xOWW5FVEdfb091TzNHZGhDOTVR0gGrAUFVX3lxTE4zTGxWNEFYaUFrS1dORmQ3blNKMU9RNDNvRzVUejM0RHIybGV5Ynk4MWNOMjU1bkhzTUh1cnBsRTAtbTRBQXZWSnZ0a3dNN29lc0t5cDdPWFNZN3libFpBaHE1NGc1OElKUTFzY21rUnVsamdMNEprVVlTQ2xrVGhnT2tRUXRlUmtQRFJuZi1tOF81eEI1RGRhOGc2VlQ3VVNnT25xbHh6dHhMYw?oc=5) |
 | Trump warns thousands of pharma companies over "deceptive ads" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1vZ213YWswbVdPN1RnYU83bGdna0lCVGJzUEhOTXBVTEJzZnpEZTRtWjQ2azNhT0JKcEVLZGdUZVgtNHQtYVRUV3FndTVBc3phZVVQanlKNHN6VVBBaWNZTmRuQjBQaUdIckd2MXBVZTlidHhsaWxFX0g0dw?oc=5) |
 | This deal could avert a shutdown — if Congress decides to take it - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNQzVtaktEdHcwSDd4UjFGR29rclZMcUFJcXhUMDkzMW9jZUdoWWRvcHlxRDd2N19LRk9WdkFZcmhhTnlSaDhyTVUwanF2U0JYMzhqWE5GajV1cm9Wc2FRM1pVNEdJUi1OS09XTzlUaG5lUTBnUllySmNLZlFiVFVnXzVtbUxjbFJNSFJzaHBR?oc=5) |
-| Trump's control of the D.C. police is due to expire tonight. Then what? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNY2Z2aTh1eUo4NFZVTXdjNm1iU05JRHU3dFNJV050ODUtZWt5aWdNOFIySENwbFQ0RVEwdFZfMHRsdV9xZlNtYkdvSnZadmJUS2RlVDBkTnl3ckE3bWkxTU94eHJGalhXV05tUE9SYUdEVDZBZ3d3aEhhRHYtc1pMbA?oc=5) |
+| One of Trump’s Powers Over D.C. Reaches a Time Limit. Many Remain. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQZkx5b0R1MXhMNVpjM2lTQWotZnhtZldQZWdYYThGMlJmUHl0WVB6b2hKdWZfSHJtVzIwR0ZnMDQ2NE15TnpDdDRZV3JCZVk5VEYwZXpjMVB2NGFrdDJXXzFxNERLb3Z2ZGFwY05FLWUtYmdRcXJoc2dldWV5RGpMOUFWcHFnaS1ITkhwdmJ4cVhoLW85VWxIYWNqUGdpYjJheTY3d1NyZw?oc=5) |
 | Wu takes first place in Boston’s mayoral preliminary election; Kraft advances - MassLive | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxNaDBUTFdCbC1pa3dxTEduazBlU282Tkh3Z1RWVjVUVERXMnBDUkRyNGRVZHRtS0lNUEhmYzNTcDNqNjZqM0NTaDRUN041Mk9GcWdYakRyekVRbWdFZ3liZXRuUTdGVlltYUVGcUNELUZ0WVhHTmRXN0V5YjAxVGpJYmxNN1NCSkdtNmg4Y3ZEaElFTlZLSGUybU5VeVU0T1dqWFdDOU5aQkNEZTNoMjF2SXFnTDZTWmpWbEQ4cUNMWU5wQTFNUUtPZ0o4VHHSAeABQVVfeXFMUGtrYVFRekRuek9NQ1ZFQUNGWVdMZ1ZGWWlHalZOdGVCZlRWX09VVTBrOERBcmpIaEZqZ3IzMHJGbUdVSzVoWHlWc3VMVnVzcmhJZ1RuU3dLYUxzVEdIeVZPM1B4Yk5nUzBGX2pZbWtUWFE0NnhlaXN0ZF9xdThhMlJ0Z0FiUlV5ZU5wNjBmNTRPNDBJZUVXeXU3NGlJeUtlb3JuSDhBTmJSX3N3c0lIcExxT3ZJNEY2VXFyd0d2Y3JNZ3VUMC1TY2xJWFdGOEd1ZEY3VHNiX0d3QkRCSUgzM2o?oc=5) |
 | Supreme Court to weigh legality of Trump’s tariffs in key economic case - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNSTd1VTNnaGZhekxyaFpaUW9sLWF0SDgyZFM4dFBzNmw4WWlhb0pvODVtT01sVVhfNnNUelNZZ2JoTHduZTB5ZHNrWVFEVEVDdmQxd3RkbDFkU0xOa1VHek1rSVA4MWtWMG0tYndJQlV3Um9NQkJwcnZRSHM0MWl2VHYxcDRkdm5kTEgtSDN5bzZpMWgzLWJZb3poV1E?oc=5) |
 
