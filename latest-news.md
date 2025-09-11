@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 16:37:04（北京时间）**
+🕒 更新时间：**2025年09月11日 16:49:47（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Starmer facing pressure over Mandelson's Epstein links | [阅读全文](https://www.bbc.com/news/articles/cwy9jqn0vyjo?at_medium=RSS&at_campaign=rss) |
 | TV cooking shows are dying out - this cronut* holds the secret to why (*croissant-donut) | [阅读全文](https://www.bbc.com/news/articles/c0jq1d63l7lo?at_medium=RSS&at_campaign=rss) |
 | Harry's tea with Charles could be small but significant step to reconciliation | [阅读全文](https://www.bbc.com/news/articles/cly0e0e7p0jo?at_medium=RSS&at_campaign=rss) |
-| Thornberry pulls out of deputy Labour leader race | [阅读全文](https://www.bbc.com/news/articles/cg7dzejkz4ro?at_medium=RSS&at_campaign=rss) |
+| Emily Thornberry pulls out of deputy Labour leader race as deadline to secure 80 nominations nears | [阅读全文](https://www.bbc.com/news/articles/cg7dzejkz4ro?at_medium=RSS&at_campaign=rss) |
 | Mothers and staff tell of global charity's role in child disappearances under Assad regime | [阅读全文](https://www.bbc.com/news/articles/c4g53e4zdjpo?at_medium=RSS&at_campaign=rss) |
 | Qatar says search continues at site of Israeli strike targeting Hamas leaders | [阅读全文](https://www.bbc.com/news/articles/crme74p9gn2o?at_medium=RSS&at_campaign=rss) |
 | Ministers must do more on Lifetime Isa reform, say MPs | [阅读全文](https://www.bbc.com/news/articles/cge27j499yyo?at_medium=RSS&at_campaign=rss) |
