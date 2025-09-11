@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 11:25:37（北京时间）**
+🕒 更新时间：**2025年09月11日 11:36:05（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Students flee as Kirk shot in front of crowd of hundreds | [阅读全文](https://www.bbc.com/news/videos/c2ejgzyggpmo?at_medium=RSS&at_campaign=rss) |
+| Campus killing lays bare America's bloody and broken politics | [阅读全文](https://www.bbc.com/news/articles/cm2z9z4m22ro?at_medium=RSS&at_campaign=rss) |
 | Starmer facing pressure over Mandelson's Epstein links | [阅读全文](https://www.bbc.com/news/articles/cwy9jqn0vyjo?at_medium=RSS&at_campaign=rss) |
 | Mothers and staff tell of global charity's role in child disappearances under Assad regime | [阅读全文](https://www.bbc.com/news/articles/c4g53e4zdjpo?at_medium=RSS&at_campaign=rss) |
 | 'Netanyahu, we're not leaving': Defiance in Gaza City as Israel shows aid sites planned for evacuees | [阅读全文](https://www.bbc.com/news/articles/c0lkz0l4x51o?at_medium=RSS&at_campaign=rss) |
@@ -30,7 +30,7 @@
 | Shooting at Evergreen High School leaves three students with gunshot wounds, including the suspected shooter - Colorado Public Radio | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE85cDdVTTBjZl9PYlBiUFpla1FtYldXZE84VHRUR0NGUlpwR3VIckRzem42M2NTUGxuVTBBU3hXWk5RQ3lkdmJtTVB1VUo5Zjd1NkpqZno3akNBWnNuVlZjVXphalBPQm5MRGVzUEFvWQ?oc=5) |
 | See Epstein’s full ‘birthday book,’ with alleged personal messages from Trump, Clinton and others - PBS | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNUlFCam9nTmdaV1VGR2RqZ3NjZ1VOX1JOR3BMTHhQT1VHUHdPSG90S1lINTFhQkFqRUtpVjF6NGFaeF9pU1cyWVMwLVNHQkVrcDFfYlZrdWJQWEppTVRNU2Z0bGQteE01ZXlUR1VqaHFHcE5iZGxGa2staGZyNmFnczVNdEExOEY5X2V5aWNXUXRQOGl0VGVuMEthWkNXVkR2LVBQQkZlQUptYS1TcVFOTkg2WU9rNmRuS0cwQWxsNEtLUGUxV2ln0gHMAUFVX3lxTE1rR2x5SjBOSlhhbjFORWVxdTd3T3hSTlhVUHRLSF9fUlZWZlN3VFE5XzZqT1NORV9yUU85QUMxRHJrT19mNGIwZWtDbkZCMGQyRTE0bW5mRkZJZm11czlsYVRtdVJxek1DMTRMTzE0Vkl0c1RlUzJVcnFaRDY3WTFkOVJxbmpFQmxYcHlOcmhoWE0zVFpKeU1BRlo2OUZXU2NPRWJtQXg5R1JfMmZXdmVwbzJvYmtDLUFJSzJsdC1WWVplcEpqdUpnN1pKRA?oc=5) |
 | Texas A&M professor fired after viral video disputes termination - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNbUtVckNkbUt0QUxHVEtBWm04V1ZLTGlKUVZTVi1tYVNRX2tHOVdzZS1JVzNMWXNHWm8tT2tUN2lMWjdmZmZHWFEwRm9tQktGbGtqT3ctbXJhQWxMN05iSUdNbmFJSVM4Mlg4T2s4TFBOZE4wbnJ1NThvZ184T1FPaUw1M3FISlJGT1otelJMNDNqNVFS?oc=5) |
-| Supreme Court won’t block transgender student’s use of school bathroom - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNOHM2TExLV3RwcGFKMHpvWW9uM0NxN0xsM0JVUk1ieURCdk4wSlVFbk1iQUEySk1QazNFMWs3NG8tOTROalo4V3NPRkd5ZWFoT3BsczhLRy1ETlNFUUg2aDJ4d0Y1M3RyLUZmOXpPdU81SXdobENENU4yUTNSYTVUbmhhT01hWkZVM1h2eUlGTjhUNzVNRlBmMi1WVEwxaTE0?oc=5) |
+| Supreme Court allows transgender student to use boys' restrooms at S.C. school - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQaDRoZS03SW1vLTNKZlp4MlRZOVNUaGk1cTYydmg3TFVVR3dJOGpJNld0MFl3WXNpLXdMdGM0Q1NGaElUZDd1aG50a1ZMVlJmOTRWRlptWjc3Mk10Ml92ZmwwWlhwYjNnMFd5Mm9WbUJPQUNISnhKNzlIZUwxdkdnUkZvS2h3ZHVzTVE3WTJEZ0ZMNEZyWHdUMEpJLV9IdWM5QUFsaVBDeGFzdDZsQzBvTVFLVEJoM1JZNURwSW9pNWJDa2fSAVZBVV95cUxPVENYQ3Znc1J6NUp3aDloelVpTHVBNmw0UHlLUGk3THEycllNOXFzVWc0Qkw3QnZsQzZqcUx0cXBiWVljbTEtb0tnU2ZaZmlpNEVIRHd3Zw?oc=5) |
 | Prince Harry meets King Charles for first time in over a year - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE95dWlwMGtVb2VpUWxnYms0S0FnSEJvbzI3RjVjcjI5MEw1NEQ4eW81SlQ2NFM4Rk12WlU4M2ZwN2pyYVUyclRzVVlZclVOUTg0VHM5cXV2WjMtQdIBX0FVX3lxTFBpeW0wRk1oRlVxUXlxREloek9udF8zUmRRZzFPcFVEYkVxSWZEbXZsTURiU1UyaHh3MUxDNDdmdHBZcW56VkQ1SDBVTnMzQThiVWN2TklSU1BsMzZDU2lr?oc=5) |
 | 'Block Everything' protests sweep France, intensifying pressure on Macron - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNak4tOHpJQ2g2REVHTUZOdjNGU1ZEMWdPY011dFVDenpFMGF4NHlFaldJaVBXZHF5aXJPX0x3cFc1cHM0T0M1QjBxSGZBRmhFOFhGZnVkWU9yWjlFYkdTenQ1b05HRDJ6dTJqMHFOWnVVSE5EM0J1NkUxWGQxSVR0LTQyRTdLLThUVXNtMk1Kb1dpcnlrM1RoRzBqT3A3dWtu0gFWQVVfeXFMUGZpMTAtYkxmeEJMRHVEWUc4MGZSblZDaV96SEUwUjZlV3FvellnV0U2OWlNOUFNUUlYLVYxbFRwTFZ1YTR4eEFrQ210bUItWkE5dTdIbFE?oc=5) |
 

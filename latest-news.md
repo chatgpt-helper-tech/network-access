@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 11:25:37（北京时间）**
+🕒 更新时间：**2025年09月11日 11:36:05（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Students flee as Kirk shot in front of crowd of hundreds | [阅读全文](https://www.bbc.com/news/videos/c2ejgzyggpmo?at_medium=RSS&at_campaign=rss) |
+| Campus killing lays bare America's bloody and broken politics | [阅读全文](https://www.bbc.com/news/articles/cm2z9z4m22ro?at_medium=RSS&at_campaign=rss) |
 | Starmer facing pressure over Mandelson's Epstein links | [阅读全文](https://www.bbc.com/news/articles/cwy9jqn0vyjo?at_medium=RSS&at_campaign=rss) |
 | Mothers and staff tell of global charity's role in child disappearances under Assad regime | [阅读全文](https://www.bbc.com/news/articles/c4g53e4zdjpo?at_medium=RSS&at_campaign=rss) |
 | 'Netanyahu, we're not leaving': Defiance in Gaza City as Israel shows aid sites planned for evacuees | [阅读全文](https://www.bbc.com/news/articles/c0lkz0l4x51o?at_medium=RSS&at_campaign=rss) |
