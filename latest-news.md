@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 06:48:04（北京时间）**
+🕒 更新时间：**2025年09月12日 07:00:19（北京时间）**
 
 ---
 
@@ -11,19 +11,19 @@
 | A rooftop figure, gunfire, then panic - how Charlie Kirk shooting unfolded | [阅读全文](https://www.bbc.com/news/videos/ckg3xp9g9zwo?at_medium=RSS&at_campaign=rss) |
 | Starmer facing fresh questions after Mandelson sacking | [阅读全文](https://www.bbc.com/news/articles/cy0v81zeggko?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Starmer is losing senior figures at the rate of one a week | [阅读全文](https://www.bbc.com/news/articles/cvgvexelmkgo?at_medium=RSS&at_campaign=rss) |
+| Bolsonaro sentenced to 27 years in prison for plotting Brazil coup | [阅读全文](https://www.bbc.com/news/articles/c8xrqxk9p4xo?at_medium=RSS&at_campaign=rss) |
 | The wedding crasher mystery solved after four years | [阅读全文](https://www.bbc.com/news/articles/c7v1d3r6y8mo?at_medium=RSS&at_campaign=rss) |
 | UK could see first named storm of the season amid weather warnings | [阅读全文](https://www.bbc.com/weather/articles/cpd9x525653o?at_medium=RSS&at_campaign=rss) |
 | Farage faces questions over who funded £885,000 Clacton constituency home | [阅读全文](https://www.bbc.com/news/articles/ce845w70g0yo?at_medium=RSS&at_campaign=rss) |
 | Nato strengthens defences after Russian drones shot down over Poland | [阅读全文](https://www.bbc.com/news/articles/c0lkz2n34z6o?at_medium=RSS&at_campaign=rss) |
 | Phillipson and Powell set for Labour deputy showdown | [阅读全文](https://www.bbc.com/news/articles/c20v3l4qy11o?at_medium=RSS&at_campaign=rss) |
 | Ireland threatens to withdraw from Eurovision if Israel participates | [阅读全文](https://www.bbc.com/news/articles/c5yvd8158ywo?at_medium=RSS&at_campaign=rss) |
-| Warner Bros Discovery shares surge on buyout reports | [阅读全文](https://www.bbc.com/news/articles/cz9jed2qpq1o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| FBI releases images of person of interest, announces $100K reward amid manhunt for Charlie Kirk's killer - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQNG1TZ2pib1pNRzhwdEU1SlpXQkFlUndlRnJ5VEo3RDlEVHplSDF6M0x6OVg5aEZNT2ZnM2x0Tm51SXFyOWhaQUYzSF9NZmtxYWxjRFhOV0cxS1VWdVBYUlNBeFBlRFJja0RHd2lWZi1zV1lUMnJEbDUyOC1vMzhWcTFQOVRZSk9hRWgxaUFzTzA2czN3M2prNDVhTWVOMXkteURv?oc=5) |
+| "I'm f**king sick of it": Charlie Kirk shooting sends Congress' civility crisis into overdrive - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOcm9UcWtpTS1SRlBLek52ZVhlSEprWkJUaS0xaHVuTnEwdktEYjhfNGVaSlNmVF8xLTVBYlR2cEZ0WkJCcnY3MHZ2U2taUDhqQVhLbURuSGlLbUtyZDJHUlJOQ3NETk5FT1EzY1FZTzVaV21hY0JHY21WdTR3aEphMnp0Z3M?oc=5) |
 | Brazil's former President Bolsonaro found guilty of coup plot - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE4zWkVvX1JqdW9YVmpTZzhiTVBsMVhHT01JdDFYbHktSTdQUm94M2JXVG9HT3gxb3Y3dTB6ZEMyd09HbkkybzR6ejRwQklQeE5pbkhvYlNhRlF1Z9IBX0FVX3lxTFBsaHBJSDR5OUFCdXVHSWVNdUpnZDgyM1JSOG9VNDZqZDMtNVY5eGdvRVhpQ1lpLTRBcTBLT2Z4RFhfY2dkcXctTVV1ejZIQ3RRRV92YmlkWU9PdXJ5clp3?oc=5) |
 | Student Who Shot 2 Others at Colorado School Was ‘Radicalized,’ Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOa1hISkpiRWZZR2tVSzVSNHFaeXBxeG5UeXVUeWhMc09LZGlwZFExYzNTVktiN0cxMjRHYWVyYWdpTjh6TkxqSy1QaE1tTWZ3QU5mQzdXQXk2NlQ2SkdEejQ5a3g4WnQwRVdjLTYtTUdsVmVMajRFT1RRV3VoUFVtaGZXaE9xSHhzTlE?oc=5) |
 | Senate Republicans trigger 'nuclear option,' changing rules to speed up Trump nominees - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNa09vZ3ExQUR2VGJOVmpnRXhfdkxfSDI3R1FOejRndEhRV0VaaTlzYl9BX0NuUEYxOWVYdUJtWncxNnhwcVdhZjhycWVCZFJGTXBTZ1g4cXpacnpNLW9vZ2xJQXNVUFRSaUlmaFdONUs1ZDI2UHNkWmRBYTktWGdCMHRrMmo0N19neUdLTEZGMkN3bFByblByaHhZR3l5Y0FaSE9TYlg5Q1hpLUY5YVZrQ2tuRW7SAVZBVV95cUxPazFEQzVEMW9VdUZEanVqMlNnTUFOb2xwQ212ZVBfRFgycktqNE9CTnQ1OEwxM3FNWjJQQkFxeUhlZjh4bG51NEdwejJ0VTNkY0RCY3VEZw?oc=5) |
