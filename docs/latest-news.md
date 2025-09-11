@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 01:01:50（北京时间）**
+🕒 更新时间：**2025年09月12日 01:12:30（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Nato strengthens defences after Russian drones shot down over Poland | [阅读全文](https://www.bbc.com/news/articles/c0lkz2n34z6o?at_medium=RSS&at_campaign=rss) |
 | John Lewis losses nearly triple to £88m | [阅读全文](https://www.bbc.com/news/articles/cx2jm4pgejjo?at_medium=RSS&at_campaign=rss) |
 | Barker and Thornberry pull out of deputy Labour leader race | [阅读全文](https://www.bbc.com/news/articles/cg7dzejkz4ro?at_medium=RSS&at_campaign=rss) |
-| UK could see first named storm of season as yellow warning issued for rain and wind | [阅读全文](https://www.bbc.com/weather/articles/cpd9x525653o?at_medium=RSS&at_campaign=rss) |
+| UK could see first named storm of the season amid weather warnings | [阅读全文](https://www.bbc.com/weather/articles/cpd9x525653o?at_medium=RSS&at_campaign=rss) |
 | Ireland threatens to withdraw from Eurovision if Israel participates | [阅读全文](https://www.bbc.com/news/articles/c5yvd8158ywo?at_medium=RSS&at_campaign=rss) |
 | Man arrested over fire at Labour MP's office | [阅读全文](https://www.bbc.com/news/articles/cp3qwpe93yzo?at_medium=RSS&at_campaign=rss) |
 
@@ -29,10 +29,10 @@
 | Scoop: Biden world explodes at Kamala Harris' new book - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE1NVmdfZXRkMmZxZlozRV9fdlBFUnE2ZzBnZ1BGcUxSUG1mdkdtVGtHRWVmM2VFNEltNy1oSS1VaW9Gc25BbGtBbHVrS0FQN0tHZnhLbVFxa20ySDc3V3NFdV9HX2RuVkptd0dEbi1n?oc=5) |
 | Trump offered to let S. Korean detainees stay, train U.S. workers, Seoul says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNU0RpMENTV3RlaDJOaUc2d1dDZHl3SUduTG9qM20zdTltNE8zSE9MYTZUUzFsSUc1TXVBYUFMcUUxNzRLY0FraGFZS2JBQ2FfM0UtM2huUUZZQm5ocDl0SURQbU5xZVlSVzFUNzhGSkpoMXlUVVNFZ2hRNXVITU9OZDViUzZRM2lwazY5WHN3?oc=5) |
 | Trump demanded Netanyahu commit not to strike Qatar again - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBRLTZ1cFdIQjQwSmVNbVNhcTFZNDZaOHg5aHk0d0lOZ2VCVXRjWEhBYUhCQkFoQzF5bHZMUlE0WHRDU0FDMjBpelpLbnJvalRSZkRtbENoSkRjdUlla2pBMUtDekR6bkVTMkx5R09rUTc5cXgwa2FLLTl2alNsX2s?oc=5) |
-| Suspect dead, 2 students injured in shooting at Evergreen High School - The Denver Post | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1zd1k0VUhqdXBMdGdkM21kZEpORjYtcUhJMmVQaWMtZXphMXk3UDRJT3JHZEVVMHNEN2owcTJmaFVzQ3luVnJfaTJRQmxLNEtBMVA2ZE1nLXNsUXdUMTM5X2NKWExDb1dibkxSVEtxLVdITHBtdUpZY9IBfkFVX3lxTE5vLUlrOE5RVWFfTkk0cmdGNlhhMllhWVNhVnFTRlhJbXpoNHJkeTdobThrbVZxRnRpLVctVEw4cFZMb0VOTktRODFpR0pkYkxtLWhzTHR0aDk5M3dpZDhsUWcycmNONEdzeDQwQS1lTTVwN01WOHg0NmlkU0tqZw?oc=5) |
-| MSNBC fires analyst Matthew Dowd over Charlie Kirk shooting remarks - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOQW1EWV96R0ZPZjVMNWFrQkRPZFc5c0dJaUVnUGZsdHlBdDZOMEUzME5Ual82UE81MmFQNERVS294WlNGaU40VW1WZHFUam9vRTFlMUlMMkEzRGtMM0xPS09nY3RiSGVGOVZVTkVXS0lhRE5vODVER083dzNqcEVWb0VrNjI4RU5KcEJnMnJFeUxTVGMwZkFod0VR?oc=5) |
+| Where Will Everyone in Gaza City Go? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOOU5pM05IQ29EU24waGw2blNxWVVwUkFIZnJHWUE0ZjVPTEsxTDdXSlRKY2x4Q0IxU19tZDdjZGVreXpLd2Z3ekMyRmxnUjZpa2l6ZEZnQ2ZLTWYydVpyMnV3ejZxYmZpSGEtNll2TENfTTZLUnlrY1NHNW1jdW8yOElkTEZtRXJ1dnNXQU1Sa0FLUHA5a2xGV3pucnBlRDRIdG40?oc=5) |
 | Belarus frees 52 political prisoners as US lifts sanctions on its national airline - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPY1hqUXA3R2lzZVJmUDQ2a2dSSzNoWjVydElJSzVDNkczUFZzS3pvblV1aHlsVXE2NkxUM3JTbGxoTnF2dWM1QkdXdTk1QXJQRExnN3dSMGVxYnJHWWtVY083emh4VmpIdnB0M1BQMlZucFd3S1o3WEY2ZGJEN0tONEpIcm9iWG12UFY4Z003STRCSUhX?oc=5) |
-| Nepal’s Young Protesters Find an Unlikely Partner: The Army - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQa2NFQnNvQVpIUnQ3TklWWEdHVUhhd25UTXp5dkZDaDZtNzhDWk4yZnlkT01NeTgwdjZHYnhBcWIxU3FQRzkzS3NaS3MyVElNNjI4MWhwc1ZGUEpTaEdCM2xSdjYyN0w0YU94QV9DOUhQOC1lemVsNGxoT2pHOVNpb0dMYkQ?oc=5) |
+| Nepal Gen Z unrest: Who is Kulman Ghising; new frontrunner for next PM studied in India - 10 things to kn - The Times of India | [阅读全文](https://news.google.com/rss/articles/CBMiiwJBVV95cUxPNXRrUjJlTm8wRVlXMjd3TFNBSFU5cElwS24xWEVGbnR4TW1DRUpqdGt2a2lqTi1YZHpQRGpHZWFMd1VDM1dBWmNvRzVBTF9PT2ZXdmxGVmVRLVRuREg3azVjeGktWkpMRWdVZjJnQmpCUm9YV05LRHdqQi1WbDlzLXpTMTVrbEhUUnBXTjUzOV9ZSEg1U0Qzb01UdFJvMDBZbFJ5NjEtYVlnNUJVTko2a3BVbkZiQ2tRTnMtTXFhSHM5ZUJLVFFLYXBEQlpyN05mYTFJeGRuMzJxaVVMMDJsaFRYb3JBbUlRWmpxWGYwOUJJM1MzNDAyc3hEWFhEMUliWjRUVHg1VHJ6b1k?oc=5) |
+| U.S. influencer under investigation in Australia over controversial crocodile videos - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPNVp4VndNQzN0RjVwNVMwUGhidko1UHI1bmZNUHplcTJiaHNaZUZNSi1zb0xPaDBNZXFNV1hvQ1pxQlhEYlYyMFUwVmliQ3dpSkZtWTJFWTFKczBEWFZFbEZ5LW1PdzRQR2NXWlFZcFZVYlpRSldHYUdOSUUwTlB0Z2ZFdFBwWmdmUVhQbUkxZHl0VUJXMmU5cVJ1Nmt4eThockEtdms0bHlreDhIb1FSUHFUWXDSAVZBVV95cUxPbHJldlQtTmN4aXltS3FTRG1sdXo0OUY5Ny1EQmJnQmk5bGZrM1ROYXBqUHB6MjdUZEFpdDBVQlp2Ym81R0pPYzRzaGhST0NuMUliQ2kzQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
