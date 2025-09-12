@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 17:12:31（北京时间）**
+🕒 更新时间：**2025年09月12日 17:25:38（北京时间）**
 
 ---
 
@@ -10,8 +10,8 @@
 |--------|-------------|
 | What CCTV and drone footage tell us about the hunt for Kirk's killer | [阅读全文](https://www.bbc.com/news/videos/ce84y9ep1z8o?at_medium=RSS&at_campaign=rss) |
 | Labour MPs despondent, says minister after Mandelson and Rayner chaos | [阅读全文](https://www.bbc.com/news/articles/cx238pwwqg6o?at_medium=RSS&at_campaign=rss) |
-| Prince Harry vows to help war injured during surprise visit to Ukraine | [阅读全文](https://www.bbc.com/news/articles/c3dr859vxxjo?at_medium=RSS&at_campaign=rss) |
-| 'Please come forward,' Stephen Lawrence's mum says to witnesses as review begins | [阅读全文](https://www.bbc.com/news/articles/cgrqnp09zl5o?at_medium=RSS&at_campaign=rss) |
+| Prince Harry makes surprise Ukraine visit to support war wounded | [阅读全文](https://www.bbc.com/news/articles/c3dr859vxxjo?at_medium=RSS&at_campaign=rss) |
+| Stephen Lawrence's mum appeals to witnesses as review into murder investigation begins | [阅读全文](https://www.bbc.com/news/articles/cgrqnp09zl5o?at_medium=RSS&at_campaign=rss) |
 | 'We tracked down our mystery wedding crasher four years later' | [阅读全文](https://www.bbc.com/news/articles/c7v1d3r6y8mo?at_medium=RSS&at_campaign=rss) |
 | Ros Atkins on... Israel's war in Gaza and proportionality | [阅读全文](https://www.bbc.com/news/articles/cr5r76e127do?at_medium=RSS&at_campaign=rss) |
 | UK economy saw zero growth in July | [阅读全文](https://www.bbc.com/news/articles/c203edl1zq3o?at_medium=RSS&at_campaign=rss) |
@@ -30,9 +30,9 @@
 | After Russian drones were downed in Poland, what does triggering NATO Article 4 mean? - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBXbDh3b1FHaDR0Y09qOWVEZ0tjRkpwZk1tYXgzTlZRTy04a2VUaWtvODk5UTRENDhTNU9CWTFPbmtwc0xLcGVlN0VzWGpzdGZCbEFnTFVmOGV2bXotbU9yWFBlYUF5RC16MUR0cGpYTWxKXzJOMVppMDNvOXg0X0E?oc=5) |
 | Midshipman at US Naval Academy was shot by security forces during lockdown - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPZ2h6aVhKdFRINHBHQ2JmTWFkblFua2FPa3JtcGRyMTVfcXBKRE9WSUVRV1lSMFQ0NW1aTVJNdTk1NW01OW42TkwwOGgyeHpwNHdWWjZSUjkzWTJxVEpNbVF2N2s2UTNFZjBTWWdmeXdJU01yMGZPaXhUTGZWcXJsck5wVGdPbXlPMXh4bDRVOC16TnkxUUNEaVJzNDBDeVXSAaQBQVVfeXFMUEVwTUpXVzMwZk5yNGtXRU9STWJLYkxNQXlBV0dpU2JMOG9jT1pPRjRJZmZhNlFCdC1RLTdxTFFNVThSWGczWEZITFdfcGN0Y3FEQU1fcmN4WTIzbmNrSFNuOWRuSEFqdmpMRlI5ZlhfMXcxODVXaWpjMml0U3FBYmhmRXE3VUczR0dad3pHcEx3cm5PN3J6UlFRMUZOTmVvNUxTY0w?oc=5) |
 | Ryan Routh begins self-defense in attempted Trump assassination trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1SUG55a2pCeGtTVHR0U2E4eC0tTnlfQ3BaWVU1NlhMSGxjZzlrb3g2blZxVDlUYUdEQjVoRDhlY2I4NVFfR21uM1ZJdFl6aDdueDdCNWFWY0NlUdIBX0FVX3lxTE9US1poVFVSS19LSzRJOHBJNkFMUnQzTktUSm5CNFpHOGFGT0FQcm82c3daNjRnXzVWT3c2UkdqbThfQ2QzU3did0RaSnlSOWNjN2V4LWJNVHlNMFNoYWZJ?oc=5) |
-| Josh Kraft bows out of Boston race for mayor - WBUR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQbXRtWGVYTF9aTjNPdnFFOUljMmtVNU1odjllZGNNUTdkMl9Qb0ZqbkNuZnlSNWJUa1IzTlFpRVM2ZzhueURpc2xvWjZwNWYxZnlfQ2JHaldscWYyM3V0dXJKQnNsMDF4S1J5RDQtTW1aWThnV3lhYWQzeWJyMUtfeEUwUEJPU0xI?oc=5) |
 | ICE Agents Can’t Wear Masks Under Bill Passed in California - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQeFVQWmJhNGVVa3NNR05oWlVCQkRpN25tZFl2SXBTMm55VXF5dEFRMnVibEVwRGFrMHF4am03Q2NqMjBxTFBRM1JTc2Fzenl6dDk5MXlqNmRjZnhyWi1GME5yTlJKYzR0WkMwbVZrOFdlMWZJVmZwY1F1X3o3SUVVMjJjQks0dw?oc=5) |
-| With Hyundai raid, Trump’s immigration crackdown runs into his push for foreign investment - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQSDl6Vkl6V3ZRMHZNWTYyUVFJMjhUWUd5N2h1NnY3SE5vS2Rvc2dhcHhyM1FBZmlZb1hrTFJuN3ZpUUdmQjV4MVNTclM0cGhyZTNzMGxfRjB4Z3UwZlUyUko5Z0d5VWVaa2ljQmtOWHVIdWlOVWtuRVk3ZUxBNzdidUdrV1NQWmlZNGE4RV8zcFY5X3h0bG9uTXdoQlBYT3VsUnhqeC1WVkJ3VEdxSERoOXpaQQ?oc=5) |
+| Josh Kraft bows out of Boston race for mayor - WBUR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQbXRtWGVYTF9aTjNPdnFFOUljMmtVNU1odjllZGNNUTdkMl9Qb0ZqbkNuZnlSNWJUa1IzTlFpRVM2ZzhueURpc2xvWjZwNWYxZnlfQ2JHaldscWYyM3V0dXJKQnNsMDF4S1J5RDQtTW1aWThnV3lhYWQzeWJyMUtfeEUwUEJPU0xI?oc=5) |
+| Political violence in US mirrors 1960s turmoil, historian warns after Charlie Kirk shooting - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNYW9iM29SUkJrRmxnVG9wQ2lzU2d2ai1sZzZMZG1RaEx1VWdkWXVJNmtpRlBuVG5tdEI1QWswUW1JQWJyVE5feUJOa0RYMDdqSy00MGtlLXhrVmtmdGRpU2xEWmd5SG1kLWx3MUVYSEFHSzdlSEJYZENCaFBqRXdWT1Rnak9HQjZqZE5oeTloTW9ZZmpmcHMwTE14UXZYUUlDTXR0bkJCWdIBrAFBVV95cUxNS2JQbk4xeWx0bGtpemM2Z2dPZjFvTE5nQ0c1RllWRnhLdFp5SXhEUXJpNk9YNlpJcFhzYW04SjVNWmtvOU1INm9WXzltTFFFcVVLRE9mX3pLMkd0S1I1T2l1Z2lYQy1NT1pacjQtNG5BeHBmNVdFNTU2S3BiWUlrZTZjQ2ZaYjRuV0JvUFVVeEgzODVzWFVacEtpQjdGb1N4TTJfTmhMbkU0SkY0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
