@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 10:49:50（北京时间）**
+🕒 更新时间：**2025年09月12日 11:00:49（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | 2 Massachusetts teachers placed on leave over Charlie Kirk social media posts, superintendents say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNc3o0NlBVTHlvYmw1b052bjBsQ3l4MW1HTGF6bnctd0Z3RmdINlFzOXVWbEtlNjRYQm0yMmNvUzluUlpzWF91RWxXZFFPa3pVWEFFTjQ4dC1CcXBoV3cycktzUjFRYVR6RlhzUjBkUFpueVp5elRqZUp2dXhzOUFKdnV2eng?oc=5) |
 | Senate Republicans trigger 'nuclear option,' changing rules to speed up Trump nominees - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNa09vZ3ExQUR2VGJOVmpnRXhfdkxfSDI3R1FOejRndEhRV0VaaTlzYl9BX0NuUEYxOWVYdUJtWncxNnhwcVdhZjhycWVCZFJGTXBTZ1g4cXpacnpNLW9vZ2xJQXNVUFRSaUlmaFdONUs1ZDI2UHNkWmRBYTktWGdCMHRrMmo0N19neUdLTEZGMkN3bFByblByaHhZR3l5Y0FaSE9TYlg5Q1hpLUY5YVZrQ2tuRW7SAVZBVV95cUxPazFEQzVEMW9VdUZEanVqMlNnTUFOb2xwQ212ZVBfRFgycktqNE9CTnQ1OEwxM3FNWjJQQkFxeUhlZjh4bG51NEdwejJ0VTNkY0RCY3VEZw?oc=5) |
 | Jury trial of Ryan Routh, man accused of trying to kill Trump, begins in Florida - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOa1Zod3dHMWRDTG14em1xYy05cjlOZ2lRUXltRS1kT1hnVEZNcWNZUy1uem9UWDJKbnF1WDBETW9LWXNmdl9haFp4N01HaHUzR1Q5RnZ5bENtZEZWOUZ0T1BabXNqbFdrRXl3SGkxWm9wS09HcVpGcXJKRmRfQXJ1Y2pSQldFZmpKeURpM1pqd3FNQkZwYmc?oc=5) |
-| Hyundai says opening of raided plant to be delayed - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5Ca0IyeVpRYWZPTVJJM3ZRZFhNNG1KN0VrazNjSlF1TW9jb2JEV09RbjZIUmlJb3NJeWQxUHV3TTNiX282MmcwUU1XMEFqRl9ocmJEUXNXdDNRUdIBX0FVX3lxTE9SZmUxb1FtUXA3dG9aNVktME0zRGMwM3NoWHFrSm1OcHdUNDFPOHkwcG5McC01NHJXRmp6alZuY0REcU56MENfa29ldGJSN0VWQ1dBVHk1OHRzbDF6Z1pv?oc=5) |
-| U.S. Naval Academy Placed Under Lockdown Amid Threats, Authorities Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9nNzRNRWtzdThfaFJvMHk1NnRNRjQwTWJRd0diS0RVd2R1c2EzaGtDSTl4T25BWG0tRktFUjc2Q3RrTGxGbGl5c09hSFhza3VQYnppTXNwTDNZMFkwTVl2VGJXc1lySjdRRE1jTlNHbnRXQWtC?oc=5) |
+| No shooter threat found at US Naval Academy in Maryland, official says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPc0hJYjk2bnBEbWNYUWltUTUyYk5FcGM0by13T19mZUdyUFdDdC1BcWowN0dVejNhdW1lSWdJOU9QNWREaGpad0FlazJmTS0wZXptUkdaR0Z4bm51SC0tT1RWaWpYMUZ4VExsa1RQRHZ1T1NwYVJiVFVoM1ZodFJLSkttRXlYRjBQRERKTm5BU3RnX3NhdjI5MXpoYTVxOVAyV21yWFljUTlaZFc3?oc=5) |
+| With Hyundai raid, Trump’s immigration crackdown runs into his push for foreign investment - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQSDl6Vkl6V3ZRMHZNWTYyUVFJMjhUWUd5N2h1NnY3SE5vS2Rvc2dhcHhyM1FBZmlZb1hrTFJuN3ZpUUdmQjV4MVNTclM0cGhyZTNzMGxfRjB4Z3UwZlUyUko5Z0d5VWVaa2ljQmtOWHVIdWlOVWtuRVk3ZUxBNzdidUdrV1NQWmlZNGE4RV8zcFY5X3h0bG9uTXdoQlBYT3VsUnhqeC1WVkJ3VEdxSERoOXpaQQ?oc=5) |
 | Potential threats trigger lockdowns at several HBCUs across the South - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE5Hb0JNLUl2LW4tcWRGaGFoUmtxQ0JzS2RmVTFMN2FOemg4cU5EUzBUQVpzVWhqNzF0T0tfNHZjUkJWaDB3MGFwYTkzR1I1cVhyTFFfNTVIcEJkTHNfYTBfOXo3Q0tyWUYzVmxVZjlkRXhVbU0?oc=5) |
 
 ---
