@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 06:01:41（北京时间）**
+🕒 更新时间：**2025年09月13日 06:13:45（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | News: NATO launches “Eastern Sentry” to bolster posture along eastern flank, 12-Sep.-2025 - NATO | [阅读全文](https://news.google.com/rss/articles/CBMiX0FVX3lxTE8zdHdBOXFkUW1QTFM1dlZJX28wSjYtbWFSd09COHZmZEhqdGdFRmtXaW1TVF9SX3N1czFtRWJDN2JXcERWa2l6cXFKNTV2VFpVTGo4RVRZbFRYSlVQNGtR?oc=5) |
 | Israeli intelligence agency balked at Netanyahu’s strike in Qatar - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPWkJCN3R5LUlQN3hVeE9ncFViSEd4VzNPWGhRMXVReVItUGRNZkZnM213ODBMUmZ2Vjk2S2dVOUtBUHVOenlDaUl6LTltN3dkMlFQZVZvWTNpWUpNR2J4LWl4dFM5Sl9qaXJCbkE4MF95ZGN6SDdzSDdta2RaUDFkRWtkQmp1ekc2?oc=5) |
 | California passes ICE mask ban in closing days of legislative session - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBrTC1kMU5OeUxJM183bVZ1T0ZfXzExamlZb0lHRGhNd0pMUEJKSVJMQTRLemYxMkhGek1iQzU4Yl9ldFU1bC1BMlBidWxOdnhIV1VTUDIyXzA5blRKajgyT0lxbW9jSlEzS25uNGs2YTNoMFVTd0E?oc=5) |
-| Trump says he's sending the National Guard into Memphis to 'fix' crime like D.C. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPalktbDM1Z1NBRmNkWFZPLXFTbmw4UW12RjhGam5IeGFoNUZuNkhiLVhHRDhfc0ZxbEVmWXliZlZ4bkVWM2NFSnFfSGhEWFhLcFR2Ukg2OEZwNVdURkp6Tno4ZWc0cjh1NkVudnN1RFBPYkQweGRIQ1ZVVUpxUjRtV3lWeWxGczA4Q2FhbjZPRUFIWTJOeXNwQi14SzdiQzJPRHZYZ2hXT2NqQTlpOVE40gFWQVVfeXFMUFozcUhTMVc1SV9BVG8tU2RjS0ZBU05HTzVtRk1pS1plb2xfRGZCTVN5V2FUeTNFVkxBaGJxdGdRQXliRFUxdlFfTld6MjRGVFJYYXZfV2c?oc=5) |
 | Missouri passes Trump-backed redistricting plan to help the GOP in the midterms - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPMmxBZk9GWVlDX0NhMGUxVzdPOF9GT3lQUnFUbGJOYnM5b05yc1ZkbTZIZ1JfeENUWWw0Tlp1c002WXRwelI1d05YS2RjM3BoOTQwcmVVQWlSVk95YUdOT0g0TXdHSS13dG5semt2TXB1TmxMWlVwSEdMSDhfZERQbFZtTEk2WkUzY1E?oc=5) |
 | U.S. Secret Service puts agent on leave who wrote negative Facebook post about Charlie Kirk, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQWmp4Q3FHNC1Xb2E0SnVuQ2ZjY0txLTEzbFZZbjF4WWVQSkdBb3BnZUFnRHRuaDFKOExLdHFrS0xNU3A2cy1hOHc1NXU5R2tVSU1UaGpzNEFiNXpYUy1Kd29lSXRoSWdReGtfNWI0d1dSYTYzZms5QWstVTA3bWFidDlSbFk4QmJuZlgta2VyT0U2b0w40gGaAUFVX3lxTE1rdU1QZ3FPclhCeHA3eUh6ZTdvTXdRWEZycGlkWnJIOHp3Rm5yaFVNQTMxSDNrcWcwU2kzYXNMSDRKUGR1TWVHd0NvOG1hWUs2RUwyV0xxOEVpaXN2eWRFM24wTkJiZUNMTm5iZ2hMeDU1TGJJRXh0UGZzalNudmRXMzE3MWNFMWlfY3pDR3o3UmR4bldRaV8ySnc?oc=5) |
-| Trump Says It Looks Like Mamdani Is ‘Going to Win’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE82X1djLXd4dE1xLWl1dEdDTmFRTXFoem1FQndzQkMwbE5wb2ozTFJUbU8wdDRKMjdvdTliUzdZYTlLSTdFWTJyVDV5QXAwbm5hV01BQ1l1a1ZpRTRET0xQZmp3QUQxSEtDYnE5WHJpWHphVjh3d19lTjlUaGY?oc=5) |
+| Trump says he's sending the National Guard into Memphis to 'fix' crime like D.C. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPalktbDM1Z1NBRmNkWFZPLXFTbmw4UW12RjhGam5IeGFoNUZuNkhiLVhHRDhfc0ZxbEVmWXliZlZ4bkVWM2NFSnFfSGhEWFhLcFR2Ukg2OEZwNVdURkp6Tno4ZWc0cjh1NkVudnN1RFBPYkQweGRIQ1ZVVUpxUjRtV3lWeWxGczA4Q2FhbjZPRUFIWTJOeXNwQi14SzdiQzJPRHZYZ2hXT2NqQTlpOVE40gFWQVVfeXFMUFozcUhTMVc1SV9BVG8tU2RjS0ZBU05HTzVtRk1pS1plb2xfRGZCTVN5V2FUeTNFVkxBaGJxdGdRQXliRFUxdlFfTld6MjRGVFJYYXZfV2c?oc=5) |
+| Mixed messaging: Adams now says polling won’t affect fate of his campaign - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQY1I2QTF2UFYzTkhwV2ZpRmM2N2pCZnE5UDZQOHRSdHdYZFR2dTc3SF9yVE1Ybk93UEhCTUJaWTRqSUV6M3JyOHVnVVpleU0wMkYtY0NRci1sOTFNa1gwVElDRW5OSXdXeVllY3czamhMOTM4N05KV25pSjJCeTZyVUhjM0Vub19kTHctWEhIeThhR2tnRnJQOXBkc04zYjJDcFVhQ0pYc2MtUTAzelJrT2czVV8za19mRmtpaV9B?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
