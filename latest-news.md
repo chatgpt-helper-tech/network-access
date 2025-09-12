@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 12:50:00（北京时间）**
+🕒 更新时间：**2025年09月12日 13:01:26（北京时间）**
 
 ---
 
@@ -25,10 +25,10 @@
 |--------|-------------|
 | Police release photo of person of interest in Charlie Kirk shooting death - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNRWpQY3RqQ0VJa0RjMExFOFpNN3N1aEsyQjZRb0otNlFxVUJxdHRwZUVwaHZwazFDcnRhMHNjdV93amJmbElIclBxYUdXQWJfSXhDNHhTQXd3bllzdTl2ZDA3dTQ1TmYwUzQtYkNTWlpoTk1pbVJqVE1oSW1IOVR4SjVWYzBpaWM4Rk5CeWdGaw?oc=5) |
 | Jair Bolsonaro sentenced to 27 years in prison for plotting Brazil coup - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBPRnFtMEYzU1BwSTFfaW1JdGhUYVdNVmNhemdzY2hmYXZLNTd5OWpTS1NkMDhteFotSGVMZWNqZHYzMy1jYXZmcHdaQl9VMjFDa0tWd2dQOVQ1d9IBX0FVX3lxTE1Ud3FkMDVfajFEbm5MRlJ5eU10Uk9xV253M3FaUEwzdWJfSHd3UG83dERlSmtubXA4OWNfRHFFZjExYlZ3VjlDUG5jS2J5Mm0zMkRTYm5WYjdPVHhXOFRF?oc=5) |
-| Evergreen High School shooter identified by authorities - Colorado Public Radio | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE80eWEwMU5Sd2h0WFVScndBOFJld0Nsbkk0UmljdXhGczV2bnFGekRoZ2RDUkF6RFhvenNPb2FKR1BaUUR2M2NMbzRDdFpCS0RBY2hlNmVvalR1SjJudjBwVmkyT01Kd0ZldnMtWXhBWG54d3JzR3hIaEZxRzk?oc=5) |
 | Patel and F.B.I. Face Scrutiny as Kirk’s Killer Remains at Large - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQSGxMTDc4S29lUmZPNzhtTnY1YnljQmxwX3VYN095a0g4MmVfSWlsTEtkNkdZV0NGRFRHaHQtalVLc0RfUC1UekM2NWFiaU1CZVVlRHVGeHRFVnVXdVFhb2hvOHFiWTJETUZrWUN1MTE1eUpPSnMxcXk3R0tabjNLOQ?oc=5) |
-| 2 Massachusetts teachers placed on leave over Charlie Kirk social media posts, superintendents say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNc3o0NlBVTHlvYmw1b052bjBsQ3l4MW1HTGF6bnctd0Z3RmdINlFzOXVWbEtlNjRYQm0yMmNvUzluUlpzWF91RWxXZFFPa3pVWEFFTjQ4dC1CcXBoV3cycktzUjFRYVR6RlhzUjBkUFpueVp5elRqZUp2dXhzOUFKdnV2eng?oc=5) |
+| Evergreen High School shooter identified by authorities - Colorado Public Radio | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE80eWEwMU5Sd2h0WFVScndBOFJld0Nsbkk0UmljdXhGczV2bnFGekRoZ2RDUkF6RFhvenNPb2FKR1BaUUR2M2NMbzRDdFpCS0RBY2hlNmVvalR1SjJudjBwVmkyT01Kd0ZldnMtWXhBWG54d3JzR3hIaEZxRzk?oc=5) |
 | ‘Every time they’re making progress, it seems like he bombs someone’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQaG1vYWpMUHBkQXVoU1pXSS0zVFQ1OG5DZUc0enp0SFloc0dPRXVYdzhtVmFWTE10UXBHUE1wemMyZjNCWHpibkZ2LXNNVlpjRlREUm9tVGl1c3VtLUc4UWZ0U0F4cGFub1JMQlhaVC1ual9CTXdwTlhmeERsQ05tX1ZDejBVUXc?oc=5) |
+| 2 Massachusetts teachers placed on leave over Charlie Kirk social media posts, superintendents say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNc3o0NlBVTHlvYmw1b052bjBsQ3l4MW1HTGF6bnctd0Z3RmdINlFzOXVWbEtlNjRYQm0yMmNvUzluUlpzWF91RWxXZFFPa3pVWEFFTjQ4dC1CcXBoV3cycktzUjFRYVR6RlhzUjBkUFpueVp5elRqZUp2dXhzOUFKdnV2eng?oc=5) |
 | Ryan Routh begins self-defense in attempted Trump assassination trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1SUG55a2pCeGtTVHR0U2E4eC0tTnlfQ3BaWVU1NlhMSGxjZzlrb3g2blZxVDlUYUdEQjVoRDhlY2I4NVFfR21uM1ZJdFl6aDdueDdCNWFWY0NlUdIBX0FVX3lxTE9US1poVFVSS19LSzRJOHBJNkFMUnQzTktUSm5CNFpHOGFGT0FQcm82c3daNjRnXzVWT3c2UkdqbThfQ2QzU3did0RaSnlSOWNjN2V4LWJNVHlNMFNoYWZJ?oc=5) |
 | 1 injured while U.S. Naval Academy building was cleared after reported threat - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSnVsQVRYUmVtMHk1enRYVFp4TlBGUGgxX2VFMFJFT2w3U1RSbU8td3p4djl3WU4zaFd0MG9fbHdqV2pGbXpybmJyTzNGWUR3ZTdTSk8zRzY5TXlqWl9QT0FmTDlPTDNFS2xVXzZ6UjRpX1RwNl82VHotcFd1Z044Y0N0RzVXZTBCdWc?oc=5) |
 | ICE Agents Can’t Wear Masks Under Bill Passed in California - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQeFVQWmJhNGVVa3NNR05oWlVCQkRpN25tZFl2SXBTMm55VXF5dEFRMnVibEVwRGFrMHF4am03Q2NqMjBxTFBRM1JTc2Fzenl6dDk5MXlqNmRjZnhyWi1GME5yTlJKYzR0WkMwbVZrOFdlMWZJVmZwY1F1X3o3SUVVMjJjQks0dw?oc=5) |
