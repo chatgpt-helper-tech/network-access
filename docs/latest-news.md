@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 20:01:33（北京时间）**
+🕒 更新时间：**2025年09月12日 20:13:17（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What CCTV and drone footage tell us about the hunt for Kirk's killer | [阅读全文](https://www.bbc.com/news/videos/ce84y9ep1z8o?at_medium=RSS&at_campaign=rss) |
+| Young fans and critics debate Charlie Kirk's political legacy | [阅读全文](https://www.bbc.com/news/articles/c62n6ql215ro?at_medium=RSS&at_campaign=rss) |
 | Labour MPs' growing fury over Mandelson appointment | [阅读全文](https://www.bbc.com/news/articles/cx238pwwqg6o?at_medium=RSS&at_campaign=rss) |
 | Prince Harry makes surprise Ukraine visit to support war wounded | [阅读全文](https://www.bbc.com/news/articles/c3dr859vxxjo?at_medium=RSS&at_campaign=rss) |
 | Stephen Lawrence's mum appeals to witnesses as review into murder investigation begins | [阅读全文](https://www.bbc.com/news/articles/cgrqnp09zl5o?at_medium=RSS&at_campaign=rss) |
@@ -31,7 +31,7 @@
 | Student shot after mistaken ID mishap with officer during Naval Academy lockdown - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPV1ZhYm9sQWJETkd4YXFCQkpGaG1VbzNvZDgtNkY1WHpucm54R1lyRGpYTmI2R2k4dFlFVXJENENndFBUdW5TNWgxb3NxZU1waDJXd1hGVkp5dk5FT1c5MDFra1dpTzByQ0VoYkllSjhmcnNLUWZtdVpsV2s4VF9sU3VodUZDamFabTlGWEVlbXZiSVpZUlpaOGhtcHE1cEw4aWp5ZlBlbV9ld0l1ZXV3TtIBVkFVX3lxTE1SaEkyalBaNW1PMWhIcnI2UWpVaC05YURHNjlNeEpLZ2d2dTFiQUtUYlNBYUNRdEV2bk1SSTdjd0RWRG50ejhITTdxRlhnOGhSUTE3cmRB?oc=5) |
 | Josh Kraft bows out of Boston race for mayor - WBUR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQbXRtWGVYTF9aTjNPdnFFOUljMmtVNU1odjllZGNNUTdkMl9Qb0ZqbkNuZnlSNWJUa1IzTlFpRVM2ZzhueURpc2xvWjZwNWYxZnlfQ2JHaldscWYyM3V0dXJKQnNsMDF4S1J5RDQtTW1aWThnV3lhYWQzeWJyMUtfeEUwUEJPU0xI?oc=5) |
 | With Hyundai raid, Trump’s immigration crackdown runs into his push for foreign investment - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQSDl6Vkl6V3ZRMHZNWTYyUVFJMjhUWUd5N2h1NnY3SE5vS2Rvc2dhcHhyM1FBZmlZb1hrTFJuN3ZpUUdmQjV4MVNTclM0cGhyZTNzMGxfRjB4Z3UwZlUyUko5Z0d5VWVaa2ljQmtOWHVIdWlOVWtuRVk3ZUxBNzdidUdrV1NQWmlZNGE4RV8zcFY5X3h0bG9uTXdoQlBYT3VsUnhqeC1WVkJ3VEdxSERoOXpaQQ?oc=5) |
-| Evergreen High School shooter posted photo of handgun to social media shortly before shooting - KUSA.com | [阅读全文](https://news.google.com/rss/articles/CBMi6gFBVV95cUxPVl81OVdNTHJQUUNRUWdKdUJQSzdlUDZWNVI4T1c0dUc0Mlo0WUZJT2FMZU9zZjhMOXhQcVVXMS15cFBlVVF4WnJXNW9EYTVLRnBLZTdCU0ZsZ1ZDN1hFZFZFbmVwcVU4bjFSNXNaanNYdGRBeEVwNzVKeGk5NGhIYkJvQ3R6X0pGMzhxNl9zZ1pldDc0V2ZLVHE4ZUxYMTlmWVlaQnI0TUV4d1VVUWtoMkRkakNqRGROMTZuZlFsSUg3cVAydVExbXIxQVMxcnFfVmhUSmxveHEyMVBJSEl1RGhlbU9RNHJXcUE?oc=5) |
+| Ryan Routh begins self-defense in attempted Trump assassination trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1SUG55a2pCeGtTVHR0U2E4eC0tTnlfQ3BaWVU1NlhMSGxjZzlrb3g2blZxVDlUYUdEQjVoRDhlY2I4NVFfR21uM1ZJdFl6aDdueDdCNWFWY0NlUdIBX0FVX3lxTE9US1poVFVSS19LSzRJOHBJNkFMUnQzTktUSm5CNFpHOGFGT0FQcm82c3daNjRnXzVWT3c2UkdqbThfQ2QzU3did0RaSnlSOWNjN2V4LWJNVHlNMFNoYWZJ?oc=5) |
 | Brazil's Bolsonaro gets 27-year jail sentence for coup plot - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNcjU5cFFFU0QwWlBWSENibWZGNzlRZVVNc2JqR2VOOHNCRGZ5NmZBNlVqSmt2MzFsZUdqbmhjZDlUOUhwNTdScVpNRU9YQjIzZmNxbE91RG1wa3lUY1BMNUJRbS1hV21TMXRKR0NNZk55SXotX3NYTVp5NFY3WHZhSA?oc=5) |
 
 ---
