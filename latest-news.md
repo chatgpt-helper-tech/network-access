@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 12:24:04（北京时间）**
+🕒 更新时间：**2025年09月12日 12:36:51（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Ryan Routh begins self-defense in attempted Trump assassination trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1SUG55a2pCeGtTVHR0U2E4eC0tTnlfQ3BaWVU1NlhMSGxjZzlrb3g2blZxVDlUYUdEQjVoRDhlY2I4NVFfR21uM1ZJdFl6aDdueDdCNWFWY0NlUdIBX0FVX3lxTE9US1poVFVSS19LSzRJOHBJNkFMUnQzTktUSm5CNFpHOGFGT0FQcm82c3daNjRnXzVWT3c2UkdqbThfQ2QzU3did0RaSnlSOWNjN2V4LWJNVHlNMFNoYWZJ?oc=5) |
 | 1 injured while U.S. Naval Academy building was cleared after reported threat - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSnVsQVRYUmVtMHk1enRYVFp4TlBGUGgxX2VFMFJFT2w3U1RSbU8td3p4djl3WU4zaFd0MG9fbHdqV2pGbXpybmJyTzNGWUR3ZTdTSk8zRzY5TXlqWl9QT0FmTDlPTDNFS2xVXzZ6UjRpX1RwNl82VHotcFd1Z044Y0N0RzVXZTBCdWc?oc=5) |
 | ICE Agents Can’t Wear Masks Under Bill Passed in California - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQeFVQWmJhNGVVa3NNR05oWlVCQkRpN25tZFl2SXBTMm55VXF5dEFRMnVibEVwRGFrMHF4am03Q2NqMjBxTFBRM1JTc2Fzenl6dDk5MXlqNmRjZnhyWi1GME5yTlJKYzR0WkMwbVZrOFdlMWZJVmZwY1F1X3o3SUVVMjJjQks0dw?oc=5) |
-| 'Chilling reminder': Multiple historically Black universities under lockdown after receiving threats - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPTUNzRVBfSW5Ea2pacWtSQ1o4cmV2NmVTNTU3V3dZbWM4N0FfWmtjN2xaeGt2ZnZRYUhqMjBQbDhmOUxlbGV1WjNnWTJhWFQyZU9jY1RhNjZhUlVHX18tdVI1dFZPbUtsTzRGQ2t1UUpJVTllamV1b2JHSk5oTjVUcUNzR2NvdktuWE5DZUV6ZVVMbGNFWHluTmxSMzBPb0Z6eDB6cWtfZ9IBrAFBVV95cUxPcUFnVWlEdXZZaFhLQzJ5QUFjWkhjajY5VWR6MldEbjYxc1lvN05Xd1JQR1RqdWhIeE5OOFJHMUhKNThYNmwtQ2VEell1eFZsSkh5NVUzUGdzMkxTeXlKMTBGLWMxNUU1dHg4RnBCSzdEa3lxWWlaN1E1NWpORFlIMUdmNG4xVVFyQklheF9tTlVNa2xSbW81a3VpWEhkZFRuRmxrcTNiS0hYZ2Zf?oc=5) |
+| South Korean workers detained in immigration raid leave Atlanta and head home - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNblZ3RTRKMU5zczY0M3ZRVkNXQVZoM3EtU3c5bHBPY2NGeUlaSWRRZkgwbGw4emNKalN3SnRZZ1FpVnY2eFZKaW1GV050NEo5N2FraExzb1VFU09nT2xYcVhKYVkxR3pMNDYwVDRHelgzYUFpc2JzVUt1aVdLSDY4c2JydlRQbmQ4ZUZfNElvWktVQWtXc25qSDR5T3ZQUVMwM0h4aGxn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
