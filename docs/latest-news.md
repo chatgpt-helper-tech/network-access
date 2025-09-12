@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 23:24:15（北京时间）**
+🕒 更新时间：**2025年09月12日 23:37:05（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | 'We got him': Utah governor on how suspect was caught | [阅读全文](https://www.bbc.com/news/videos/c98e17y455yo?at_medium=RSS&at_campaign=rss) |
-| Labour MPs' growing fury over Mandelson appointment | [阅读全文](https://www.bbc.com/news/articles/cx238pwwqg6o?at_medium=RSS&at_campaign=rss) |
+| Labour MP says PM not up to the job, as Mandelson backlash grows | [阅读全文](https://www.bbc.com/news/articles/cx238pwwqg6o?at_medium=RSS&at_campaign=rss) |
 | 'Please come forward,' Stephen Lawrence's mum says as review into murder investigation begins | [阅读全文](https://www.bbc.com/news/articles/cgrqnp09zl5o?at_medium=RSS&at_campaign=rss) |
 | Court orders 'tribe' to be evicted from Scottish woodland | [阅读全文](https://www.bbc.com/news/articles/c62zxjy0j91o?at_medium=RSS&at_campaign=rss) |
 | Oxford Union president-elect condemned for Charlie Kirk comments | [阅读全文](https://www.bbc.com/news/articles/c04qz5lk6ggo?at_medium=RSS&at_campaign=rss) |
