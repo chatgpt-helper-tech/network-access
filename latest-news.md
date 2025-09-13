@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 23:13:53（北京时间）**
+🕒 更新时间：**2025年09月13日 23:25:35（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Illinois Democrats call for investigation into fatal shooting of Franklin Park man by ICE agent - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOSHN5UVAwMG40WEcwSXpCbWJuYnJ6UlRBQzRERkdOelh2S1VOVTZDcXE1bWtUbHNFXzR3TGJmYk5TM1BmRWU1SEZzM1gxMEpqb2FpNDFLY2pnWF90aHNqLTJ1bGZWbzR4WlUtWVROY01ZbG1KZldJWHBpVEl2bzFlUG9ramFUTVFvOTVib1NCVnk1Zw?oc=5) |
 | Patel faces congressional hearings after missteps in Kirk assassination probe and turmoil at FBI - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPOVU3S09PS2dJN3R4QlpoelVqSW1YOUJvQ2ZXdVFTaW5DU1U1Y3dXTm4wbGtCU2tGMkQzNFlTOXhaV3dPNjBOUTlJalE4TFROUEhnUWRpbmlJRmFMX1NxN29QQUlqTk14SHdNdzVXTzFqdnFUYUpWT3VYdXNVYzZhMGlzdC1SNTRKazk2cWpnaWV0Z9IBlwFBVV95cUxQTzRwdElzMC1mTEFGeTg1N1dQTE55dmFpaTdxbnJ0NWVJbTRwYVdqbUljQ1hnWllkWkN6TkNfUGNSNHN2bnNmNXdad2h3YVBHS3V5VWVGSGZHcUFhdWhMVjk4Tm5uNjV6VHZiRVhCWGVsRmRmUUlvV0FDMkRWY1UxUlJDVGhNVXk3ejZ4cFpwNlpXdmNRMGJF?oc=5) |
 | Meth burn by FBI smokes out Montana animal shelter - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPYkJGcGhZbDhEZlR2VGt5MHlEMUpzUTRDcEJhbWFfdkFXbTRPR0xOall2YTNjV1M2Nk9GRzdQT0lGbld2REQxUWNTTGgxZVJ3SUcxdFJnWUJNSllZdWtVaUtMRFo0V3V6LU10bWR1dGVFT2xra0NWZkNPRF9TR2NtYlBLYWNneWFzQ1hIVGMwMjRnc1JGMjRtX09YVXhuck1ZTVV1SG1QbkQ3UVZ4UTBv?oc=5) |
-| Nepal’s New Government Calls Elections. Its Critics Cry Foul. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQQ1dFRDdnNjlJSTBzeFY4V3JMUDFtS214SUFYZXFycEw5ZmFqX19oNEpjZ0hKb1NTVWJwZnRjV2xyZ3dHclRSUjh6cDFwTXdicEpuZ3VZdjUyem51MEhMcTU2WmlHbFk5M2hoYjNGdE1WS2g5WVl4ZGVkeHhmX0lrVFpBQnQzSVNnTGJBME00UklGLUtGUlB1SA?oc=5) |
+| Nepal: First woman PM takes charge, calm returns to streets - dw.com | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPQzd3N0ZQekpMUWpmUXY2YnhNR21YajFkcTdJSkZIMXNhM3VFQjdzLUdkRUlnNDBiR0UySUhPSjBvT2ZRYjR0UXBXa1lfdGhZRlV1bmtlbEZkTGJfSkJYT3VwdkRTcXhFM2NTdTdoRUx4UHN0VlFQQ2JEQndDZVZseGc0Z1NmTG9uc0FBZ0JQYmtaVDN10gGUAUFVX3lxTE9sbFBGQVdRRllTNUwzUzRlbmM4WjVHQ3V2eV9yeXdhVUhlTnV5d1pwMUN0TUxTOTlzbmplbEFOVU44WXVlcTF4bkRBT1Z4Y3dMdlZfSFpFNmxaUy03UkpuYjFjci1Na2JDSUdIVklYSVltdUxqYXlQSUp3akZKWGYtVHc2aThSUm52dE5STGNxTHFlZDQ?oc=5) |
 | Trump's public shrug over drone incursion in Poland fuels unease in Europe - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxNTWw2M3JWTjFTakxpUnF2bGw5QWdMMl9SWXgxdDNNYkRmNXJGS1RtalpIMzB1RW54TWMyaktxSXVLcEZadWJ2MTV4WF92a3RYSW1TYzFTMzRlUGl0VlhUT2hzR3NBdjZSQ2YwMjE1bmZySU14bGhuWUE1MHU2Z0x1SGlvNGRNc25PX2FhT1RseGc2T3VBMFZJa09LWGIxdDFmTnJtT1pUQ2JyVi1pS1ZpSWlyeXlZNlhiQWJBdXZNZVhlS3p1WGV4ZWt3?oc=5) |
 
 ---
