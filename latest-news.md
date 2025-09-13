@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 14:00:04（北京时间）**
+🕒 更新时间：**2025年09月13日 14:12:33（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | CEO whose comments sparked Trump’s Memphis action also pitched him on a big rail merger - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOQlZTX2lxMU16bzVYU1AzYzlJSHJHSEdIRG1lLXFKWDZZSGMzVzJ5S1JRMThoQ2J4ZW53YzIwNUFRLU1LbGEwZk9lX0pWRnhjVnlnd2QxZFF4Yi04bVd1Uzh3NEg5V2lIQ1NqSTEwOFJ5NF82Mi1QVnIwT1dfdGU0RWdlaw?oc=5) |
 | Missouri passes Trump-backed redistricting plan to help the GOP in the midterms - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPMmxBZk9GWVlDX0NhMGUxVzdPOF9GT3lQUnFUbGJOYnM5b05yc1ZkbTZIZ1JfeENUWWw0Tlp1c002WXRwelI1d05YS2RjM3BoOTQwcmVVQWlSVk95YUdOT0g0TXdHSS13dG5semt2TXB1TmxMWlVwSEdMSDhfZERQbFZtTEk2WkUzY1E?oc=5) |
 | Trump declines to call for unity after Charlie Kirk killing in stunning move - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOOXlqdVo1S3g3LU04ZUtPNGZVbGZVMWpCOWM3ZWFldVpUb2xacTNveS1GenZ1T013LUNET0NyNGJkMlRyWk9jdy1vZm1oN0JYamxvX3hMT0E2b2l1OXAxcFA5VjNuMzNRb3lIaWt3NTN2OTRNM3VrLUNFMkNOcTBsaWtqZnZsYUdXbUVWNmE2dVQ?oc=5) |
-| North Carolina Republicans blame Democrats for 'woke' policies they say contributed to Charlotte light-rail stabbing - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPLV8ta3N3Y1lIT3J2d3kzdGwwenh2OV9oWmNFQlVJREtFdzR3ZUJaWFYwYnVuS0RDU2tQTmk1NGd1Yy12MGpydFhMWEc5RHhlS1dDckFsREo3bnBmVGRhLW1XTUxWZkNJUy1vM20zZzRLRjVNNmE3dVlLQmNaU25vbVNndFZUOXFSeGE3TXJod2tEa1VNMXJBV2RLLUJ1X3A5dVU5NlVLZDRyQUZuR1dGdGJ1Y2xxWlNxcjZR0gHAAUFVX3lxTFBFVWRjSUpWQzRFUnkxTUVNMmljejZiUEtFejF5M1YwektwY2ZUQjA1aE5SSzlFcmxGbHZxOUM5MXdlODhIbkhGSTVNYks0UWxaLUd4dXRuWFdyQzFCZTNmWk5pRnhmeEp3N2tRU2xoQklWbVhpWDFZRlFPZWM1Y0hDNzhQY0tDZ05INU81V19CRVFHNWpNOXVBellVN3k1YVhVUUJOUUFRTUpqaTZUU1ZGTExWTk5ZQ1A1Ty1BOS1wcA?oc=5) |
+| Wu responds to Kraft’s decision to drop out of mayoral race - Boston.com | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPYnBCRlgxRHNMY3pVZ1M1NlF0SGF0NWM0WEx4YVNjTzMzdjhTU3dQRnk1N1lSX21YTHZJNGJGTGF1cWpCV2JtblJiY0RMUnMtQW1hUGFCX0p5Y3p6cnJHTUNRaG5Uelh1RERfekhVbTFyc05NRXlkd2QwODVQZVRfVEdoQmZUZGQ5MGdvS3hiaXBCWk9NSk1ONzZuM0R0Z2tpUlJUaHpPS3NuNjNfYVHSAbYBQVVfeXFMTWNDdmNmaXdVbHBjU1R5M2xGMG8tMWgtZjdfOVNONUxDcUVSU0Z5Z01qTlAyczlsYXJ0Nnk3Z1dJREZFZ0VtdlNpMkdxd2U3SUZiVzk2Q1JaamYxTG1CTkVENktaNXB3d19PSkNlQ1k1ZWFDcWl5SkJtTlN3U2hVS09kMno0ZXI0MmtYb29uMnJ0WUVlUVU4RkVod1ZZakZGczgxaS1DUTNSUjdFNUVYSVMzeThubVE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
