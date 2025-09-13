@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 11:25:24（北京时间）**
+🕒 更新时间：**2025年09月13日 11:36:58（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | ICE agent shoots dead man who tried to drive at agents, officials say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE54T1JCQXlOeDZCZEdZT3RUYkhHbm5ZN0NKQk9tYkdJM0x5M0hxN2hJckFHV05IZ0F1ZUtpRmxxZUNTT05wc2VIMnZmZC1QOEtCNHFNV3hnYXdBd9IBX0FVX3lxTE1BUXNBMTZzMmNqcEZKWFdVUGQ5NU8zeGdUOWpsLVM1cC1Bb2poUGdTZ0c1UWJIcTQwTHBYYkV3MUZoRTVxSVRFeUdNRFp5bElCd2Vqb1lKX1poZVpIUVI4?oc=5) |
 | CEO whose comments sparked Trump’s Memphis action also pitched him on a big rail merger - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOQlZTX2lxMU16bzVYU1AzYzlJSHJHSEdIRG1lLXFKWDZZSGMzVzJ5S1JRMThoQ2J4ZW53YzIwNUFRLU1LbGEwZk9lX0pWRnhjVnlnd2QxZFF4Yi04bVd1Uzh3NEg5V2lIQ1NqSTEwOFJ5NF82Mi1QVnIwT1dfdGU0RWdlaw?oc=5) |
 | Contentious housing bill narrowly clears California statehouse - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNOFJVYkZ6VG1fVVVBUlBaS0I3RF94dXhnSTRZOTk4Z1pScVUyNjRWRXFud1FNdkFmWjRyMzItMklTYU04NnJaeE9ZdFRrc1N4Z3N1bGFlMFBaN1IxWml3aTkyQll2LW5fWGs5ZDg3dDN2dzA3dG42S1AwNkhlbzhOSnlhZ3pqS2dYcVlzZ1dfczFteS1fYjQ0?oc=5) |
-| Missouri Senate passes Trump-backed plan that could help Republicans win an additional US House seat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPR1RzODU0OWc3TUxfblJ3RkJyQVhmMk5FQmFKN3Y2QjNOMGtYVWJCREJueWlKZzc3NU84Sm9PUVFWSFU3VGZaNTlaWmRxWmRiY3RicUNRd3JKRUxzbXFlenVIY002Sk5lcTNFTkw0bENucWUwdFI4TDJwYWJwajZSV1FGazc3OU1CalJLUW1FV25ieVdlRjZob2JtM0s0aVNqTHc?oc=5) |
+| Israeli intelligence agency balked at Netanyahu’s strike in Qatar - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPWkJCN3R5LUlQN3hVeE9ncFViSEd4VzNPWGhRMXVReVItUGRNZkZnM213ODBMUmZ2Vjk2S2dVOUtBUHVOenlDaUl6LTltN3dkMlFQZVZvWTNpWUpNR2J4LWl4dFM5Sl9qaXJCbkE4MF95ZGN6SDdzSDdta2RaUDFkRWtkQmp1ekc2?oc=5) |
+| Missouri passes Trump-backed redistricting plan to help the GOP in the midterms - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPMmxBZk9GWVlDX0NhMGUxVzdPOF9GT3lQUnFUbGJOYnM5b05yc1ZkbTZIZ1JfeENUWWw0Tlp1c002WXRwelI1d05YS2RjM3BoOTQwcmVVQWlSVk95YUdOT0g0TXdHSS13dG5semt2TXB1TmxMWlVwSEdMSDhfZERQbFZtTEk2WkUzY1E?oc=5) |
 | Trump declines to call for unity after Charlie Kirk killing in stunning move - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOOXlqdVo1S3g3LU04ZUtPNGZVbGZVMWpCOWM3ZWFldVpUb2xacTNveS1GenZ1T013LUNET0NyNGJkMlRyWk9jdy1vZm1oN0JYamxvX3hMT0E2b2l1OXAxcFA5VjNuMzNRb3lIaWt3NTN2OTRNM3VrLUNFMkNOcTBsaWtqZnZsYUdXbUVWNmE2dVQ?oc=5) |
-| Former Judge Sushila Karki Named Nepal’s Leader After Gen Z Protests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOUVhfeGFqRzExWDRjWDJPUnBVdWlTS09LS0IybUhWWG1zb25hS2UyMW4tWllkUXUtemtINkstVnpySEZ6TFlVd3g2Zm05SlZtdkZnWWoxcmJmajIwYnNfQXJsV2F6TVo5OXhRQWhxek9qUUFhOFZjSUQ3Rk5qeGxCbXR5c3hVazRzMmFEMQ?oc=5) |
-| At least 193 killed in two separate boat accidents in northwestern DR Congo - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNMHBhSGFSYTdqWkNsdUd3blR2djZ5VnJPaEwySldJSElNdnRGYTh0RGx6Vmt5WTN0R2k1QkJ1R0VDUEhnd25hZG5rb001V0NrQk9sUXVJRFhPUUhjaHRfejlJVEFHZF9hdi1XcVNOSXpQUUZwOWhFdXVjU2xsMzRZc0dESFpwZTg1MXo1MU5uRUdLdTVWOW5Rc1Q1RDdGS0pqWFRlMU9zcW9uZnhlelMwZHFZMzA4RTjSAbwBQVVfeXFMUExLX1Bzck9yQ2h6aUlhcEIzOVA1SG1hSXNPTVJoRXgzX21fVjdadW0zNm9Nc2hTZEtfZHVBb3c3NjlKcHFpVVk3SWNxd1Z1ekdqU05DaVZ0R3BrcDVfdGhqa1lkYkJaWTRDQklnN2dLdnVCZ0pkajZKY0tmSC1udGVBdC0yVFpsQmRUUjR1eUhBTEh2dE1xOFd4TXRNd1pZQzljLXZOdmRjTTU2T2VPRkd6VTd4c2UxS2puUng?oc=5) |
-| ‘It wasn’t’ — Poland rebuffs Trump on Russian drone incident as maybe a mistake - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMjQzZmx1SV9fQ2lrUFhDN1NhY2ppQ3hCMktUbVlYX2VwcEl6c2k0dzg0WEJNdEtsQzd5OTN2a1dKd2gwMWJBaWQxbHJxNFgzLWJIR3c2cTNPLTFsZXQxenZqZjBMcDZISmNOR1gtZzNrbTlkVnNuUjgtbFJJRk5CejFLWE00eTA?oc=5) |
+| Trump Says It Looks Like Mamdani Is ‘Going to Win’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE82X1djLXd4dE1xLWl1dEdDTmFRTXFoem1FQndzQkMwbE5wb2ozTFJUbU8wdDRKMjdvdTliUzdZYTlLSTdFWTJyVDV5QXAwbm5hV01BQ1l1a1ZpRTRET0xQZmp3QUQxSEtDYnE5WHJpWHphVjh3d19lTjlUaGY?oc=5) |
+| NATO Steps Up Defenses After Russian Drones Violate Polish Airspace - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNRHp5MmlUTUtSQkowS21JZFJhWkh3TnVfNkowVnNPbTZ2NWh3MU01QmxUcERKZkpfSDBSYm1mWHFEYVQ0aUU1Q3Jaby1TX3hZUHhZQi15NGtIU0lIdEFPSG05eWFyc1ZIQTRFUnpESW55QXZfSzlWbUtjLVJrZ1YyUUlKSUJ6RlU1RlpMNjQwWnk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
