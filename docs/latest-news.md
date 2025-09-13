@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 03:37:24（北京时间）**
+🕒 更新时间：**2025年09月14日 03:48:02（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Questions linger about alleged shooter’s motivation for killing Charlie Kirk - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOVzhqQXNCVWozeWpRWVMyOVhLYUR6T2Y5Q21NRjNGRmdlaWYtaGVjczUwYXJ0NTZhT2ZsaVVBbnlsc1hudUFCYUZ6bGZvZEQzUkkxR3hmaWpWZ1U5UXNWMC1STWlaZWFQVlE2Y3NnS3gtdGRFaXoxVl9EUmd2a2c3NVQyNHJ2d3gyMTR2b2JUS09VMWx5amsxZExSWQ?oc=5) |
-| Trump says he's ready to put 'major sanctions' on Russia if NATO nations do the same - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNdjVhU240U0VHTHJOeFZGT0luNGNOQzl1eDlJeDd2ZTY2c0IzNmtJNDBHWmVaekFYb01ULW4waE52VnRYRVFRbk42ekRzd3ZFaEV1LWJHeXBLUEVqaHh6MUdTbndHVm9rTlFZc3czcFVpVExzNEpESU9aVmVRdUl6WFM4VGdBMm5hSUxxYlZIZWk0c0E0dVU2TnV3ZVNkTmZFcjIteTNvc0I3YVRYbVVJYtIBVkFVX3lxTE94aTE1LUx0clgzRWhzTkhwZjgtRjdVMG15MXpsZXBKYmdPMXByQlJfNEhpZUZ1RTUzRHoxOGI2akZVX3UwdWs0a0MwUGVWRk92TXp5Q1FB?oc=5) |
-| Thousands fill London streets for "Unite the Kingdom" rally organized by far-right activist Tommy Robinson - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOOHNEZnJ1bTZ3WFJDRWZfcDA2TF9xOENULXFnVHhNZ3JFcUQtZ0tUZ3JHTGdqc3cxa1VnbnVRZzd4M05LaUNjRTk4cWc2aG1IZTl6RUN0aXA4amZqOF80TTJKVEJGb0EzYlhZZFpiNmYwMkZhbi1PaS1LYlhjbXlCWUh2LVFHT09xSlZLWEFqM1NOdW00UHIwSVVrYUU2a2RNbU5fTFVoMTdoOEXSAbABQVVfeXFMTjJRXzZ2V1FQbFN2aHJ4VWx5azhXSnhOUDBtbk1GRzByV1E4a3ZIQUhkMHQ2UW44VUFYNDI2cU44UldqVGpMY3BDb2VPT1ZOdWRUaFlFRDNiX3g0Tmh6WnQ2cVotQ3pYZU9HaTZiblg0Z19ZUkNCRFZRN3NPTGczX2hCVE9UbTFKQVdFbzlkTGtQMF9Uc2NOc0dkV3pGME5NbkNGbEFYS0RKV2Rpb2hZcGI?oc=5) |
+| Trump issues an ultimatum for NATO countries on Russia sanctions - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNdlVjWjVtektwLTFLNzBncVFxMnkyWm1MMEh5NVBENzh6Q2JlajhzVE9rdU9KeHVTTW8tMzkteFRKQnFacG11Wi1nVXhDYkRHaE1NTmlVZjJMcE9sclR1RzNxUlFfR2Z4bjBqY1B5eUFzek5od21GSVo3Y1p5Z1Z2SQ?oc=5) |
+| Charlie Kirk's allies warn Americans: Mourn him properly or else - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOa3dBRVAtYnI0UWJYV3JSanp3Tk5NVDdLZGIwWXdrOGdfNjRkSzNKb1hWemJIRGY5emhmRDBuSGMweVAyNHRqN0o2aE5KNEZvejRwbHRvdjlVckhHckMtcFc2Y2ZvUUZCMWwwSEUtZzdzZGhOczVuNUJCTXVmSXhCZFJDUDRJdFVkLU5Tb194ZjI0XzU2TFJaeEdtWFpoQlRYS0JLMkFwVHlrdFk?oc=5) |
 | New Nato mission to bolster eastern flank after Russia drone incursion - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1xRUh5VWlaVjc5WEJFV0VLaWlja0RfVkQteVBPM2JQcjhac2RvSWRNdTlHUXo0c1VJWkJJMlNKWnlIa3hJZmIxR2FRSkRiT0s5SmNOWjZ0U0x0Z9IBX0FVX3lxTE0ydXRHcXBYdS1sWThabGpLSVZjVzBzU2Q3cFZwVHRRRXhQNEs2cFpleTRVOXJ3YWJBRVV5Zmh6OHdjWVZfY0xLN3pnanFjdDNweEhQYmR1ZThLZzlBbllR?oc=5) |
 | Nepal's major parties say dissolved parliament must be reinstated - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1VNndCSlpZdmFndHBoTXVwcXBJU3NPeFZHNUJCNFAwdktNYnFIdk9SMXhqcW1kbUxVUG50dDNPTXlZdEpRNTl3VmlJajRCN29hWWFYbWotNHpLd9IBX0FVX3lxTE9xY0E1SkthSmw1T2dJSVlvYWx4YUpjcDRvR0NaY2JCZEhKenUyU3RWQXA2eDY5RmkzZThNMUltTGk4bTNLRWVCd3JhR3VheFIwcEV4NS1xTnZFQVI4SktN?oc=5) |
 | Families in crisis after massive immigration raid at Hyundai plant in Georgia - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQYV9nSUtPYWRXTGxoLXIxamt4c2hoVDVRM1M5c0pUaWRNMUZkc2s0ZnFyVXYzeGlSWmh1d0l2c2NHSHl4SzJERWFXaGxBeEh0UF9CTGl3emJmQm12UE1aRzIyRjhJV3hLTktCSjdhdE5CNWk5OWFjWEluZnp0VjlqVzV0eFhDUFRDOUJkSWZiSmQtX2stdnpNX2lmZzlrTnVxWXdR?oc=5) |
