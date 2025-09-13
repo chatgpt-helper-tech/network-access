@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 18:12:11（北京时间）**
+🕒 更新时间：**2025年09月13日 18:25:54（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | AI fuels false claims after Charlie Kirk's death, CBS News analysis reveals - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9HTW5PcGdmLUdLSlowc3QxNUJFcDVtSXhSRmNCY0ZuaEpsUldEUEN6RjdrUERHbjlyTEVXbUlOSkI0V2N4bUhVa0VqdzU5SXFuaWUtVDB3X2s2YlppR1NwbFNGbzdrSnNUbF9Ld0tpTXZDQdIBd0FVX3lxTFBrelNhRTAxLWEzNHdQdWhQSzlfWTdsc21waEVyVGEzdjBPM3otTTdrc0JJN29VU1hkemlyajc3eno4RG5oUWZrVnpvNGYwUVNuYWVsZVRVZHFmSlYyeDJGVWUtTlFyWXB3QnJGbDgwOHlISWtJTWFN?oc=5) |
 | Trump says he’ll send the National Guard to Memphis to address crime, 'would have preferred' Chicago - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNLVRhUzdqczU2WHZwMGxUYjNVdlBFczNFYnpKYk5CUjBzbU53anphcmZ2b3hNRjF6NS1Xd0ZoNTROZFEtRmhTVHhuZkZScjFLeks4NWFhYnRkTXRXbk5KWXdfNzRjWFdMREdOblBSMFk2T1hxU0x1U2M2Y1NEVTBYUmdPaUlUaTBQZ3lUOExxNmFOcUpnX2kxT1ZWU3lKUDE5RkphZUJ5NFY3S25MX3Y4bnNER3NRU1lZ?oc=5) |
 | California’s $23 Billion Plan to Restore Federal Cuts to Scientific Research - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOOC1nZ1RGYlQ3NlMxdmt4VWtjZ2t0WnBSZEd2eFk3NzFrMVBBajVQVnBhYU00ckI1LVQ3bUxPUWFMOUJYakFIWUtUTFpYdUtabjFMaGV0TDZCbXFleW85S2czQzNnN0d5bVN0dER1dks5OFZCMnBPTGVudHZvZEpGU1U1U1c?oc=5) |
-| Update on U.S. Naval Academy Security Concern - navy.mil | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxOLS11a3F4V3FWbzJGVENJdV95WmpiaFhnSzdKZ2hwUkNSTzA0a2NGYVR2dEJNaV9VWHNLLXJQakFCVFJDM284UzRRTHZjekZBY3BRUEk1VDV2XzFiZHNQRG9ncFBlOWMzdThtQk5INW5pdE53Q0g3Ny1mRWRLRE84dklraEY2RG94NWhONFh4czdvb2hjbkdvSGdOeER5ekJSTjRUNU5mWFQ1TmJEQzhGSjc2T3ptUnpUNW0wNQ?oc=5) |
+| Schools tried to ban phones and avoid politics. Then came Charlie Kirk’s assassination - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPNVA4aVF3VktzdmtqcWhEQlJudWJ3dV9Ed0hLXzNaZl9CQndJM0tWdjNtS0tvdmIwQ25PMW9DNWYtLWpjNjFIZHNjNEhlYXBvTERGVEcyWlN0cXgta2UydzM4b2UtXzBIY0ZTM2VFejdIRWYtelJQRVdaVkpMZ2w5Qi1zNEw4cl96N3ZBYTZuLXl2S2dqSkJISk5n?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
