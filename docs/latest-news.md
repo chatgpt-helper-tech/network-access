@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 13:13:14（北京时间）**
+🕒 更新时间：**2025年09月13日 13:25:38（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | CEO whose comments sparked Trump’s Memphis action also pitched him on a big rail merger - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOQlZTX2lxMU16bzVYU1AzYzlJSHJHSEdIRG1lLXFKWDZZSGMzVzJ5S1JRMThoQ2J4ZW53YzIwNUFRLU1LbGEwZk9lX0pWRnhjVnlnd2QxZFF4Yi04bVd1Uzh3NEg5V2lIQ1NqSTEwOFJ5NF82Mi1QVnIwT1dfdGU0RWdlaw?oc=5) |
 | Trump declines to call for unity after Charlie Kirk killing in stunning move - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOOXlqdVo1S3g3LU04ZUtPNGZVbGZVMWpCOWM3ZWFldVpUb2xacTNveS1GenZ1T013LUNET0NyNGJkMlRyWk9jdy1vZm1oN0JYamxvX3hMT0E2b2l1OXAxcFA5VjNuMzNRb3lIaWt3NTN2OTRNM3VrLUNFMkNOcTBsaWtqZnZsYUdXbUVWNmE2dVQ?oc=5) |
 | Missouri passes Trump-backed redistricting plan to help the GOP in the midterms - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPMmxBZk9GWVlDX0NhMGUxVzdPOF9GT3lQUnFUbGJOYnM5b05yc1ZkbTZIZ1JfeENUWWw0Tlp1c002WXRwelI1d05YS2RjM3BoOTQwcmVVQWlSVk95YUdOT0g0TXdHSS13dG5semt2TXB1TmxMWlVwSEdMSDhfZERQbFZtTEk2WkUzY1E?oc=5) |
-| Former Judge Sushila Karki Named Nepal’s Leader After Gen Z Protests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOUVhfeGFqRzExWDRjWDJPUnBVdWlTS09LS0IybUhWWG1zb25hS2UyMW4tWllkUXUtemtINkstVnpySEZ6TFlVd3g2Zm05SlZtdkZnWWoxcmJmajIwYnNfQXJsV2F6TVo5OXhRQWhxek9qUUFhOFZjSUQ3Rk5qeGxCbXR5c3hVazRzMmFEMQ?oc=5) |
-| At least 193 killed in two separate boat accidents in northwestern DR Congo - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNMHBhSGFSYTdqWkNsdUd3blR2djZ5VnJPaEwySldJSElNdnRGYTh0RGx6Vmt5WTN0R2k1QkJ1R0VDUEhnd25hZG5rb001V0NrQk9sUXVJRFhPUUhjaHRfejlJVEFHZF9hdi1XcVNOSXpQUUZwOWhFdXVjU2xsMzRZc0dESFpwZTg1MXo1MU5uRUdLdTVWOW5Rc1Q1RDdGS0pqWFRlMU9zcW9uZnhlelMwZHFZMzA4RTjSAbwBQVVfeXFMUExLX1Bzck9yQ2h6aUlhcEIzOVA1SG1hSXNPTVJoRXgzX21fVjdadW0zNm9Nc2hTZEtfZHVBb3c3NjlKcHFpVVk3SWNxd1Z1ekdqU05DaVZ0R3BrcDVfdGhqa1lkYkJaWTRDQklnN2dLdnVCZ0pkajZKY0tmSC1udGVBdC0yVFpsQmRUUjR1eUhBTEh2dE1xOFd4TXRNd1pZQzljLXZOdmRjTTU2T2VPRkd6VTd4c2UxS2puUng?oc=5) |
+| Uncle of Charlotte stabbing victim speaks out - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNQnpnVVlFUzFGUTU5R0hnMlN1RXc2cFo5cHhPS0doaWtOOEJpS3J5WEtTSEpnU05rbUNiNXVBSUU2T2lsRjFGUmU5Tmh5OGRUWFhnYlBCNFNLNFZoNFZkOEJrUk16X0d4YXhvVlBYUVJRVEM4X3B3MjNaeTVGVVZyS0F4OG10bW02NGRXNmpCaEhoLVpwNHY00gGcAUFVX3lxTE1MamMycHNzaW93c0d2N3ozNDlqWVNNdUUzcG5oaDd5dldmeVFFVDBNSG56a3M4Y2JrdjlFNnQtcWg1NE9HdklGTXd0V2p5N0hNZDVqQVZPdmNnQWtpc1BiWnVTYWp6MFBfNEh5Q1pFWnZOWC1zdF92SjY4WWRnMXYzUjVISWpubzdJNmZZTjVzeUkyVE5xSzMzaVlRQg?oc=5) |
+| Nepal gets first female PM after deadly unrest - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9aUmI2QU1CSFAza2stVlBMbWFrX0pCUEpRRGhCSFhNMk9oN09uVGlXT0NPZFFIamFiQkNyNVljWVNldV9DRmxiVXY2RDVRcFJrM1VjNHlfOG52Z9IBX0FVX3lxTE0wYlh5SEdYU0xEUk5Rcmlucmc4NWJDZ0E5LXdBVVlOaWoySG1KaExNd0xnMEZ2LTQ1bkZ4aDRSN2ZZclM4UjFJUWs0TWtvekk3bEdSRXF3RjBVYlN4VHNn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
