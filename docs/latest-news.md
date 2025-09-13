@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 00:24:02（北京时间）**
+🕒 更新时间：**2025年09月14日 00:36:57（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Trump says he's ready to put 'major sanctions' on Russia if NATO nations do the same - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNTVNRMlJGb19OSG4xUlpfZWU3NmhlNGpvcWdnNy1MRE5PRURpcDNSU2owZU1qakFYVmR2SkNtNm9LSGxaY3BSb1BSNWQyMUZxZ0JTa0tGeHFONGpTUmNLcU5JS0dJVWdKQ2NrODNxVk1QOUNaM3IwMnpQVkd5X2RpeHhLSdIBiAFBVV95cUxOMUloMFVZaExsek44UnI1U1JRcXVlaEFOTTl3TFNIYVVlYUZsRGItNXAyMjN3bXU2aHhpVFFNLUVuNHA1Sjg1bzJ4dFRGTW1YWDJQYXRGd1VnNGFvOVFSRXdDOVRoZHNoV1UwNGs4UmFncmtUWGZScWM2WDVMSlE1LXppTkhHeUVv?oc=5) |
 | New Nato mission to bolster eastern flank after Russia drone incursion - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1xRUh5VWlaVjc5WEJFV0VLaWlja0RfVkQteVBPM2JQcjhac2RvSWRNdTlHUXo0c1VJWkJJMlNKWnlIa3hJZmIxR2FRSkRiT0s5SmNOWjZ0U0x0Z9IBX0FVX3lxTE0ydXRHcXBYdS1sWThabGpLSVZjVzBzU2Q3cFZwVHRRRXhQNEs2cFpleTRVOXJ3YWJBRVV5Zmh6OHdjWVZfY0xLN3pnanFjdDNweEhQYmR1ZThLZzlBbllR?oc=5) |
 | Israel intensifies Gaza City bombardment, forcing families to flee - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9LT2VKd1l2WXBwUTJoSksyYXpRVlpyLVFXTDA4bU9YWW5MZHVfdS0zMkRkdDlLQnZ6YXQ3TU9HUEVFZ2ZhUUJacWxOSmJJNnQ4R0lXWnNBalp6QdIBX0FVX3lxTE9pUDFoOXNRdERXOVhpYlBDWk5YMURFRjg5bEwtbHA0bTFyc0Vva3AwaWxRYnFWS3ZJQktpbjN6cmdUd1JlR3cwZVE2d29ubHVRczBhR3hqWFFGbkl2WHBv?oc=5) |
-| General Assembly endorses New York Declaration on two-State solution between Israel and Palestine - UN News | [阅读全文](https://news.google.com/rss/articles/CBMiV0FVX3lxTE1oaWFtZkRGOXFaYTlIdGpqSXRtaHdWYTZCbmxJXzlkT1JqejhYamhZd3RtUUZ3M1JhdTVFb1pfMEx0dGV3eU5MeFZlNXFOaVdWMTB5VThaZw?oc=5) |
 | Illinois Democrats call for investigation into fatal shooting of Franklin Park man by ICE agent - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOSHN5UVAwMG40WEcwSXpCbWJuYnJ6UlRBQzRERkdOelh2S1VOVTZDcXE1bWtUbHNFXzR3TGJmYk5TM1BmRWU1SEZzM1gxMEpqb2FpNDFLY2pnWF90aHNqLTJ1bGZWbzR4WlUtWVROY01ZbG1KZldJWHBpVEl2bzFlUG9ramFUTVFvOTVib1NCVnk1Zw?oc=5) |
+| Exclusive: "Silly" to worry about SCOTUS overturning tariffs, Lutnick says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE01VDZVSV95ZDI2cTA0YjhINkdvVWVjUEFmdmZJMGNNX1BQUEhrWEIwRkp3emY1c25RWXBwdmJ4SGpxUXFZY0V6X096bjFFMllBYmtldXd6dU5qUUhPcFBBenlQbTRZRnhuQThVWGJFb0M2RUhDTnJ3?oc=5) |
 | Meth burn by FBI smokes out Montana animal shelter - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPYkJGcGhZbDhEZlR2VGt5MHlEMUpzUTRDcEJhbWFfdkFXbTRPR0xOall2YTNjV1M2Nk9GRzdQT0lGbld2REQxUWNTTGgxZVJ3SUcxdFJnWUJNSllZdWtVaUtMRFo0V3V6LU10bWR1dGVFT2xra0NWZkNPRF9TR2NtYlBLYWNneWFzQ1hIVGMwMjRnc1JGMjRtX09YVXhuck1ZTVV1SG1QbkQ3UVZ4UTBv?oc=5) |
 | Families on Obamacare brace for higher health care premiums next year - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOcFl5blZpSXBlb3djNzhUbHB6QWFvQWlGRDhqaDNhYmZidE56Uml5OTR6VkY0ZTJqZURzdG1qdnZlTlhIcGFRSmR0OXRpVko3dUZaRFFreGRUMzNjRmMtWS1veFRwcXByeEN2YkdfU2d2TklNQVd1RnF0MFFzdnpZN0ZuUWcwSFEwSjFtaTJUTXowM0pFRTZhXy1uTDcxT2toUHBTZVVWONIBVkFVX3lxTE1zMUNfTnF1S29fY2tITlFObjZDeTVvYlhRQTRKRk40Y0RHbmwwTVJQcWd5dzB4YlBGQ0tWTDh5OGZHNlEyTjA5TF9QRHNDQThjUDlCQU93?oc=5) |
-| Political violence is on the rise in America. What’s driving it? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOd3NENjJMeDBfRFZ5VVVqMFFVc0d5THJ6TWc4em9nLU1NS19mSE9kUjBrQUhaam01QnYtelhRNGkzeHRFUVc4a05DM1pZZ2xWNTBvTTIybWtQMTZTbVN5ck5ZMUZORUZXUlZqaExzUDJLa3hPbld3OGNZczNpcWpnYnE1NDhCYnlxM0dYT0ZVQ1hhcHJDVHBFeENjWm9WRDR1WjRSdVlXZjdoZw?oc=5) |
-| Curfew is lifted and calm returns to Nepal in wake of mass protests that killed at least 51 people - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxObW9obzVNM01NVzBJbkdwMDFDRWFnamxRRWhOTTVfaXpFb1VBcDY3cUpLemI3ZWVPeTNMZXB3QjhDcHlLVm1Pd1BGaTBmMFpiTm9LYW9nN1dsQlFpZEpvazh4SWlUZmdUVkYxcUZPTGpDeVgzZ1VjRURvSFlLX185MXZTZzdEZTN0VEtleF9wSE1DNDdvUUNaa01sSQ?oc=5) |
+| Over 100,000 protest against immigration, Islam in London - The Jerusalem Post | [阅读全文](https://news.google.com/rss/articles/CBMiX0FVX3lxTFBWUWJGUFBBWklFS2xQaVQzZWY4SFlDSURXbWJ5ckNIZGtrTjR6ZWZrSXRHWU54V1Qzc0xvUzFQWWM2QllraWE0YmY1anJqRlBpb1ZkeGhaLTl1Sk5iYXF3?oc=5) |
+| UNGA votes to back two-state solution for Israel and Palestine - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPWk5ISl9kZ3lzM21ETkFwVUhnR0tidE1HV0VUQTdCWlE0dnFCbjZfOU81VHJUczJJWjQ5eWtQNWRkM3lVbVpQc3lPQTJ2Z3J3VDBsSWxieVUtTWlDVnJFQmxRVEZTNkU5cHNXSjIyOWlxemJQY0tzNjI5dGZndEF0S212LXRSdWczUXR3Q1Jyem44azc4VGhLdExVNVZVRklsMXQ4VWNib2tVWW9Ic2hxR1NTWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
