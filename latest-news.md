@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 01:36:09（北京时间）**
+🕒 更新时间：**2025年09月14日 01:48:46（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Thousands join Tommy Robinson rally, as counter-protesters demonstrate | [阅读全文](https://www.bbc.com/news/articles/cwydezxl0xlo?at_medium=RSS&at_campaign=rss) |
+| More than 100,000 join Tommy Robinson rally, as counter-protesters demonstrate | [阅读全文](https://www.bbc.com/news/articles/cwydezxl0xlo?at_medium=RSS&at_campaign=rss) |
 | With Trump's state visit days away, blame game begins over Mandelson scandal | [阅读全文](https://www.bbc.com/news/articles/cp8j2d5xm78o?at_medium=RSS&at_campaign=rss) |
 | No 10 questioned Mandelson on Epstein links before appointment | [阅读全文](https://www.bbc.com/news/articles/cn82rdmzr20o?at_medium=RSS&at_campaign=rss) |
 | 'I will never let your legacy die' - Charlie Kirk's widow gives tearful address after shooting | [阅读全文](https://www.bbc.com/news/articles/cz9je8lxge4o?at_medium=RSS&at_campaign=rss) |
@@ -30,9 +30,9 @@
 | With Donald Trump's UK state visit days away, Mandelson blame game begins - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE12TXNRWm9PRklxSFFJZXA4LUF6cU5pVDltYkNtaWpaemlGMVM3NmZ2X2ota2pWSllJdGpDSk5BOVZEYW9ieVZwcmJKdENhMk95enBTLVFreXhGZ9IBX0FVX3lxTFB2LUJOQ3B0Sl9CbmwzSVFrYjc0NHpfTEM4RFV4X0NkTGlFTlF0Ql8zT3l1WUNzSUhQNk5vVU5aVm14d0VfY0VSMkxwR05hbWdHdUl2YWI0cnlJT25Kd0NN?oc=5) |
 | Israel intensifies Gaza City bombardment, forcing families to flee - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9LT2VKd1l2WXBwUTJoSksyYXpRVlpyLVFXTDA4bU9YWW5MZHVfdS0zMkRkdDlLQnZ6YXQ3TU9HUEVFZ2ZhUUJacWxOSmJJNnQ4R0lXWnNBalp6QdIBX0FVX3lxTE9pUDFoOXNRdERXOVhpYlBDWk5YMURFRjg5bEwtbHA0bTFyc0Vva3AwaWxRYnFWS3ZJQktpbjN6cmdUd1JlR3cwZVE2d29ubHVRczBhR3hqWFFGbkl2WHBv?oc=5) |
 | ICE agent shoots dead man who tried to drive at agents, officials say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE54T1JCQXlOeDZCZEdZT3RUYkhHbm5ZN0NKQk9tYkdJM0x5M0hxN2hJckFHV05IZ0F1ZUtpRmxxZUNTT05wc2VIMnZmZC1QOEtCNHFNV3hnYXdBd9IBX0FVX3lxTE1BUXNBMTZzMmNqcEZKWFdVUGQ5NU8zeGdUOWpsLVM1cC1Bb2poUGdTZ0c1UWJIcTQwTHBYYkV3MUZoRTVxSVRFeUdNRFp5bElCd2Vqb1lKX1poZVpIUVI4?oc=5) |
+| ‘It’s unacceptable’: Inside growing concerns about Patel’s FBI leadership - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBLWnpyQlM1QXpQOHF1Y1hLcTJicnV3S2w1RG1IdWMxekRscVhBZ0ZXOTlUay1RUnBILUxuVTB5YkJyay01OG9WVlFMSnBQUV9yRzgzZGtjTmctWUJyNHhuSzZWMGp6TE5wRHpocXpwSmMxVV9Wd2NwQjVyWkZ0UVk?oc=5) |
 | Meth burn by FBI smokes out Montana animal shelter - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPYkJGcGhZbDhEZlR2VGt5MHlEMUpzUTRDcEJhbWFfdkFXbTRPR0xOall2YTNjV1M2Nk9GRzdQT0lGbld2REQxUWNTTGgxZVJ3SUcxdFJnWUJNSllZdWtVaUtMRFo0V3V6LU10bWR1dGVFT2xra0NWZkNPRF9TR2NtYlBLYWNneWFzQ1hIVGMwMjRnc1JGMjRtX09YVXhuck1ZTVV1SG1QbkQ3UVZ4UTBv?oc=5) |
 | Families on Obamacare brace for higher health care premiums next year - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOcFl5blZpSXBlb3djNzhUbHB6QWFvQWlGRDhqaDNhYmZidE56Uml5OTR6VkY0ZTJqZURzdG1qdnZlTlhIcGFRSmR0OXRpVko3dUZaRFFreGRUMzNjRmMtWS1veFRwcXByeEN2YkdfU2d2TklNQVd1RnF0MFFzdnpZN0ZuUWcwSFEwSjFtaTJUTXowM0pFRTZhXy1uTDcxT2toUHBTZVVWONIBVkFVX3lxTE1zMUNfTnF1S29fY2tITlFObjZDeTVvYlhRQTRKRk40Y0RHbmwwTVJQcWd5dzB4YlBGQ0tWTDh5OGZHNlEyTjA5TF9QRHNDQThjUDlCQU93?oc=5) |
-| UNGA votes to back two-state solution for Israel and Palestine - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPWk5ISl9kZ3lzM21ETkFwVUhnR0tidE1HV0VUQTdCWlE0dnFCbjZfOU81VHJUczJJWjQ5eWtQNWRkM3lVbVpQc3lPQTJ2Z3J3VDBsSWxieVUtTWlDVnJFQmxRVEZTNkU5cHNXSjIyOWlxemJQY0tzNjI5dGZndEF0S212LXRSdWczUXR3Q1Jyem44azc4VGhLdExVNVZVRklsMXQ4VWNib2tVWW9Ic2hxR1NTWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
