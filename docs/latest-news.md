@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 17:12:56（北京时间）**
+🕒 更新时间：**2025年09月13日 17:25:14（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | 'We owe it to Charlie': Students at university where Kirk was killed vow to continue his debates | [阅读全文](https://www.bbc.com/news/articles/c9dxexl7glvo?at_medium=RSS&at_campaign=rss) |
 | BBC reports from house linked to Charlie Kirk shooting suspect | [阅读全文](https://www.bbc.com/news/videos/cd635wwgz85o?at_medium=RSS&at_campaign=rss) |
 | An unlikely end to a 33-hour hunt for Kirk murder suspect | [阅读全文](https://www.bbc.com/news/articles/c784end1wxvo?at_medium=RSS&at_campaign=rss) |
-| How Kirk went from teenage activist to one of the president's inner circle | [阅读全文](https://www.bbc.com/news/articles/c33r4kjez6no?at_medium=RSS&at_campaign=rss) |
+| Defiant nuns flee care home for their abandoned convent in the Alps | [阅读全文](https://www.bbc.com/news/articles/c5y8r2gk0vyo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
