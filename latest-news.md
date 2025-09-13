@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 02:14:01（北京时间）**
+🕒 更新时间：**2025年09月14日 02:24:32（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Charlie Kirk and the rise of Maga in US politics: ‘He changed the ground game’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQTXJkV0JBUFFqYlppVWR4Q2ZmYlhqZ1cyLS1uTm5xeElJTzJ2bFcwZl9ydVVzX1NrTnYxMjRWekIzSUphN3JlYi0wRjFnLUtBSTYwbjVtLTAtaldVMm1qOU9JSXF2emVYNU1SUjh4OERFWV9LNHhsSUJraUpwU05GVw?oc=5) |
+| Charlie Kirk’s US campus tour will continue despite his death, widow says – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxObzFjeWVLR0xPdVBfOGg2VmZWVlpsb1FWLU0tZUVBd2VaTWhYMmpNZEU4ZGZzUjN1RGhvaXprNzhuLWswOVlYaWRWcnZMeC1lUy11WXBPWTg0dndSRlpWdnlXYzFUUXZUTEt5YmotUzVXNVdxb0hid3l6MFlmZW03QThFOFB5dXNSQmNZOVlxcHc4RHlTYkR2bWptVFJ6SmNPUWxjUml3dXNhcDQ5QnpzSGs0TG5PaU5LOC1pRDhwaFVRQ0hDNXYyMzZNcmZlLUdlT3c?oc=5) |
 | Trump says he's ready to put 'major sanctions' on Russia if NATO nations do the same - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNdjVhU240U0VHTHJOeFZGT0luNGNOQzl1eDlJeDd2ZTY2c0IzNmtJNDBHWmVaekFYb01ULW4waE52VnRYRVFRbk42ekRzd3ZFaEV1LWJHeXBLUEVqaHh6MUdTbndHVm9rTlFZc3czcFVpVExzNEpESU9aVmVRdUl6WFM4VGdBMm5hSUxxYlZIZWk0c0E0dVU2TnV3ZVNkTmZFcjIteTNvc0I3YVRYbVVJYtIBVkFVX3lxTE94aTE1LUx0clgzRWhzTkhwZjgtRjdVMG15MXpsZXBKYmdPMXByQlJfNEhpZUZ1RTUzRHoxOGI2akZVX3UwdWs0a0MwUGVWRk92TXp5Q1FB?oc=5) |
 | Thousands fill London streets for "Unite the Kingdom" rally organized by far-right activist Tommy Robinson - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOOHNEZnJ1bTZ3WFJDRWZfcDA2TF9xOENULXFnVHhNZ3JFcUQtZ0tUZ3JHTGdqc3cxa1VnbnVRZzd4M05LaUNjRTk4cWc2aG1IZTl6RUN0aXA4amZqOF80TTJKVEJGb0EzYlhZZFpiNmYwMkZhbi1PaS1LYlhjbXlCWUh2LVFHT09xSlZLWEFqM1NOdW00UHIwSVVrYUU2a2RNbU5fTFVoMTdoOEXSAbABQVVfeXFMTjJRXzZ2V1FQbFN2aHJ4VWx5azhXSnhOUDBtbk1GRzByV1E4a3ZIQUhkMHQ2UW44VUFYNDI2cU44UldqVGpMY3BDb2VPT1ZOdWRUaFlFRDNiX3g0Tmh6WnQ2cVotQ3pYZU9HaTZiblg0Z19ZUkNCRFZRN3NPTGczX2hCVE9UbTFKQVdFbzlkTGtQMF9Uc2NOc0dkV3pGME5NbkNGbEFYS0RKV2Rpb2hZcGI?oc=5) |
 | Families on Obamacare brace for higher health care premiums next year - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOcFl5blZpSXBlb3djNzhUbHB6QWFvQWlGRDhqaDNhYmZidE56Uml5OTR6VkY0ZTJqZURzdG1qdnZlTlhIcGFRSmR0OXRpVko3dUZaRFFreGRUMzNjRmMtWS1veFRwcXByeEN2YkdfU2d2TklNQVd1RnF0MFFzdnpZN0ZuUWcwSFEwSjFtaTJUTXowM0pFRTZhXy1uTDcxT2toUHBTZVVWONIBVkFVX3lxTE1zMUNfTnF1S29fY2tITlFObjZDeTVvYlhRQTRKRk40Y0RHbmwwTVJQcWd5dzB4YlBGQ0tWTDh5OGZHNlEyTjA5TF9QRHNDQThjUDlCQU93?oc=5) |
