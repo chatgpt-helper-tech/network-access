@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 12:13:06（北京时间）**
+🕒 更新时间：**2025年09月14日 12:24:07（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Trump demands NATO action on Russian oil before any U.S. sanctions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMEZ0WGxYaVZHSWNUdG5ocXRDZHNWTDBsSXhmbXRueWlZSFBPaHZ3NkE2a1ZIRUxZRVcyVUVWclpndHdZcU9fVWNrY2Q3WHJMajU0emxiOFp1RWY0TnFrREJXaGp1MTJhQWk0YjJuQWp5WWl6c3pLMWJIb3c3a0oyblRUb1Jhakk?oc=5) |
 | Memphis mayor says he got confirmation National Guard would be deployed from Trump's TV comments - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPa00wYjhqMWZ0N0VwLWFEVi1XUDZoV3pfaVQ4a2ZxTE5WUTZIRWU4QkM1Z0xYYUdkTERYenFLeklTaURudU9ITUFYSDc5UDJtZ0FhZjVENG1ObVhHWUtqSlVrTmFWd3hkeUJLR1Y2aGd4amVLSGR3eXZsR0lRRkxWdVRaMWhyVnl5dEM1LXBxLWU2dw?oc=5) |
 | Far-right anti-immigration protests in London lead to clashes with police - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPRXYzNlBsYjF5d2tOTU5kRXRzVlk4bmR4M2tCeVE1MkgwV0JaWk40X0VmSjZvNmF5LVpWbVAwWHAwcUdRVWhIcG1UWThYanQ0aWlta0JIWjZHa0hvWk5PR3NlM1RjYmQwQ0Q1UzhsbG55dFNicnBGR2c2cjlLS3pZczdmeEhETHFOUjlxZVdB?oc=5) |
+| What Is A Groyper? Nick Fuentes Says His Followers ‘Framed’ In Charlie Kirk Shooting. - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxOckloU2FyWnJSR1lBUFpKb2VGQVdpYlVtUTU4TG51Q29odjlSd01OTVFsUXBwWFl3Qzc1bFVaVWxBb2NhNlFBNzV0SXpvSWEtS0xfeFY1d3BaWDV1T29acHNFakJPRzcwcXRGM1ppZFEzR1FEZXdJLTcxZTN5cldGRWg3eEZjVUV2ZzNKanZON3djM1hocVE1bVM0QmZNdjhWVEcxTzZGV2FsSzhUemNmN1drZkQzRkVYNXh4Yk1mYjdyYW9VU2loNjR1cW8tUQ?oc=5) |
 | Latino leaders condemn ICE over incidents in Chicago, including driver’s fatal shooting - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQclpna05fT1NjUmVPbk8zbFplM1F3eG1pNG5HRzIyaElzeWtrUW1mZTZkN19EXzdZcEdhcTdXaFM5QXQ2NXNXbzkyd1U2TEc1V3NEYkFVQzROQnQzNGtIR1FRdGZDSzhQcGNfM2dObmt5LUJiZ3RzSUtjUXdjek93NjdmM1F4SlBoc2ZhX0VrdGtVdw?oc=5) |
-| ‘It’s unacceptable’: Inside growing concerns about Patel’s FBI leadership - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBLWnpyQlM1QXpQOHF1Y1hLcTJicnV3S2w1RG1IdWMxekRscVhBZ0ZXOTlUay1RUnBILUxuVTB5YkJyay01OG9WVlFMSnBQUV9yRzgzZGtjTmctWUJyNHhuSzZWMGp6TE5wRHpocXpwSmMxVV9Wd2NwQjVyWkZ0UVk?oc=5) |
 | NPR and PBS Must Transform After Trump’s Cuts Cripple Broadcasters - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOQzVzUUVjR19PMEthd3pFWTBlMnJEVHhkLWtGUnFDckZlY2JQQW5pd2R5eWx6ZUJhY0txV2Z3OEVZODhVMFpzRTBUWlhlVVZOQW56UVlOWHUwWUNaWllMemlNTldDcEM3UjB4UzM5WHZmMU1NTERvenJ6djczUS0xOVFn?oc=5) |
 | US official says personnel from Navy ship inspected Venezuelan fishing boat for drugs - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOcFBfWVpFUHVZZEh5WG91ZmRvenV3TzRVZEEzQkdMZURGRS1SR0dQNEJNaDhVX2dWbmE1YUpYejgzNGRicVBkQURKQnh5N3JyUzdpcktCT0NaUkNNWk5lYWcwQVVwdEdoc194YU9NN1NQNGxUQWtBTkwwWms4a3ZONnhMSzZuRUlodGdHZ3BLNTBucWwtOUNRX1JmVEJwVUZ0YkZ5V1Y4V3hlZ2t2TGgzeHdvOTVLcTjSAbwBQVVfeXFMTkRLc2duZGh2enBoN0pWeGtVMHZ3elIwcmpERkM3NXZzREwyS3c5VDUyRmdwZmFfXzlfaE9WQVJSbkRlak04V0c1Y2RCcWZxTkpta05sY1ItYkJocnA2NzNTSXhGRURrX2J6Um1KMjZLRWVLWmxXLS1oQUpLaGxYcjllOE5MeXFicXJEZ0RRaW5aNldwbG9BOFYxZUJ4alFhMmJfdGhZWXVEUkQ5bXIzN1RrYmZDc2JPWjMtYWE?oc=5) |
 
