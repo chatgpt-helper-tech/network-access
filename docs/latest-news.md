@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 11:48:08（北京时间）**
+🕒 更新时间：**2025年09月14日 12:00:38（北京时间）**
 
 ---
 
@@ -9,12 +9,12 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | 'We knew the family': Utah town in disbelief after neighbour accused of killing Charlie Kirk | [阅读全文](https://www.bbc.com/news/articles/czew1nz17rro?at_medium=RSS&at_campaign=rss) |
+| Charlie Kirk memorial service set to take place in Arizona stadium | [阅读全文](https://www.bbc.com/news/articles/ce86gmnx034o?at_medium=RSS&at_campaign=rss) |
 | Dozens of officers injured as up to 150,000 join Tommy Robinson rally | [阅读全文](https://www.bbc.com/news/articles/cwydezxl0xlo?at_medium=RSS&at_campaign=rss) |
 | Unlimited contactless cards may lead to spending without thinking | [阅读全文](https://www.bbc.com/news/articles/cevzepl3vz1o?at_medium=RSS&at_campaign=rss) |
 | First sick children have left Gaza for UK - Cooper | [阅读全文](https://www.bbc.com/news/articles/cr4qn6gxekxo?at_medium=RSS&at_campaign=rss) |
 | No 10 questioned Mandelson on Epstein links before appointment | [阅读全文](https://www.bbc.com/news/articles/cn82rdmzr20o?at_medium=RSS&at_campaign=rss) |
 | Queen give the BBC Proms a Rhapsodic send-off | [阅读全文](https://www.bbc.com/news/articles/cwyn7lq1q1ro?at_medium=RSS&at_campaign=rss) |
-| Trump 'ready' to sanction Russia if Nato nations stop buying its oil | [阅读全文](https://www.bbc.com/news/articles/c62zxp1y5lwo?at_medium=RSS&at_campaign=rss) |
 | What to expect from the Emmys and how to watch the ceremony | [阅读全文](https://www.bbc.com/news/articles/c1mxlm42l9vo?at_medium=RSS&at_campaign=rss) |
 | After fatal crash, Sikh truck drivers in the US fear blowback | [阅读全文](https://www.bbc.com/news/articles/cy4rmymrl2ro?at_medium=RSS&at_campaign=rss) |
 | How a WhatsApp chat brought down a multi-million pound drugs empire | [阅读全文](https://www.bbc.com/news/articles/ckg4ej4l225o?at_medium=RSS&at_campaign=rss) |
