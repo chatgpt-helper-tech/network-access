@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 13:37:05（北京时间）**
+🕒 更新时间：**2025年09月14日 13:49:03（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | 'We knew the family': Utah town in disbelief after local resident accused of killing Charlie Kirk | [阅读全文](https://www.bbc.com/news/articles/czew1nz17rro?at_medium=RSS&at_campaign=rss) |
 | Charlie Kirk memorial service set to take place in Arizona stadium | [阅读全文](https://www.bbc.com/news/articles/ce86gmnx034o?at_medium=RSS&at_campaign=rss) |
 | Dozens of officers injured as up to 150,000 join Tommy Robinson rally | [阅读全文](https://www.bbc.com/news/articles/cwydezxl0xlo?at_medium=RSS&at_campaign=rss) |
-| Trump loves all things royal. Will that be King's ace card on UK visit? | [阅读全文](https://www.bbc.com/news/articles/cq5jgdvnll4o?at_medium=RSS&at_campaign=rss) |
+| Trump loves all things royal. Will that be King's ace card on UK state visit? | [阅读全文](https://www.bbc.com/news/articles/cq5jgdvnll4o?at_medium=RSS&at_campaign=rss) |
 | Unlimited contactless cards may lead to spending without thinking | [阅读全文](https://www.bbc.com/news/articles/cevzepl3vz1o?at_medium=RSS&at_campaign=rss) |
 | First sick children have left Gaza for UK - Cooper | [阅读全文](https://www.bbc.com/news/articles/cr4qn6gxekxo?at_medium=RSS&at_campaign=rss) |
 | No 10 questioned Mandelson on Epstein links before appointment | [阅读全文](https://www.bbc.com/news/articles/cn82rdmzr20o?at_medium=RSS&at_campaign=rss) |
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | White House requests $58 million to increase security for executive, judicial branches after Charlie Kirk shooting, sources say - cbsnews.com | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxQb2tYTVhlNnFHdUJqV1luVkVnNzBMRDJ5T1hQMlpZdWJMM2p6ZE0wcEp2OFlqTVNUQmRTWHlFUlh4OGZIVUgxa0lfMU1sQlRqbV9xeTNQRHNOSWNadnpIbGt4amlleTJwcXJqNzN4UmNNamlBVWFfdGR6NFdQT2JpWkxUbTVjOTFNRWtrcnBqaDZXQWNKcDlheFc0Tm9RMUt0TVdja0p3dkpUN0FpdW1KbFJRcWEwXzB3a0l6NVJZVENOYUYxYXYybVpub1BjT2tVVnBIYUtjQzUtVUk2Mnpz0gHkAUFVX3lxTE9scWV2T1MwbUgwTlEtT2VwRFdMZkNTc2NXendLMzFTZkNuckhlU1dXVkFkWjJlVVdzZjZOR05Dc2d3a0FNMWQ5TzlwX0g5WVVubEk3eTZiQW9sLWN0VXNjQWZNSDd1bzN1OG0tV3lSZ0hZTExwUWg4WXhRY05HMGJub04zMlJVeXNyMUtUaU9EVUJYVU9OaWs2Q2t0WGNJSXRRcVBjY0kyR2ZaaFhZZVpaN0xBc1d5dFdBRnhDN0NHMmVxcnZfaWpxc1k2WmpIcFBuTHlNLW1SRGJrVWpGSzA2cmY5YQ?oc=5) |
+| Sources: Kirk suspect's transgender roommate "aghast," may be key to motive - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFBfZVpRTGlWekZTNzA5RHJjRXBsMy1GbmRkd2JVcktDenROTGlNaEFtRWU3MXdhVWtaMll4ajI0ajlyUjBWVFl5VmN5OVUwSkxXalhEdUJtRGJsbVBOMkhxQmJvN1RrNm5yVjkzRDN1czMxaklS?oc=5) |
 | People are getting fired for allegedly celebrating Charlie Kirk’s murder. It looks like a coordinated effort - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5WaFRBZDVoYTFHWDI3MVRickZWVHFCeFRBVjNrczlHU3cybWVpbkFoclFETDU0djl2eEJSSXNPazVobEZ2YkFfbUY0XzdDQUJwdnBBbVgwYmp5b3hhbjVuQVJqZm4xZ2lDYWozbV9lMnBSNVZCS1lrYVJHU1lqUQ?oc=5) |
-| Rubio Heads to a Defiant Israel After Qatar Strike - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9WRXNCSVJoRFRscHBoLUpJamlYeThBbWhjMFFFWHVZLVdwOGR1ay1uRk9VSWJ1T2pSY2syalkyWklvaC12YmwxODc4ZDRaTGM2NGpWMkxOSTV1M2VNT2lIQU9ZZ2dDbWNYSnNYZHFxQ0FMeUJaWkMtRi01cHpRY2c?oc=5) |
 | Trump demands NATO action on Russian oil before any U.S. sanctions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMEZ0WGxYaVZHSWNUdG5ocXRDZHNWTDBsSXhmbXRueWlZSFBPaHZ3NkE2a1ZIRUxZRVcyVUVWclpndHdZcU9fVWNrY2Q3WHJMajU0emxiOFp1RWY0TnFrREJXaGp1MTJhQWk0YjJuQWp5WWl6c3pLMWJIb3c3a0oyblRUb1Jhakk?oc=5) |
 | Romania reports Russian drone in its airspace as Poland scrambles jets again - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNZGlUbTlaRjdaVmpYQVhTQmFCV2ZCdGkxWnE2Tm5XV2VMdGQ4d1BvOHZBUElYdTRqYjhNZzlaeERielpxeDFBa0M4bEh2RzVmaS05XzVmeHpmQUhYazRlWldkYUQ2ZjJLN2ZhdFNFc1U3UUx2S3UxZTFIVnVmaHd5REtqSmRKbEFwOE1VcnFSeXZPS2txUGRnZjRCeWVRMXphU2Qzbm05M1RMeGlITFVISmFLel9zdG1iVHpFWjJuSQ?oc=5) |
 | Undocumented father killed by ICE agent in Franklin Park shooting had no criminal background, lawyer says - cbsnews.com | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPWVdCck1LOUxnV1YxdkpOOFAwTTUtQWV1dFpNVldFNkFKU1RFZ0VmaGZUWVF1T00zek02dXFGbU5GU3o4X3NCWC1Udl9vaUJSZWdaNy1nSGYtYWVoYmpFdDZwRGdfLWJOY1g5OHVoTUxEVmF6N2toR1VsWEhUdDhSUTRCZnEwSDluT05neGZ6a19fQVR0eXpVQnNfUXhCQQ?oc=5) |
