@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月15日 09:49:21（北京时间）**
+🕒 更新时间：**2025年09月15日 10:01:22（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Date set for Charlie Kirk's memorial as details emerge from investigation into alleged killer - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNeEFfRWltVnFYUm8teUh0akdkQUFqTzd5ekRSbDViNFRLLWl0djFGSlRzN1A2aHphX29rTWNLUzBwY3dUTExuMWhaZVFPSkF1SDM4TVM5VEltWlZ4QmtiajJHR0RGb0hpY3JXVURnUXhGUzZPem5uZ2t6RDNmYkk0QW1HbVFNd9IBiwFBVV95cUxOazdJbFJ1N2F4RFdpS1FGTE9GTi02LS1RWE12T3BPak14SlE4T0V0Z21rSEh1MUZ2ZTdmNW9GcTY5X3ZkU1pESUk4Z3dLaDhPdVdlcjI3NHV5bTlTcE9mdGhzNlBUVFVnOU1wSmxaX2xHaGJTWTFlSEQ1bFFWMC1GMWthTDVWQ1pDX1dZ?oc=5) |
+| What to know about the aftermath of Charlie Kirk’s assassination - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPX2pNZ1haSmhPNUpzLW9BYUZ5UWZpZlRwWHF1eW90M2txMmozSnhiT0x3dnJZZnlXN3JQVnJrZTRINlNUcWdMOS02RWFIcnNWaDhreVhleEJock9DaW90NnBwUmE5elNFMGF5YnBSandSamRjQ1lZN1FVbXZBZTE1MHpPY2xVR0dERGJMeFRXSXNNeTBVN0otMS1DLTBFTjNwNG9OR3NvRQ?oc=5) |
 | Kirk Shooting Suspect Held ‘Leftist Ideology,’ Utah Governor Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPeHFnZEtwLXN5TEpRWUE3V0t4dzFGcElnMUhtenFNTlcyNzIwSVpUcU1DVE1UZnVfNmhsU0luVmFWcndaSlVDem5NTHpLMkVNejhobXFNbHF6RUs0cmVDME1CU2g0N0d1cUtpZ19VUndCRmhBLUtQLUJNOGhXT2RIQ0pQbHg4OV96?oc=5) |
 | Trump adopts messenger-in-chief role after Charlie Kirk's death - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZVBESERoRGd0VDJxX29zUzNDVWdKTWRFOVc5bnVYeEE5VXJIZHZucWZHZVdJcThzTFVMaDFmN282b2o4aHNtUGJBbHg1RE9YaGwtUWxveGs2TERvXzc0WVJVR2F2MkVOejQzdkk2VHdNOTJkRXlXQ1ljT1dETWtSTWQ2bE14dWw5d1ZxVlBLRkRRN09GNnAtQWRRNE90M3BndG82ci1aeUFMZnM?oc=5) |
 | Rubio visits Israel in wake of Qatar attack as Israeli strikes intensify in northern Gaza - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPb3RnYmtveUk4cjhmSHA0T2xBM0lJeXdvbFBzMWtPeVdOMUx6eEFzR05DcVg3OVkwVVZNM05VQjgtNHRqbWo1dEpnWGxRRXlJeEVtZWQtTWd6OEtNMm91MGRGLUQweFFlOUZKaDJTSHdkcURCcG9nY2M5dDVBdGNQaUMzS3R6NGZRdVBpOGJ3MTRzWGdhYzcyQlh6MktqXy01YkdKdmM5THd1Q2V2QXlPVVJsWGpvdFV4UkVLUl9XZlFoQdIBxwFBVV95cUxPMkZlOVJROWxBQ0hfS1Z0WVEySGkybWM3ZVNpd3pmM05NZHM2SmN1Q19aVkRGd1FKTi1zVUFBbjMzTXlHdWFlMmpVbm5QRk1TcFNBbjlfd3gyUnpCNUI5T3FtcTBFUFVNUjl1MW1lX2UxajU0eExPS1VhNWlUcVFvbEhHWGVTN05RV0hPdWdLOVN2YjNfWTV3QVVDalJqdk9lTWkxLWQ2M1FadGN2NnpPOVpUQjU3NW16bWpYYmFqS015LWlPNjhj?oc=5) |
