@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 02:12:11（北京时间）**
+🕒 更新时间：**2025年09月16日 02:24:35（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Workers fired, placed on leave for Charlie Kirk comments after assassination - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBpd19GNnpsdm81aDFSWXNqeEtENHpIT2hDSC1pWFNDS0NoSGpwV1JaYzhZSU9yRHpCLS1DQmNfM1VrVEYxNWNLM2ZXRnVjdkpidnRVenRicmctN0Zqai1iRE5hRzhrS3BjOXg1c1BtZlV3WDl6UGfSAXtBVV95cUxNb0ZQdW95RWFaeTlaLTVxTi1yZnlkVlZNQWFzbVc4TVptNTVzX3hWWlduU2Y5dG1KeWZLdTlLNmxBa0htOGxXM2EwLVlrdGtXQzVYSjZlbTZZT0VXc0s2T295RE1NM3lQT184SUJtZnY5d1VHYjk0V21qeHc?oc=5) |
 | Trump vows tough action after beheading of Indian motel manager in Dallas - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1rc2xDRUVyTnFBMjNITmUyZnY0WlNBbDJjMDdqNGs5eUlUOXphQUJqWjNKYjVQZVI4NUdaYkQyQTZUc05xbkhMSTZabXZwTWQ4UXg3d2h3REp4QdIBX0FVX3lxTFBlQVFzQkdxWTlvUTU2VFhscGFoZVR3MUJyT2tGSWRwdnZ2VVJHdmk2TThlUHdtYi02OElFQU9WYl9IVkNGckdDOW5qTzZIS0VIY2l1OTh0Q1N6OFpUR3ZV?oc=5) |
 | Trump aide Stephen Miller vows to ‘destroy’ what he claims is ‘domestic terror movement’ after Charlie Kirk killing – live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxPZnBNQkdwYS1VcFMwNlhQdkx3OUZjQi1JY1paMjBfOTdxM1k5Z19RaW9QeHgyM2F0UnRPSTMxQU80OTN1dUVGWVR5Y3cyTGgwM1pUY0ZycldrZjZ5eVotRzJCM2tmOG8tTk0zVUt3LUNBY0MzczJiWU9saVdmc0xLa0drUU9aSkxGZnJXUDVvWmh3YUZMRHNNbkxHeTY1dE5rdjJyWVEwbm5QU1M2dExHZkh3YXRYeEFNNXlkbllUZHY4SEx4aVNMS1JzcmVyMkRXQk5KLUlLdlp6Zw?oc=5) |
-| Washington Post columnist says she was fired over her posts about Charlie Kirk and political violence - CNN | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxObGJJOXJRaVdXOUN0NnNPcS1zN3dlZUJDNHRwMFpZeFhtaV82WUtNb3ZOSnpiZVl3MGx1b2FLZkwxa0M0dmJPb190U2pUd2JTaFhLM3FuM01KZnpkZ2RqUDBZZjNpckVtWWVnN0JzdWVKMm56elJmV1lDUldoSGs4Y1JFR0Jfc0hncWtEdHFxTG9mWnZOMWdWWGFMRm9UZw?oc=5) |
 | New York Gov. Hochul formally endorses Zohran Mamdani for NYC mayor - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOWjBJZ2dCY09YY3dHeHFGRXdlQVFYSV9NX3BPSTdFRUlfZ3d6ZUJpcjZnYTZqNTJZZHMyU3pCQ3dHRnY5X3dRQ3ZOSGtPRTZTbERESS1oUnhYbXpQcDE5R2g5cDB5YzJQWkM3Z2RWU0R0NjJEY0FIRGV1azM0ZkZuM2l4bjJmNktlUzFjaG1TVW9oR0drMTIyalVZaEwwMHhzZ28tN3Rn0gGrAUFVX3lxTFA2YmdtTThiUGZ6VnRDOU5iZUZoTTYzUmhseDlfR1ZZajN5RElnT21pY3RmSm50TU9ER2gtbXc3S2tWUWFDblVTQ0lid0VySDhtNWo0YVFia1JvOGtUcm81UWY1Tm1QV1BQaS05dTBDUHJtdDNhTnFnQkcyNkdjekRScXBvd3lubzdIQk9MYkpRclJhQzVfcFFWMXJXU3dvd2lfbGtWUzUyZDN0Zw?oc=5) |
 | Charlie Kirk was more than a conservative activist - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZVZpSHYyVGxmSHIwbWxlaDU3NnBXQjVPelRKUnVxWWVpZjVxT3dMN1BSSEQwbHo1ZGttc3UyeHExN0xDdjlpV01GbWI2bmNsVlRvNnFNaUFGemRFbWFmUjZFNk5sb0hJV3JIaXNLa1dWdDRGcWU5bG9sNFJvZ0RnSVB5OGo0Z2dYS1pRQUVYMW1jbldpVFRTeGpLRF85RnBVajFKSGpjaHZuYzg?oc=5) |
+| Rubio, in Israel, Says a Diplomatic Solution to Gaza War May Not be Possible - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQM1BucmV6ejZDajlmcXRlUGlQeDJZYzlOQnpzbHhUYUpsbHd0YXV2VF9BdmNsWjkyb2c2SlNaTU95ekhmOFFsaG5PVFE4UjBvMTd2eHdOZXhVb3I3RkxJMUozbWZsSHdhZ2c0WnJnLWJjNEVKQk1oOVNkQ2tYRHJZb3VOS0FZOURYNG9ZekVR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
