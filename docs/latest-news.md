@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月15日 08:24:38（北京时间）**
+🕒 更新时间：**2025年09月15日 08:37:08（北京时间）**
 
 ---
 
@@ -16,23 +16,23 @@
 | Boss of degrading sex-trade ring in Dubai's glamour districts unmasked by BBC | [阅读全文](https://www.bbc.com/news/articles/cx2r9y3kxy9o?at_medium=RSS&at_campaign=rss) |
 | 'My wife died giving birth after Trump cut funding to our clinic' | [阅读全文](https://www.bbc.com/news/articles/ckgqdneev1no?at_medium=RSS&at_campaign=rss) |
 | Children and teenagers share impact of pandemic in new report | [阅读全文](https://www.bbc.com/news/articles/cx2jll1wx4ko?at_medium=RSS&at_campaign=rss) |
-| Phillipson urges Labour to remain united as she launches deputy leadership bid | [阅读全文](https://www.bbc.com/news/articles/c87yply5zdxo?at_medium=RSS&at_campaign=rss) |
-| Final stage of Spanish cycling race abandoned after pro-Palestine protests | [阅读全文](https://www.bbc.com/sport/cycling/articles/crl5dele2wro?at_medium=RSS&at_campaign=rss) |
+| UK and US unveil nuclear energy deal promising thousands of jobs | [阅读全文](https://www.bbc.com/news/articles/ckgzevzwxwro?at_medium=RSS&at_campaign=rss) |
+| 'Killer' child car seats still on sale 10 years on | [阅读全文](https://www.bbc.com/news/articles/c8643d1p85zo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Date set for Charlie Kirk's memorial as details emerge from investigation into alleged killer - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNeEFfRWltVnFYUm8teUh0akdkQUFqTzd5ekRSbDViNFRLLWl0djFGSlRzN1A2aHphX29rTWNLUzBwY3dUTExuMWhaZVFPSkF1SDM4TVM5VEltWlZ4QmtiajJHR0RGb0hpY3JXVURnUXhGUzZPem5uZ2t6RDNmYkk0QW1HbVFNd9IBiwFBVV95cUxOazdJbFJ1N2F4RFdpS1FGTE9GTi02LS1RWE12T3BPak14SlE4T0V0Z21rSEh1MUZ2ZTdmNW9GcTY5X3ZkU1pESUk4Z3dLaDhPdVdlcjI3NHV5bTlTcE9mdGhzNlBUVFVnOU1wSmxaX2xHaGJTWTFlSEQ1bFFWMC1GMWthTDVWQ1pDX1dZ?oc=5) |
-| Kirk shooting suspect had ‘leftist ideology’ but motive unclear, Utah gov. says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQSVN6SC00UTQ2elFWQndCTDE4SkxiRDJQejA3LVpXTnphNXMza2NxOWtZa244NlM0ZVpjUTIxUlpCaUhHdFR0T3pmVWJnak5QeEpTMWhxSFpPbFltaGcyZFlPdk51NkFBYkhxX1pLTGk3S1lhZjNKeENGSHN3U2JoOXZNZFY3UWFKNm9hcQ?oc=5) |
-| In an Era of Deep Polarization, Unity Is Not Trump’s Mission - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQR3lWWFA5cE0xMU5qRG1tZTRCVmo1X05XbUNJWHRlRVY0YWJOZWxnWmFkeGY4ZEh4WkVNcEJwRGxrU1JWaFNJV0ZuVU1vYUZfMGtVeHZEMFB1MUp6dHhPVV9FWnl1X0l5aVFHcXpUUWV2ZnNUMmNkZWxjQXIzdW1TUkhvZndtUnlm?oc=5) |
+| Kirk Shooting Suspect Held ‘Leftist Ideology,’ Utah Governor Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPeHFnZEtwLXN5TEpRWUE3V0t4dzFGcElnMUhtenFNTlcyNzIwSVpUcU1DVE1UZnVfNmhsU0luVmFWcndaSlVDem5NTHpLMkVNejhobXFNbHF6RUs0cmVDME1CU2g0N0d1cUtpZ19VUndCRmhBLUtQLUJNOGhXT2RIQ0pQbHg4OV96?oc=5) |
+| Trump adopts messenger-in-chief role after Charlie Kirk's death - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZVBESERoRGd0VDJxX29zUzNDVWdKTWRFOVc5bnVYeEE5VXJIZHZucWZHZVdJcThzTFVMaDFmN282b2o4aHNtUGJBbHg1RE9YaGwtUWxveGs2TERvXzc0WVJVR2F2MkVOejQzdkk2VHdNOTJkRXlXQ1ljT1dETWtSTWQ2bE14dWw5d1ZxVlBLRkRRN09GNnAtQWRRNE90M3BndG82ci1aeUFMZnM?oc=5) |
 | Airlines suspend workers for posts about shooting of Charlie Kirk - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE1mSWtqeGtwQTNRWmNqLXVfZE1yR2FCWUN0cDBhZW5NWWpwcEdzSUxteU9UOVZ1RUZuYlZyNk5jU3JiUG90QXE3UDhsMXVmaHlzNDBqYjVwYjQ2X2syeUhMZmUxYVNZUUhGT1E?oc=5) |
 | Governor Cox: 'Social media is a cancer' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNS25wRHFIRTNaSWNSb0J5Q3l1TTdabk9NN0trZzhkazB6TE9UUTVsM3NVZHJLai04MmduenE4c2pBNGt1NWlJQTVmUHZNU0pvajY0azY2ZFJ5R3JNbVI1eWJ2OGxNdFJBQ011SHlhYVZwUEdxN3hyMGhtU29DOWtBQmdwbVBiYnRwRHRaaGF4bnQ?oc=5) |
-| RFK Jr.'s MAHA report on children's health leaves something out: nicotine - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQa25Sc1NiUXZqNkd1MjlqcTFCVTVvYTY4aTUxaXRxX1Fkc0VfN3Z2NjVPaFVMUmlOdTE5Q1FUS0lFWFQ5OHdqSDZKaE12Q19Wb3JWS3gzbTNnLWdJNmNFTl95dHpkSzl4RHB3NGtQSW00QXNzZVFZRUJVWU52UzZMSWJKV1VORkM1UmdhdVg5VzNkbUdrbDZCeDczZmNscWs?oc=5) |
-| Fear over RFK Jr. vaccine panel’s looming decisions on childhood shots - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQdlZXOXpSNktNcXU1cnhDNURmeFBHaElwRF8tWWhaS3ZXOXNIOC12LUJrRy0xazRaTTN4UDNZY2tueW5sd3BZMnluNW0wb1NiWjBkNk1Ybm5LNU5kbkl2b0wySUVIYkxHNS1IOHVMVTVldEh5Y3N2cENSRF9HcnJFUEpRMWNyTjFUb0k4dzI5M09BOHZRSGxKQXlKQnBoSDA5c3drMDdVYTZYOUs4NGRteGl6UjNBVHJH?oc=5) |
-| Iowa official defies governor’s order to fly flags at half-staff for Charlie Kirk - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQOUUybERqNGJpWHI3MmJnT3pjaE0zR05seFZpTFR6d29iek11QUNudWk0c1J0TTRoREo1ZXYyRWZ0T3ZBdmNQMFpEVnBmRTJ3TmV5OW1jeXF0TTgwREFSTGRZR0h1NURIRk1zTlFvLXFSVnhuMklmeldMV0NCSWRwV05iTjJOTFVIQ2M2anEzTXJWQndhUDV2b09FdHJzUQ?oc=5) |
-| Transcript: House Speaker Mike Johnson on "Face the Nation with Margaret Brennan," Sept. 14, 2025 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQT3FNNllQRE9YYjBDWkVHV0xZdDBvMFRuQ1duT1NHczhWUWxTMERZQ0FZdzJlNGxjbEdhUmNUZnlKcFJ1NURzNHpyUWpMX3NpTFRZWEtaWWtOV3ZVU1I1ZFZoZUpvTlJqVG5qaDdtRDdmU2lobnFaaGNtMV9QelppNGNmaGw3cnZpdlk5ZERxdlhoQ2pWbU1CUFhR0gGfAUFVX3lxTE16cktSX3o1b2FIaDBBdVY1ZzdKV1RTWjdzaHk5WWtqeHdNcUVUZndBYXJDX2ZmbXlYQkIwMk40UUJLTkl1dXlXU0pCaEs5X0JzcjBTY0hmQ3ZqR29MdEw2d0xHYWZMUEx5ZDVlalJNaWdsUGVPUVVSemZjSkduRzJLVnRaa3gwc3pxSDhjUmNnRHgxME9rMU45bjJvMUR0NA?oc=5) |
+| Hochul Endorses Mamdani for Mayor of New York - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOWVpvQnFMMkJYSXptZlE1ZWJzSFJubjVnYy1DRFh2VDhLVjl5X2k3RFlvUlFJcHUxTzFqYmZHQ0tZdEIyTm9FR0VZVFI2ZkwtQ3p6Z2g4bW5aV1djZ0NNRS1odW9nbzNfMXF2dEM1eW1kSUY2VW80d0FyQURBQ3FlVHlmVU9QdmhQ?oc=5) |
 | Blame game after acts of political violence can lead to further attacks, experts warn - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPVC0wVVh5OTBqV0NKZ2VadlE1QUp3bDJMWU1acDJGVFdVS1F0T0NvUGk4Y0psRjVBNTZlRWFiUmNER1hJRC0tbEktc2hUbnhjNVdUbEdWQW5IQWJUSi04Z3hKS2RSQzVxLUZkbUhRdDZvZEFZdDM4V1pGbXlTUXhZNDRPdU9NcU9xMlNMRHRENllZdmN0eWxoWE83WWMxeUluMUJMWHhYc01YQQ?oc=5) |
+| Fear over RFK Jr. vaccine panel’s looming decisions on childhood shots - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQdlZXOXpSNktNcXU1cnhDNURmeFBHaElwRF8tWWhaS3ZXOXNIOC12LUJrRy0xazRaTTN4UDNZY2tueW5sd3BZMnluNW0wb1NiWjBkNk1Ybm5LNU5kbkl2b0wySUVIYkxHNS1IOHVMVTVldEh5Y3N2cENSRF9HcnJFUEpRMWNyTjFUb0k4dzI5M09BOHZRSGxKQXlKQnBoSDA5c3drMDdVYTZYOUs4NGRteGl6UjNBVHJH?oc=5) |
+| Transcript: House Speaker Mike Johnson on "Face the Nation with Margaret Brennan," Sept. 14, 2025 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQT3FNNllQRE9YYjBDWkVHV0xZdDBvMFRuQ1duT1NHczhWUWxTMERZQ0FZdzJlNGxjbEdhUmNUZnlKcFJ1NURzNHpyUWpMX3NpTFRZWEtaWWtOV3ZVU1I1ZFZoZUpvTlJqVG5qaDdtRDdmU2lobnFaaGNtMV9QelppNGNmaGw3cnZpdlk5ZERxdlhoQ2pWbU1CUFhR0gGfAUFVX3lxTE16cktSX3o1b2FIaDBBdVY1ZzdKV1RTWjdzaHk5WWtqeHdNcUVUZndBYXJDX2ZmbXlYQkIwMk40UUJLTkl1dXlXU0pCaEs5X0JzcjBTY0hmQ3ZqR29MdEw2d0xHYWZMUEx5ZDVlalJNaWdsUGVPUVVSemZjSkduRzJLVnRaa3gwc3pxSDhjUmNnRHgxME9rMU45bjJvMUR0NA?oc=5) |
+| Iowa official defies governor’s order to fly flags at half-staff for Charlie Kirk - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQOUUybERqNGJpWHI3MmJnT3pjaE0zR05seFZpTFR6d29iek11QUNudWk0c1J0TTRoREo1ZXYyRWZ0T3ZBdmNQMFpEVnBmRTJ3TmV5OW1jeXF0TTgwREFSTGRZR0h1NURIRk1zTlFvLXFSVnhuMklmeldMV0NCSWRwV05iTjJOTFVIQ2M2anEzTXJWQndhUDV2b09FdHJzUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
