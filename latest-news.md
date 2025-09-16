@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 02:25:59（北京时间）**
+🕒 更新时间：**2025年09月17日 02:36:24（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Watch Live: FBI Director Kash Patel testifies at Senate hearing in aftermath of Charlie Kirk assassination - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQZTVwaDVqZUhRdElsTVdVcEdnZGNFbC1TdXcwR0plZnhPelBDN2dSS2Rjb3BKT1R3V2RGRWQ3cWNqb3NsXzMwLWNuUkx6TnNad2JNNzI0NWxBUnNnS3pxU0tmQ3ZxNnp5c3NaQVhqdW1kUjQwZEI5NTNvaEV4MUNTMVlvaUtPUVFUdnVhWTl4U19rNzFKMVdjNFBzcUpqbjNuN25aLdIBqgFBVV95cUxPVlRyVWJYNDRudUxzcEZPcl8xR29Gb3Z2M21GTzJsSGtIUmtmREh2eWhjd280WTdmVTBaR0UtX2hjS1ptVlFLd3Z1Q1h0T1dPeVBVYTBKaEpmMjFRMFhRQ25icm0zNUFTR2dvSTk0eXZpNWlYamRqQlBrSF92cEd3NEhscHU2WFBNY19jNDNVTllHQjJLSGV4LXlCdlNYNEp6MlJlaVZlemxWUQ?oc=5) |
+| Kash Patel, FBI director, facing questions on Charlie Kirk investigation at Congress - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1yMFVHNlN0UHkwZmhocWFhVU5hMlQ1X01GQ1d4Z2JTUkNZcUt4TFF0X3czbklGdW4xUk45dm9rOTlaUnBmaHduM21feG1DVjJCMDVGNQ?oc=5) |
 | Man arrested for allegedly faking confession to Charlie Kirk’s killing - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxORWlwdHR6NVBNYUE4TzFJUV9CWkVZNEpDWWZxelN3cDNnVE9GQ3FhT2VNRTd6SGh3SkV0Y3pQNUozWWNyLTIyZ2ktWWNITE03cFVILUs0VzhRVG10eGtHU0ZnU3NPdWpMbkp1T0NsTkoxUUdVeXlRaVViOEVubWxiMDIxeGF0Z0FFaW5xLXByYw?oc=5) |
 | Israeli military begins ground invasion of Gaza City - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQWGdoSG04NEsxTHFITlZiZDVOWE1iZlo5X0FLUE9vb2NfMkFhOWlLYm12aGpsYlZhQkRILUcwN1o4QkVjZHk3Tkp0QjJ6SmlFTFJjRDNxWFl5N3dYRzgwcFFTaFpSOHR5T19GSzRRa0VJcFVTQkNsbV9TTVd4Y1J0MHV2WWRUeFAt?oc=5) |
 | Trump sues ‘degenerate’ New York Times for $15B - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOWTF1cjFibVFWeDBmd25uYUJrc3BXMVJUUGhsR0xFNDJjeVJtQnNoS0lVZVpReThqVXhDY2loMzd5aE91VEhua25xXy1Td05VTHpSREdScXh0NWdCbFZ4eDVkWE1GaE5SdFRZWm1fenZ3cDJMamtHOHU5ZkE3SnZIekZOc2hBMTF5YnhWcnpNbjVrN1pYRVNZV1BiX0J2a1k5QXpn?oc=5) |
+| Luigi Mangione: Judge tosses 2 state murder charges related to act of terrorism - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPd0dUVDU3ZkZ1YkdFMDY3am4tUEQ4UDZ5RHBvQUtKQ0F1YW1RV2xJSzBNVzFVdXMwQXFTTnl1amZMSm5neGtIZWhwODNhcllsdWtyRUpiODZsal92eHNfY01EV0sxbTgyRzNjaDFUeGltU25WX09kdGJrSWQ5UDZaOXJhZjNMVnFHdHAycTR3LWhRVktUNGfSAZsBQVVfeXFMTktOa0NEUDRYU3RaMnBicXY4azlRYklUNVpOQk5LbHhjVlVaR0Q1R3pHeVZVSGpPaGpsSTdZRlk5LWpiNEVlUmY0RWZoMWlLSGNlVU1fdTNuU1BSR0pMamdrWTBqdUJMN205c09ybEVtTnRaMkpMM0V6UkN5ZmNkakhXNEJ3OFpSV3dmZ2F2dm9hNVoyQ1A3eWo4TWM?oc=5) |
 | President Donald Trump's Air Force One due to land soon in UK for second state visit - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1NTWVmcUJLQkpwUzFjQllYQTFkOVNadHN2V19NbmhHRkYzTUFYNGlRaEpYNkstcVBsWjFKbVRyNzhQcndRQloxVGhsZlNpWjZhekh6Rg?oc=5) |
-| What's different about the Charlie Kirk firings - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPWkcxS3k4T3pMNmlZSVVZeUdldXZyVXhZN013TTFyTzdqMkRhSGdMX29JVHZCNEVoVnhKLWNWM0lNWi1EYi1wYVY4OHBkTWNPOXZMd1RHMHlvajZXa0FpakgxVTAtRVE5bC1rblBzNFFic0t4Y09RdDB2bW8xR3BMYm1MdUlJdjQ?oc=5) |
+| Republicans release 7-week spending bill as Democrats warn of a potential shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNM3NkQXB4dElXWUFiQjZyRmFkaEp2dE14QlJXa1pQZE1HeVdHLVFWZERQMTAzUVc1SDZRYUlNZnk2R0x2Q19GM1RocENXaDZVQTdiRXl5MmJ0bHBxaUtwZ3BaUFRlelJGN244a2o1b2VvdlVaczV3YXNqU2FWSkd1MTB4aHI?oc=5) |
 | Schwarzenegger decries polarization, criticizes Newsom’s gerrymandering effort - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQbllwWDRCbGlVQkpQVGlWTGhoME5FNlRxWGdSdlZ3aTVXU2UzRTIyaDE5cE1HZDZKZDJUS28wYzVURldJWl9HNHVzU3ZGM2JfSFZOdmdMaWxyRmRZS0FkNWNtY0tqYjZ4eVp4MDQtSnJaRFdsU0t1T29BVDFsR3U5ZmVicmFrY19CS3JCMWZweF82QmhoYmNKd0tJT29LQ1FNWWtuZWVkYy1XVV90dUZjVXpaTjhLbHpYZWVZYUVMZnlrRjVfVHlRMENBUQ?oc=5) |
+| Charlie Kirk assassination: FBI Director Kash Patel reveals new details about suspect - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQMXRoVWVlYVBCcWFKSm9ELWVxclFmc0tJQ3RVT3lFeGdad041blpSMXFJSzZWYTZVT0FQclBVeDZicS1VT0NKbXJtbmZ4UTRMZUFvdDNjTUdTZTVJMHFhbG5lVUhXSk1DMXR4VE5QRDMyZlJYYVdPUktBR2VyLVhBVF85Sl9KWG9jUGNwT2RmdmdJMDM1bFNoWHNDRDFRdE5KVWfSAacBQVVfeXFMTnhrUDJFYWJvMUEyYkpfUjl1UWNtWlI0S2xIZFl0bDI0YjFQT2EwMkgwMm1SZy1PbklrRlNqZVBUclRmTjNLRlktOUpiQ0JEZWVqc0wtdE5GaE5FOGhqNGFseHFuQ1lEWHRFTzU3SXVycXhNYzlQbE1JLTFfc0xJekJWSGV3SU92V3FvbGNOS05sUzRPeFlpSjdzSGg0emszaTlEU2lFSDg?oc=5) |
 | TikTok to stay in the US as Donald Trump says deal is done - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBPb0dUYVNrRkN0Y0g0UlNYOV9wTlhjem9KQjU1ZkREN0N4WmhCYmdWWVQyVWloc3A2M2VvSVU1M3JvSDRMQXpDUHJwODFzNVROSVl6a2hsQ2d0QdIBX0FVX3lxTE1NTWJwdDdFTFVTc1B1MXhaSmN6MWpBTENMNWZWam5IMjNFYV9LOU1sSVIyaTE1bUhhZHdabjJQdmNDNjlXMng1Y180QVdYdXdYTkh3ZEowYUlwaHhJUFdR?oc=5) |
-| JD Vance vows to carry on Kirk's legacy. And, the Fed meets to decide interest rates. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQcnFoTjdrbnJSTjVvVGZaeWdzSUgtNXhzaGs4UTljek5STEV0X1p1RnYyS0pTUzc0eDlYUDJOWGplYXJHVVk2VlhWcnZFcnhGQVd5dF9IZGlIZkdDNlgteVhwdEQxYUstZGF0Nk03VmlBaWNSV2M5Zm84WEtfTVlXZFJqOHRxMFVwZkJQc1lsTDljN19rX0xWWHJfV3RNTm1aZE5QZkE0ckt5b05QQ25QVVZVRU1sMjB0eTJhODM0V0tUNUFJM1Itc2xJS0ZNLXdY?oc=5) |
-| Joe Manchin Would Like a Word. (OK, Maybe Several Words.) - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9VZEFZY3YzVko0VmVMUjRtQ2VZQnJsb0hsZC11MDBpU2w5VzJ4aVJsZHFrSmNuRFhOMjhRLUVMWUFEQUxzaXRzbWhPSDU1ZGhXMlMzNjhNbk9WTTQ4Q2xpeFc1cE5YR0lPbUc3TDUzR28?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
