@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 09:49:48（北京时间）**
+🕒 更新时间：**2025年09月16日 10:00:13（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Washington Post Columnist Says She Was Fired for Posts After Charlie Kirk Shooting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNa1N1RE1sekNzRVZEalpFcTRsUFpLRWw3ZndacEp4WTc4U0dNcDYtNFhvR3ZDSHc5NS1FdXpBaWJNT2tfNjV6cExGRURIQUx0cXpRTTB3N1Z6MHlFYldIekZkTW1NbzVTM0N0b2NHZzF4b0FFci1hclIxclF4ZnFkeXN6RVNvMWxEZ2NiSElrdjktSjA2cmJ0SWVjZ2c?oc=5) |
 | Trump Says He Wasn’t ‘Asked’ to Lower Flag for Minnesota Lawmaker - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOZEpJeXl3NklhWF9oUDdRYkszdFNvU095YjR2ZE05R0NSTlRaMldENndVQ0stRXN3LUJVbk9zQWNnaGNkbTVEVi1vRTlLTlFIZUlkTW1JVUtIN3FMNmpwZEQ3STN3ZDNmSWxiOEtXcTlPQWVfalJoYy1hQVNYZDZiVnVtb0laTUdNSGc0U2FiSHlKN2hLZDlN?oc=5) |
 | Fired federal prosecutor Maurene Comey sues Trump administration to get her job back - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQZ0s4aldBd1VpZUQ5NEVFNnl2VlRNZ1FzVlFHZEtWckdhMGJ2bVowU2VPV2h4N3p2aFluYUNEellCMXVHSzB5NkhtVTgwUkhoMUlpMVByLTBpdVI2ejUydlBnZGdyNlJrRlN2SFlFX0xwUmxHVmpiWjQ5MGFySUVCOVY2akluYUJ6NnB2ZlFWR3h3VWZ5NEJ1X2FIUU1PbEk?oc=5) |
-| Republicans put tech firms in a vise on Kirk social-media posts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOUnpiSjNIYzQ4TVZIWXJqWXptMllONE41LWR0TWdfdkxkcEtfdWU0eHZzNng2STNVZThKY1FzOEw4T1E0RHI4MThROFhxU2k5UTVDNUxKSk5mWjJqaWVlWUI2dThveG1QV2R6aW03bm50OU1VVVA1RGVQbFd5WU5vY3lhQ3o5VzNucjkzd3FaXzZUZnBST1FERi1ydzBfUW5zUWN5eg?oc=5) |
-| Trump signs memo sending federal law enforcement to join Tennessee National Guard in Memphis - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOOU1kV0pzXzhWMUp6SWZTRzMybkN6TUo2RV84TDJoT1paRHZZRFpnZWVUR0szNGZfdEhkWVFMeVZhU210ck9jX2MzTWpkOGxnQ3AtU2UxVmRpcGhHUW5VS1lkMkxOS0tYOXotZTZiWnFxTWNSY2tvZEt1YUVjcFlhZEpR0gGHAUFVX3lxTE9pUy1SQ3lXZ1JNMERZVjQ2WVRZemNRNDA3aEF4MnJ0QnBhYzJaanpkbVR3ajFDM25fQWIwajVGVEFIXzI2WUpzam9hbjB4NXJOTDlibmJnVFJGemxneWJfWFowYl8xX3l5QTk1WUc4RnJRVnpmVjlsS1EzSGtnZ1YyS0thR3pNVQ?oc=5) |
+| Fact Sheet: President Donald J. Trump Restores Law and Order in Memphis - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPeHc4eVlxRXJETXFsMXJIbXJXWTBNY3lsRVB1aU03bTJoTUp3MURFeVM4TXVoZk9HU2JfNEFROGtuem4xaVZmM1dRaHpPc1FaN2g3b1lRNjZEX1FlVVBQRGxfNzNfWjNBcExxMjFGdjVNbnlxV05kaVl4ci1XMXc2REtRa193cnNOOW1yRE5RRmVraGE3aGFwXzJ1Y1J5SElFYnNMMnAtV2hyYWhyTmVNWkFJMEtPQnFo?oc=5) |
+| Trump threatens to take over DC police again over immigration enforcement - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNUVpjUlp4QjVHV2loTkdNYllKLWFKTDMtMXp2RGpPNmRyZVhUMUZ1LVZhUlY5M1g1SlVuakpPNjBYMGRVbnEzM1RkZk4xclQzcWluZ0tTaWJRdnFjMXYyaWc0OFBsZzlnc3l1b0JXVFlTNXBkeFc2Z2FqSzJUWFYzQlYtUkxDWUhkVFRGN1QzZFM1c2pwZWQ4YVl6NA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
