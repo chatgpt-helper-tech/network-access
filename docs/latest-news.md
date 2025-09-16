@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 12:24:07（北京时间）**
+🕒 更新时间：**2025年09月16日 12:36:38（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Stephen Miller blames "terrorist networks" for Kirk's death, stoking MAGA outrage - Axios | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQb1RiaVpxdEFXTUtMejI1MWR4bzI5ZkNkOWZZbzlxZjVtZXpkcWR1XzVHRWdmQTV2LThSMk1fVWdsdzMwMkRDM1djRm9EQi1WZkRWMUlPcGQxaUJLRTZ5QnFQUk53d1VGTmwySTB6Y1V6YUJxdTRfVWJoUDFNOEFuNTBwNDRGVXIyV2k3V1JFdk9xWUg1OTVNdnQwSQ?oc=5) |
 | Charlie Kirk assassination suspect under special watch as investigators seek motive - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE45eGdrMHE5cXpvTU5rNUlWaW8ycG1hTVVTSEtITmgzelBoSWdEWlBaTzZMelE3TDJfSHdJelVwdG00Q25IcmdhS0pobE0yTE9vaV82eUM1RHRsTmxwcEFnUWk5WlZkcUpBdk1KSjRHRXF3T0dxSnJtY2VnSdIBgAFBVV95cUxOM0QxekFSbkc0QWkzZmc2VTJBVXgzN2JBM2pWVHJEdktCUG1fR3NiaVQ2S3IxSmYzLVBMNmhIOEczNkVYUF81bGQ1UkJ2OWZ4T1J4QTdaS1E4c2pwYVJvQjJnVlgyTkM1XzVUV0ZiTmtCMHU0ZWNNYXBYWXVBZllQeA?oc=5) |
 | Experts say Pentagon faces roadblocks to severely punishing service members for disparaging Charlie Kirk - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOTXUtWDA2bjEzM1FHR1dlWlVNenQtcXZpNU81VmdOWXlzV2x4TnJQc2NwYW9tcjFkZkpmTmRZTjd3bUNpdHZVQ1lIWjZsZXRWUkRndVN2NW5HekNQOWhaM3ROWDlma2ZacHQ4Wkl3cFVRbzUxMGVvRWdlWjFvQm4xN1dQcEk?oc=5) |
-| Trump backs Patel amid MAGA divide over FBI director - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOLUdRU0xhQm54bUtkeVZrM01pRWZVM2syaHpvb0JkRXBJMDlBTm5DcE9QODU5UlB6eU1Rb2x1ai1Tdnc3WTAzQ2xZcjdKWklkWDhIYjZ4T3NlQ3pIV0lJOF9lS3ZxRENKdk0tZDJQVmVEblJfRzk0MEtqUGU2MEVLU00zY1ZzMVk?oc=5) |
-| Trump signs memo sending federal law enforcement to join Tennessee National Guard in Memphis - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOOU1kV0pzXzhWMUp6SWZTRzMybkN6TUo2RV84TDJoT1paRHZZRFpnZWVUR0szNGZfdEhkWVFMeVZhU210ck9jX2MzTWpkOGxnQ3AtU2UxVmRpcGhHUW5VS1lkMkxOS0tYOXotZTZiWnFxTWNSY2tvZEt1YUVjcFlhZEpR0gGHAUFVX3lxTE9pUy1SQ3lXZ1JNMERZVjQ2WVRZemNRNDA3aEF4MnJ0QnBhYzJaanpkbVR3ajFDM25fQWIwajVGVEFIXzI2WUpzam9hbjB4NXJOTDlibmJnVFJGemxneWJfWFowYl8xX3l5QTk1WUc4RnJRVnpmVjlsS1EzSGtnZ1YyS0thR3pNVQ?oc=5) |
+| Appeals Court Says Lisa Cook Can Remain on Fed Board - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPZy0tYVM0V01za1ROc2pmMWd3Y1FJVG14clBBZFJmRTQxdDRwX2V3REEyd3ZNb3JLTTFjdUpkLXpJYWdkc1JIWVFOOVZFWXUxdXFpQVVHVF9Gc2tBZzBVaUVvMGt5MkNrR2tjWlQ2Vi00ZE84MlhEaTRzQnoxcHl3X0pfVDRHWm9FVFVnTXBpXzhDdw?oc=5) |
+| Trump sending National Guard to Memphis, says Chicago's "probably next" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOV0VlOU1CZEVvVUZhYmpsOEtZUGN4WTJfckdiaEdKT3U4c1dtanVQMVM4S2wxV1N5RmYxbG1EZ0ZuMURWSmtpTUxOWUJvN3l4YWI5YW56TmlfNW9yaHNJaXNycFZMdG81dGp6Qm00ZmhOWWkzaUlWSEhKN1dwWXBHM2h3VEg?oc=5) |
+| Patel says he doesn't regret social media post about Charlie Kirk case that turned out to be wrong - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOVFBWdzU3N3J4UXgtbngyT3pnSE8yOTFTT3FWMGNucUE4dHJKZzl3TC0zVHJUbmhWNHpsLTlPODdPVV9Ldnl6bWNrd1I2SF9fVzg1YUppQnJCazdTWmNLbFdIc2FDTkJCSld6M0otUDg0QUtpU3JmTmVvVVZkU0VLMGxMQkFUQk53QXVyNzZZZ3QtZEc4TVAyVDlpcWp4amRuVm9pRjF2c9IBrAFBVV95cUxQT3ZhUHVvQUx6aVNLOFFibTVReXlyMDFGZ096bU9NRjNPV0pORHN0ZnZKM21sY3BKWnhjVnJJaVB5a1QzdGJpN2FZMjZPWFlNUnJZekx2dTdhUXlPU2s1YXNjdFdRYlBMTklMd2dUMHVUYkJHSGh2T2tlOVJlSnpvLV9wcnJBVkxmcFc2eG9VbmhkVy1FNzh3eDhwUUQ5SldqNkpUSDlUNXpBcF90?oc=5) |
 | Florida attorney general declares open carry of guns ‘law of the state’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQZmhHZURoT042VlgtNWJnSlF6SXh0bjRJNlp4eksyLWNfaGtiTmpjNzNPcmlBcGYtWUU1REFzc2I5NWw5YzRtdkxWYVpuR3FDRk9BYTdPX2pjWkZDeGM0LVhMM0RkcnZYbVBjOUlCempzWjlSV0lhX2FTYnBzS3E2Z1k5em4tVUdpanBBdlhmM1BKYm5TOVZJUngwNGRlcjdkRTZyRmc4bTdmUWNGY1p0eU1nWjZlTFpTUWE4?oc=5) |
-| Trump threatens to take over DC police again over immigration enforcement - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNUVpjUlp4QjVHV2loTkdNYllKLWFKTDMtMXp2RGpPNmRyZVhUMUZ1LVZhUlY5M1g1SlVuakpPNjBYMGRVbnEzM1RkZk4xclQzcWluZ0tTaWJRdnFjMXYyaWc0OFBsZzlnc3l1b0JXVFlTNXBkeFc2Z2FqSzJUWFYzQlYtUkxDWUhkVFRGN1QzZFM1c2pwZWQ4YVl6NA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
