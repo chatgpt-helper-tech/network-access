@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 07:12:13（北京时间）**
+🕒 更新时间：**2025年09月17日 07:25:40（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| President Trump in UK for historic second state visit | [阅读全文](https://www.bbc.com/news/articles/cz9jyzl4532o?at_medium=RSS&at_campaign=rss) |
+| Trump hails 'very good' relationship as he arrives in UK for state visit | [阅读全文](https://www.bbc.com/news/articles/cz9jyzl4532o?at_medium=RSS&at_campaign=rss) |
 | 'Completely different, yet genuinely get on' - watch BBC correspondents on Starmer and Trump | [阅读全文](https://www.bbc.com/news/videos/c9dxq447dwvo?at_medium=RSS&at_campaign=rss) |
 | AI could boost UK economy by 10% in five years, says Microsoft boss | [阅读全文](https://www.bbc.com/news/articles/c7016ljre03o?at_medium=RSS&at_campaign=rss) |
 | Eritrean man wins block on removal to France under 'one in, one out' deal | [阅读全文](https://www.bbc.com/news/articles/c1dqe2443l1o?at_medium=RSS&at_campaign=rss) |
@@ -27,11 +27,11 @@
 | Adam Schiff and Kash Patel get into a shouting match - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPWGFVNDRyendaZ3hUNVJKNUVuT1BxRUNYaEVucnl6bGNGZXN5QmE2LXMySjFnLUFWT2lMOEY0cC1oa1NjSF9iNWNad0tVZFhhRVk0dnlrdldMVThhY1NYSXlGdTltazFJZ1FEdkd4Z25OLWcyQjB2VXRQa3hFNU9fcXVLYTZUN1UxM245SmRGT0JwT1E5N2hESThzRDNKNVppQVdnb1U3OA?oc=5) |
 | TikTok to stay in the US as Donald Trump says deal is done - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBPb0dUYVNrRkN0Y0g0UlNYOV9wTlhjem9KQjU1ZkREN0N4WmhCYmdWWVQyVWloc3A2M2VvSVU1M3JvSDRMQXpDUHJwODFzNVROSVl6a2hsQ2d0QdIBX0FVX3lxTE1NTWJwdDdFTFVTc1B1MXhaSmN6MWpBTENMNWZWam5IMjNFYV9LOU1sSVIyaTE1bUhhZHdabjJQdmNDNjlXMng1Y180QVdYdXdYTkh3ZEowYUlwaHhJUFdR?oc=5) |
 | Republicans release 7-week spending bill as Democrats warn of a potential shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNM3NkQXB4dElXWUFiQjZyRmFkaEp2dE14QlJXa1pQZE1HeVdHLVFWZERQMTAzUVc1SDZRYUlNZnk2R0x2Q19GM1RocENXaDZVQTdiRXl5MmJ0bHBxaUtwZ3BaUFRlelJGN244a2o1b2VvdlVaczV3YXNqU2FWSkd1MTB4aHI?oc=5) |
-| Luigi Mangione's state terrorism charges dismissed in UnitedHealthcare CEO's murder, judge rules - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQRFR3Nk1PeU1VS25rUlpiWXdZUld1cE9yY19wVS1DZ0tTYi1pY0pTLU5TRDYxOUdYWVlGNmREdklRQlhYUTMtYUhsekJtckVNM3l2SzRiUFAtUlVQLVRJUWEtbV9pUHBFV3Y4b3JNdXlxYW5OM0xmUDhjbjBWT2t2bS1YdEQ?oc=5) |
-| Palestinians flee Gaza City as Israel says it launched ground assault amid global outcry - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNOTV6aTNiVjZnck5abmo5eXZRbzBuNlJpVUM3ZlJ6YmRxR2U5cFM2VV9BNU53aEZjZjl3YWd0NWdnWmJUdU5qLWF3M05uWjA3LXAyNTV2QjhEVFVTRG9tMFIxcTFjcXlJcEwzNllmRE12bW9LWmpET3owZ2VsTWFJeE16T3EtdUJkdFNPOVNkLXA5QQ?oc=5) |
+| New York judge tosses terrorism charges against Luigi Mangione, lets murder count stand - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNWmQwM1lnOEwzelJsOXNRQzRvdkJJS1JaY1MxR2JsX09fMWNMbmVkMEdfRVRpYU9tMDJkV1lOT1psWTlTYmFqQTVzZDItZS1Yd19XUnVtZHNWbUY1SmF0cDdiN1dEdHR4dUxHSEIwY2FYdzRxd0lxdWVNNzFJbWQ4TnhXQjdIVmhFMVRCRWtDaUNmSTF5RTNVSHJYN3ZpN1NtU19qcWZ0a19Yb0E?oc=5) |
+| Pam Bondi draws fire from conservatives for ‘hate speech’ comments - Tampa Bay Times | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQVy1DVlk4emQ2NlZJWXQyWlF5X3BsanNfUzBYb3RPSnd4UFM3emtrQ2tSZ1ZoY0VIUmVsa1BwRmpicVFiODBrSEppSXhYcEhaZ01aTHVwbjVFRS00cXpmQ1FEcUo1LUlpT1JHRVNGRW5GME0wMjFlTXlDQkZ1ZWtwQzQ1T0JtZFBYdkFscjdGNXViRkpPN3F0TnpiSjJJa1p1c1B3T1FzdTlwSnFtcVBCRjBGMnBsaTU5bU5OTlBB?oc=5) |
 | The people who have lost their jobs for posts about Charlie Kirk - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1SSm9XWlBaQ0JFaHd1OUo1YzdpeFhzbVpMVXpzT1ozekZkOXNJN1FSYlo2b29VUnUwSE14QnJ2YV9TbDh0Z1E2U25tNXF5T3N1QjlGOGJKdi1LTmlxSDM1X1B3dFBjRHFCRjl6bDZ4Z0VteDEtUEdWRXl1OA?oc=5) |
 | President Donald Trump lands in UK for second state visit - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1NTWVmcUJLQkpwUzFjQllYQTFkOVNadHN2V19NbmhHRkYzTUFYNGlRaEpYNkstcVBsWjFKbVRyNzhQcndRQloxVGhsZlNpWjZhekh6Rg?oc=5) |
-| Sotomayor rebukes calls to ‘criminalize free speech’ in apparent swipe at Pam Bondi - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQdUJsZFNlU3pfWnMwWHYwNVlmbzVHemdBX05nMlhPd0F0UzU1Vmc0TE03Vl9mRktPSXZReE1mZTdpMlpZLXNsMlBBTU5EYVdGM3NrZE5oemh6R1dfZF9kRUFLMlJydkVITzRMd2EtSU5KMUFXX29La3lrUTZzWkJSZlk4NlNyalRFdF81VFh3OWE?oc=5) |
+| Israeli military begins ground invasion of Gaza City - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQWGdoSG04NEsxTHFITlZiZDVOWE1iZlo5X0FLUE9vb2NfMkFhOWlLYm12aGpsYlZhQkRILUcwN1o4QkVjZHk3Tkp0QjJ6SmlFTFJjRDNxWFl5N3dYRzgwcFFTaFpSOHR5T19GSzRRa0VJcFVTQkNsbV9TTVd4Y1J0MHV2WWRUeFAt?oc=5) |
 | US military confirms it sent observers to Russia-Belarus war games - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOZHQxaTFDeUFETHRLQXR6dS1vUUZENVhPaWdzVTVMdE00Z1pKN0gtRDlIZUE2Tl9wWWo0MkQyMUl6N29pWndKb090MFBUc28wcFJUM2dBbmlSSnFqdGoyZ3c5V3hLT1NSRVl1N3lpQkh5SDJpZVVDa09HU3pwb1lORGdaV3RuQWFSeFRtazA2RERWQTlJaDR3Mzlmb1ljRDBjNGVJb3dYSmlpQnJyM0xqNTV3?oc=5) |
 
 ---
