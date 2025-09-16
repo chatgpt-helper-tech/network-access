@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 11:48:50（北京时间）**
+🕒 更新时间：**2025年09月16日 12:01:46（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Venezuela’s President Maduro Denounces U.S. Boat Attack, as Trump Announces Another - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPbldvMlRpaEhBckdTaDdxSVktRDFucVdYekFaZGhoUmw0MzdPbkRITi1mNXluV2NKZjB6QmFJWkpmbUdsTGtSLVdxWDZ2My1xeUdTR19zWGdTM0E3Uko1Wi10QjZGVU1QMW95T2dNci0walUxQkg5V2RQUmVib0g5UjRYZndza2ktSUU3czhoUkw1UHBP?oc=5) |
 | Vance, White House promise to ‘go after’ left-leaning organizations - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNM3hGa0FPUmNzc2VHUV9hSGtNTXRDbnFrb2xxT0NoQ0o2TC1QWFk2eGREQ19fcThxM1dOUWp1cFpzS3pPN2NxUFhtUklvai13TElOTUJ4WXR4RTZfRE81djdLVFFJV2xoLUxMNHhVR0J5NWVCOFVHRDR2X1pfUVRXVExMMF9UcG5RZ09TLVBwX0plRFBBZGhtWGJhSTJOT0s5c2NDbkxPS2JvRWlLR051WlBkd1Q?oc=5) |
 | TikTok will retain "Chinese characteristics" after sale, Bessent says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE5xM2JCTGlRcEJkSnhvalhybkdPU2I0RVcxTWQwbF9CV2VOaVJ0aGxyYkZ2bk5SUkxhWHFMTVZGbngydUEzMkhtNjBjZXM4MUVMUnRCN1E1bktVUzE5MGdQTFNieVcwV084RTV2NW05ZnlLTFJkZWc?oc=5) |
-| Donald Trump Cornered With List of Right-Wing Attacks on Democrats - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOOHBDVXY5MmZ5RU9tZzRzaGxTQjRLV016VlEtMDlLUHdkMFJyeDg2NjM1YllDTWJsOEhzMGxYeGJsNDE5V2doMXo1VC1tNXVXNDdfMHVOVGJiOHJvY2hLQ2VOZ0hSNWtPTjY3aFg0YWd3MV93Y005YkV3UkhBSmd1U1BOczJ5cE0xM2pkcElteXhxTTJXN010LVdSdnhvdw?oc=5) |
+| Suspect sent text saying he would 'take out' Charlie Kirk, FBI says as scrutiny of Patel's performance increases - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPTGh1akJKLUlBS2NSZUVGY2NnTWRzeENIQVFmUzItWXg4VXhSQ0ZRWnNuSTdWRllJS2ZsU0RoRGpiZWtpMkE1Wm1wUGEwNWdGOWsyNTJSVk9YeHlnWWl5TU0tY05MYzlDRWF2UUpCVHN5NlpGYmNjT3ZYa2Q0NzhSZ0RWSFNBb3E3ZWRJV2FR?oc=5) |
 | Appeals Court Says Lisa Cook Can Remain on Fed Board - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPZy0tYVM0V01za1ROc2pmMWd3Y1FJVG14clBBZFJmRTQxdDRwX2V3REEyd3ZNb3JLTTFjdUpkLXpJYWdkc1JIWVFOOVZFWXUxdXFpQVVHVF9Gc2tBZzBVaUVvMGt5MkNrR2tjWlQ2Vi00ZE84MlhEaTRzQnoxcHl3X0pfVDRHWm9FVFVnTXBpXzhDdw?oc=5) |
-| Suspected gunman Robinson wrote note threatening Kirk, tied to scene by DNA, FBI director says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxNejd2R0k3TGlDYS1aNFludy12dGZCc3R3MEtIZ1c0RC0xQVVEUzN3SGVoMUJzSERGbThWUDBFSzkwN2otd1JMMXpTemt2X0hhMnpCbzA2T2JENGljRkE5REdqWVFfeVdSWS0zU0dZdVVpdmJhNnBYOGppNHF4ZThmNjNGZW9abTRETXQ0bVpoRjBGQ2Z3N0h0YmhhU04wVldCZGhQMm80b25uUnpTUXU3bHJzcURVemhTVG1IZg?oc=5) |
 | Trump backs Patel amid MAGA divide over FBI director - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOLUdRU0xhQm54bUtkeVZrM01pRWZVM2syaHpvb0JkRXBJMDlBTm5DcE9QODU5UlB6eU1Rb2x1ai1Tdnc3WTAzQ2xZcjdKWklkWDhIYjZ4T3NlQ3pIV0lJOF9lS3ZxRENKdk0tZDJQVmVEblJfRzk0MEtqUGU2MEVLU00zY1ZzMVk?oc=5) |
 | Trump signs memo sending federal law enforcement to join Tennessee National Guard in Memphis - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOOU1kV0pzXzhWMUp6SWZTRzMybkN6TUo2RV84TDJoT1paRHZZRFpnZWVUR0szNGZfdEhkWVFMeVZhU210ck9jX2MzTWpkOGxnQ3AtU2UxVmRpcGhHUW5VS1lkMkxOS0tYOXotZTZiWnFxTWNSY2tvZEt1YUVjcFlhZEpR0gGHAUFVX3lxTE9pUy1SQ3lXZ1JNMERZVjQ2WVRZemNRNDA3aEF4MnJ0QnBhYzJaanpkbVR3ajFDM25fQWIwajVGVEFIXzI2WUpzam9hbjB4NXJOTDlibmJnVFJGemxneWJfWFowYl8xX3l5QTk1WUc4RnJRVnpmVjlsS1EzSGtnZ1YyS0thR3pNVQ?oc=5) |
+| Florida attorney general declares open carry of guns ‘law of the state’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQZmhHZURoT042VlgtNWJnSlF6SXh0bjRJNlp4eksyLWNfaGtiTmpjNzNPcmlBcGYtWUU1REFzc2I5NWw5YzRtdkxWYVpuR3FDRk9BYTdPX2pjWkZDeGM0LVhMM0RkcnZYbVBjOUlCempzWjlSV0lhX2FTYnBzS3E2Z1k5em4tVUdpanBBdlhmM1BKYm5TOVZJUngwNGRlcjdkRTZyRmc4bTdmUWNGY1p0eU1nWjZlTFpTUWE4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
