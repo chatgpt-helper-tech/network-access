@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 09:13:28（北京时间）**
+🕒 更新时间：**2025年09月17日 09:24:27（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Fake medicine almost killed my cat - here's how to keep your pet safe | [阅读全文](https://www.bbc.com/news/articles/cy9n0y34z14o?at_medium=RSS&at_campaign=rss) |
 | 'Heartbroken isn't the word' - Hatton son's tribute | [阅读全文](https://www.bbc.com/sport/boxing/articles/cly9rl97p30o?at_medium=RSS&at_campaign=rss) |
 | End of the road for manual drivers? More learners opt for automatics in tests | [阅读全文](https://www.bbc.com/news/articles/c80gk97xe85o?at_medium=RSS&at_campaign=rss) |
-| Acting legend Robert Redford dies aged 89 | [阅读全文](https://www.bbc.com/news/articles/c1dqe9ey0kgo?at_medium=RSS&at_campaign=rss) |
 | 'The bombing has been insane': Palestinians scramble to flee Israeli assault on Gaza City | [阅读全文](https://www.bbc.com/news/articles/cly0qnnx5w5o?at_medium=RSS&at_campaign=rss) |
+| Two Labour MPs denied entry to Israel | [阅读全文](https://www.bbc.com/news/articles/cge2gweqzjno?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,9 +30,9 @@
 | Judge dismisses two top charges against Luigi Mangione in UnitedHealthcare CEO shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPcW4xZjZEeHpGMGJlYVgxeHFGNmJOSXJRT2lfTmxsc0Nqc0lRQkhFZHFKV0NfUjRUYjBEUkxUa3h0WWM3VzdFNlp2allvTDVPYzE4b0tyUTlvWUQyNVZ0b0J5blFYRHU4S3R3ZDhzLTFVcmNPRU8tSm5fUGlyRVFhWlJ5Y09uR2Ntc0V2dk1jODJ3UQ?oc=5) |
 | Memphis Residents Welcome President Trump’s Action to Restore Public Safety - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxONnBNNnl1QWNyYnlFaWdWbC1hMHJXZ3d4bXRDdl84eGJUSXQtblRoNjl5cFM2cGlaeVF3WEpIaHltc3VyRnR5LTlHMjNGaGVaN0tZVHNtcWhxM3pQTUU2U1lDTkNNR0xsaW1XRmEtekFJOXI3c3I1Rm43d1JKbDVWOWxtNUJtRDNlSElKUDFTZVI4OHBQR1B2aTU2UWM1a0dRSmtYODBpX05TbHZtMVBwekhwMTl4a0hscG5z?oc=5) |
 | MAGA debates how to respond to Kirk’s killing - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQZHhZNmJnRFQyU0l6aXcxb2RaVFVJWlh4cVNBNW8yeXNUNElobDFoMzE5LWk0UVplUnVCTXFLSWxUaVdndmxWRUJhbmZpazNEWVVUbzRjdGh3YXJCeXNaa2hSa3FtZWlKRUpWbTFxRi11azJ4dWtLa3JKX1JWLXFWdWpKVmlOcmRNZ3RScFctU3U4NV9WWndjVFBR?oc=5) |
+| More employers fire workers over Kirk posts as pressure from right mounts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPUGtsZFkwUmlFTWRZWTFFMXRtRWl6Skh4SWcyb0JYWE0yMUJZbUJUYU5YQVczbkVHUWlqZEw4YS1zN3p1cDBUaFRUcEUtN3RpcnVKRnJnQ2FyR1ROeXVBQ1FmcUNPSlZnaV80WjIza2ctRmU5MDdPSFZ5ZkRuemV2SzJTQng0WTlMOUVxQWFuVlpBejdXdWEtUFFOcS04UDgtVzUxZw?oc=5) |
 | Democrats Oppose Stopgap Bill, Raising Odds of a Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNRkZsMjhVQ2RzNC1HeUZuTXlqWEIwalIwcURhdHVoWjhKaks1dEVKaVB2bHVfbHlJLTMtSkk4U1hkZEItYk5GOHJPV0V4UVpPUS1MVVFvQ3Nvd2ViZXpvX0U1RVpLQlRoQW1VWGFfSlFtQ0U5Y0N4RFhoR1ZncFFsZk1vQlFRODRtbHFZ?oc=5) |
-| More employers fire workers over Kirk posts as pressure from right mounts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNMG0xcGlFMTRjcHNkM01FVkRobGJRRnpYM1QtLTcxejQtX19mSkt0OHRpX1h0REUycHJDXy1yS2s0dGZxNzR2WUxwNjNfeE9oUVFUZ1FNbzJ4WUVJT0gyMWlHamJwRG1WZjNxMzVITkw3VEN4SFF0RHItSF92UDRUWk45bi1nbGdWa0JlSHJfaWh4YlA4YWdpY195a0dBQ3pIcTJoRVJB?oc=5) |
-| 'Tomorrow is going to be a big day,' Trump says as he arrives in UK for second state visit - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiU0FVX3lxTE1LekJuSm1aa2puNWg3OWNydXJSZ3VSYkI0MklkdlVubEo1Ujl1eDlQVFVTR2NYTXNDSnlvS1FaU3gyM3hkbWJjVGY5R2llc0REeHZJ?oc=5) |
+| 'Tomorrow is going to be a big day,' Trump says as he arrives in UK for second state visit - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1NTWVmcUJLQkpwUzFjQllYQTFkOVNadHN2V19NbmhHRkYzTUFYNGlRaEpYNkstcVBsWjFKbVRyNzhQcndRQloxVGhsZlNpWjZhekh6Rg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
