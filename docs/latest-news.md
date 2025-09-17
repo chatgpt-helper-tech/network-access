@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 12:37:43（北京时间）**
+🕒 更新时间：**2025年09月17日 12:49:02（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | MAGA debates how to respond to Kirk’s killing - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQZHhZNmJnRFQyU0l6aXcxb2RaVFVJWlh4cVNBNW8yeXNUNElobDFoMzE5LWk0UVplUnVCTXFLSWxUaVdndmxWRUJhbmZpazNEWVVUbzRjdGh3YXJCeXNaa2hSa3FtZWlKRUpWbTFxRi11azJ4dWtLa3JKX1JWLXFWdWpKVmlOcmRNZ3RScFctU3U4NV9WWndjVFBR?oc=5) |
 | Judge dismisses two top charges against Luigi Mangione in UnitedHealthcare CEO shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPcW4xZjZEeHpGMGJlYVgxeHFGNmJOSXJRT2lfTmxsc0Nqc0lRQkhFZHFKV0NfUjRUYjBEUkxUa3h0WWM3VzdFNlp2allvTDVPYzE4b0tyUTlvWUQyNVZ0b0J5blFYRHU4S3R3ZDhzLTFVcmNPRU8tSm5fUGlyRVFhWlJ5Y09uR2Ntc0V2dk1jODJ3UQ?oc=5) |
 | Oracle, Silver Lake consortium to control 80% stake in TikTok in US, WSJ reports - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPdzhqQ09KVlZMNlV2RVU4UEhmYzBzVlRFVzZWanRIUHJKU1FRcEw1a0dvYVpvZGMyamExdEh1Sk5zX0lHX2d1QW9aOE9xaW84WV8xbUd6Ti1Ld0ozdHdTSWx0UkZWYlRDczBud3hib1FvYnpuWDZXZTlHT2JaOE9DbkFjbUMwMU1Da0lrV3pmS01iMmE0OHM5Rnd2TkNPWGhrVGVQSzZwS3N1ZW5hWjVkRURKS0QzbkU?oc=5) |
-| Memphis Residents Welcome President Trump’s Action to Restore Public Safety - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxONnBNNnl1QWNyYnlFaWdWbC1hMHJXZ3d4bXRDdl84eGJUSXQtblRoNjl5cFM2cGlaeVF3WEpIaHltc3VyRnR5LTlHMjNGaGVaN0tZVHNtcWhxM3pQTUU2U1lDTkNNR0xsaW1XRmEtekFJOXI3c3I1Rm43d1JKbDVWOWxtNUJtRDNlSElKUDFTZVI4OHBQR1B2aTU2UWM1a0dRSmtYODBpX05TbHZtMVBwekhwMTl4a0hscG5z?oc=5) |
-| Republicans plan short-term funding extension, daring Democrats on shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQODFpZTRlVVEtQUtYYml5SjZyUTFNVHdjb1lucXg3UDUzWHNwZG9ua095WlliV1NfN2RaTG5GS2hFclNObnltTFE2ZnEybmV1a1dXU0pCVmszeXd6OF8wSEMwbFlnYW5wdUYySDhhb2oySS1JYmZBSFZjZ19CSG1LZzVZUnVHbXJVUjNvSF9WX0ZtZzA?oc=5) |
-| Former GOP officials fear US strikes on alleged drug smugglers aren't legal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNdXJNdjdGd3k2TGlEcEZxMG1lV2N1U285UVJLUmV4cDdNQXBMN3N2Qi1ITWxvTnVjV2RJQVVwWlRpd1FnZGU5Zmsyb2VFcjZRTGNjY0NydS1YVUd4QmNsQk03a3ZKeGtMUWJWLW9faGtPaUMwRmgtdFpaV3hGRnNTczNCeXBIbFk5QkYwdmY1elM?oc=5) |
-| 'Tomorrow is going to be a big day,' Trump says as he arrives in UK for second state visit - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiU0FVX3lxTE1LekJuSm1aa2puNWg3OWNydXJSZ3VSYkI0MklkdlVubEo1Ujl1eDlQVFVTR2NYTXNDSnlvS1FaU3gyM3hkbWJjVGY5R2llc0REeHZJ?oc=5) |
-| Democrat Xp Lee wins race to succeed Melissa Hortman, restoring Minnesota House tie - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQcGQwLUN5M2pYMkh2UGFuSk0zbUVoQUNIM1phX1dkbVRMTGExYjdsVHlUeVQtVFFsNndzRkZaUlVyclVVcU0zeGN6by00R1BsUjVhMlZkRW14MGNQY0s4NjhOYzZRZXRrQlR1MWtocmY4YTFUMVF6bDVMT3hhTHRpLS1KTnQybTZETkplYmcxU0ROckJJU0J3?oc=5) |
+| Israel expands its Gaza City ground offensive, pushing thousands of Palestinians out - NPR | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE9xZjVPZjN2cTFpcmpLN0xIajBFYnhXM3EzMW5NRmx5dnpYdmpCekF5QVlFREs5YWt5TndBcXZiR3hHNFBfOVQ1OUJMSXJkSlh6RmJoUjg5R1BlQUhrM2dfZDF3djNRWkxEanlGSzctT19CVmM?oc=5) |
+| ‘This is Code Red’: Newsom rallies Dems in searing rebuke of Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQcll6VVIxMno3dTVrWm0zeGRZdGJIVk9CaGVuY1BjWDJNUmV6Z3VJUXVkU0ppSEttVHIyZDVGNEhrVHNwbEk4UEJsMXI0Snp6cTFxQUFNNW93NjR3OS0wcy1yb1QzLWZZcmdEb3IwNi1XSy1LMU1LRW1rdTRnM1FnUXM0UV82SHZQM1VfY0xyOXktSEt1MFFxQVBBN1o?oc=5) |
+| More employers fire workers over Kirk posts as pressure from right mounts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPUGtsZFkwUmlFTWRZWTFFMXRtRWl6Skh4SWcyb0JYWE0yMUJZbUJUYU5YQVczbkVHUWlqZEw4YS1zN3p1cDBUaFRUcEUtN3RpcnVKRnJnQ2FyR1ROeXVBQ1FmcUNPSlZnaV80WjIza2ctRmU5MDdPSFZ5ZkRuemV2SzJTQng0WTlMOUVxQWFuVlpBejdXdWEtUFFOcS04UDgtVzUxZw?oc=5) |
+| House GOP releases stopgap bill to fund government through Nov. 20 - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOdmNIc2dNWnJvNDZKd0J3WGFxTG5sd1hGSzJpUU43ck1XWlZncnM1MjgzX25ORUZZaDNFVWQycDZya1FiVll2MG9MdTlSWEVLcEE4alBHSzBfZmdEVHZPbGU4aGszbmxUWFlmdW1QaS1WS29DYUFFN2NPS21nQ0hGOFFR?oc=5) |
+| Trump discloses U.S. targeted a third alleged drug boat from Venezuela - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNMDN5b3ZnWEZNQ2Ztd3NnODljRmxmM3RQMFRTakRGV2ZBYzdDbmtYZGZLTVM1R1BabFFfVWRRclJxVVdSanYtTDNxLVFReFZQVVVHcGU4QmZmTGJYOUZiby0ybi1NemY2QjREai1CMVF1VG82Q2pyRTBxRHBpWE9ldnVva0h4YnVxNGVz?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
