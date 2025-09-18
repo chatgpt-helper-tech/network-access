@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 22:25:48（北京时间）**
+🕒 更新时间：**2025年09月18日 22:36:21（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | ‘Censoring you in real time’: suspension of Jimmy Kimmel show sparks shock and fears for free speech - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxQV0kyN3ZCYlFaVVRZS2F0bW9Rbmt6dGFrNVRodG1EUndJZ1RxdmhqM0pWckIzSkxnZVNSNE1IeXllZ0tZbGJ2VnpOOVFaLWZYSGNQbTJvQXd3akN4T2RKV2NnaS1SeGJyMkducnltTlNLVXNueEdYWjBUTzc0MHBYLW1rRWp4SWVXTWVuS3JwSTZwdUZKV1hNVnppN2FFMW50NmVPYTFHX2xtOEljMExrQnp3d2xlbVV3eUZqTDlpcTFvZTF1RGpOcjFn?oc=5) |
-| Late Night Tracks Trump’s Trip to the U.K. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOUmd3cFZuNEVuYTBzZFFYWG1WMklkUTBreWxvaHRyOEZXVk5iZXJ2d21PeVRtNmR3TC0xdUx0bF9HeTJYYzBXQzVibjlqd05yUEJDdV96ZWZEejhyUUlUS1RwNkRQVXpiS1c0SUt2T0ZZSTlCaklteU5BOENoQmRFTVVQbEJ0dVZq?oc=5) |
 | House Democrats fume about vote to honor Charlie Kirk: "We're being totally set up" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQNUlTSWxjUUFkV3luQ3g0RndlNVB5bXBNVWVBa1ozdk0wRDNZa0dlenVaaTA2R2VkcERPRkNRYlNMSXI5RnBQY282Wk5famZWUFkxSkRXVVJCbjJGaUkxNFRGay1mVDZ1cW5fUHRrMEtqUVdGb2otQmxxRS1GRTUzYjliZ3FIQ0E?oc=5) |
+| Live updates: Trump arrives for talks with Starmer at UK prime minister’s country home - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE5KT2lSUjFLcy13RWxzR2M0enczSVptWi1sU2c4QTlsYkYwVjB4OTVYRENSeHVudTFvQlJfNGRrYzY3ZFlRd1pXd3ljT2hUTnVhb3k4d05iTk9IT2VnV1FreXVnaHplakVJbVJBNmxiUTB6SFE?oc=5) |
 | Watch Live: Trump, U.K.'s Keir Starmer give news conference after signing tech investment deal - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPaV9yUTF2bzlxaHZRM0dxakV5VFp1THloWFhVblRnOVlDTzMwaks1Yms2RFNuSFlmWWZTRFlud0w0c2dKRkRIRjJlbDhPMjlNYmFrbEdqLXNvN2lyRzFYdVZfTkc3MXBDMVZZWnJmdVd2WjdXUHpQeDk4cjVpWUZGbVlMSXRWcnlGb0ZJbXZvNF95WFBQeWJIWktINlRWaVpJLS1uR3VfenNRZkZmdnfSAbMBQVVfeXFMT0pHeXdRdlE0RXFpcnNmdVRldlNjelhLeEVhN0xyc1RPSm1jY0RGTDFDSlphbWFrdUgwbzRKYmNfLXdIM2RsQjdhSTRmWmsxSFljalpIQkhUdnVaaE9FVUZLSFJ5eW9ON21YeVdIZlVQWUxDYUxCeUVRQTRBSUJFbTk4SS1QX092WW5kbGM1UG1EendwS2pUbWNkcm4xUXMxTHh2S0lOOGdDRHIwcWRkOG1GZ3c?oc=5) |
 | Pennsylvania police shooting: What happened, who are the suspect, victims? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOdFVVZEk4eXhrYzlCM21YN0dZbE1tSkFHTUVZa2xzdnEzZ3RER3Rveno0WGstU2tIUERDVVFyYXZpVFJvQU01b21uUjdGbzNhOFRPal9SN0tRVXkwS1c3R3FtcHZMUEZ5aWVvb1BHbUFIT3JBMVFUMHFUeElnQ1JGTEF3U0RZaVNDOEJNcFltOFNEMEFnRGJ1SXdQMG5BcEVKSklNNjh0aXpCanpoVkR0ddIBtgFBVV95cUxOV1M3RGoxVGRIVkIxcnRiRFRabXUwc1JscnVwemgwTlBPekpGVDlhdFBvcE1rU3NRMmkyUVhnQWozdkxibTNXQVhrb1liTVpmNEg1eFI5ZjlGVVlta1dqLXJVeTUyNDhYODlEM19rbnZtWHFnZlZUQktPYVJ2ZDBLT1c0UzBiSnh6azZRN1VBSnRHZmM4anEyNldfellsWE14OVFuU20wR1B3SkJBN09UOUdkQzRPdw?oc=5) |
 | Effort to censure Rep. Ilhan Omar over Charlie Kirk comments fails - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNckxxWXpjMTAtRUFfQU9hYkhFcVp0dFFrUVItR1dIWi1BRG5CWkN6QjFkWW5PUXN4bWdNMFlPRTQwaDBUMjhsM3Y4dlVyN25BM05PY25oRVZ5dTdDQzVlN3U5N1RMMGFSTzNmT1RIVHVKaGM4OTZwUl9NN3U3V0hnMjk0QzRxeVprTUtjNGFqYjZqLU1sTWdHODhCV2xfMnpPcVFIOUxFV19IcWZETkN4NE9kbEg?oc=5) |
