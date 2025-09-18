@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 15:13:04（北京时间）**
+🕒 更新时间：**2025年09月18日 15:24:34（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | US firms pledge £150bn investment in UK, as Starmer hosts Trump | [阅读全文](https://www.bbc.com/news/articles/cx2nllgl3q7o?at_medium=RSS&at_campaign=rss) |
 | US TV host Jimmy Kimmel taken off air over Charlie Kirk comments | [阅读全文](https://www.bbc.com/news/articles/c203n52x1y9o?at_medium=RSS&at_campaign=rss) |
 | Katty Kay: Why America is at a dangerous crossroads following the Charlie Kirk shooting | [阅读全文](https://www.bbc.com/news/articles/c78n0e83ye0o?at_medium=RSS&at_campaign=rss) |
-| Interest rates expected to be held by Bank of England | [阅读全文](https://www.bbc.com/news/articles/cge2q7wvyz3o?at_medium=RSS&at_campaign=rss) |
+| 'I'm taking life day by day, year by year': Tennis legend Bjorn Borg on cancer diagnosis | [阅读全文](https://www.bbc.com/sport/tennis/articles/cz691128dn6o?at_medium=RSS&at_campaign=rss) |
 | Macrons to offer 'scientific evidence' to US court to prove Brigitte is a woman, lawyer says | [阅读全文](https://www.bbc.com/news/articles/ckg3llj5nxdo?at_medium=RSS&at_campaign=rss) |
+| Interest rates expected to be held by Bank of England | [阅读全文](https://www.bbc.com/news/articles/cge2q7wvyz3o?at_medium=RSS&at_campaign=rss) |
 | Mahmood vows to fight 'last-minute claims' against migrant deportations | [阅读全文](https://www.bbc.com/news/articles/cj3yrrnydero?at_medium=RSS&at_campaign=rss) |
 | Israeli tanks push into major Gaza City residential area | [阅读全文](https://www.bbc.com/news/articles/c4gv881exj2o?at_medium=RSS&at_campaign=rss) |
 | Don't scrap care plans for children with special educational needs, say MPs | [阅读全文](https://www.bbc.com/news/articles/c15kwv30007o?at_medium=RSS&at_campaign=rss) |
-| 'I'm taking life day by day, year by year': Tennis legend Bjorn Borg on cancer diagnosis | [阅读全文](https://www.bbc.com/sport/tennis/articles/cz691128dn6o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
