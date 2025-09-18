@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 03:01:53（北京时间）**
+🕒 更新时间：**2025年09月19日 03:13:34（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Media's MAGA makeover - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFB0TWNYM1ZobXZQcTU3UUt1WE9EdGdEYU5SMEtrMk1neERNY3NSclZlMERseHZkallHVHpfZ3RXSF9zTGRSX3lyZWxhcUl0M2pCR09CWFEyMWI3Q3NqMUkwNWZqQ0pOMXU1dTRPa0NGTU9BWGJsN1Jzd25LWHA?oc=5) |
 | Suspect in killing of 3 Pennsylvania officers was a 24-year-old being sought on stalking charges - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOY1RWT3pfbjdGeGJJdG9MWllwc3p2QWg0eTNBMDdlOTVHanliVHVGZGpXM0txdG5QMUs1SlhEQU9uWWxTY2dnTmZLOHhJV200RnRtckVvcUlnN3BpUjJtcWJpR3hQeFpxRDBHY3VEU05Pb0ZXYWxnbW5xNmt0WFVPYmstNkxQRy1KbVBV?oc=5) |
 | Trump admin’s basis for deporting Guatemalan kids ‘crumbled like a house of cards,’ judge rules - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQVEdNd3ZDTmtBblN5YVZXYlhWaklNeVhhYkN6S2RfOFJubE5ZT1NpOGZaOEQ1ZEMtZVFwVFZuTzFqUnZWeHRFdkRiUzlVelNxaFlzdEhYZzdURHJydEdTZE9CamZFcUUtSTVpTlpMdWZDbnFwOUYyNi1GQmdlYmhPUkpIWnI3dFFNb3JFS2VUNmxFQQ?oc=5) |
-| Diplomatic Coup or Abject Groveling? U.K. Debates Trump’s Royal Welcome - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPNDV0d2pZcG45VjR2NWxJaHJlWnJ5ZW45UDV3WU5jVHlGSkJTaXJMb040Q3pnYUs3SHBYUmFINkxkQ0VEYlBnMWJIV1EtTnphTkhsVXZacGk3bHdXdEFBZFJFUHBveE1UT2lqcDVpTTlheXRLTVdidEF2eFNiLTVJcTJ6ODZJZUVFWEpj?oc=5) |
+| Trump says he’ll designate antifa as a terrorist group but offers few details - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQWFVEWlhoOHk1em94WVU2RTFXSDdtSEw4a2U2cGhSQTA0dWIwdGt3NHNyV2U2TkJmT1BkYjRBaG0xSXdqQ2NieGtBZHBERXVIOGhXUk8xNlFqOVpGSFRQdzJyM1g5bTJjY1ZmZUc4R1JmaEJQbFBsWEhnUjcwR1puVUNsQ0l3ekREZHhqMHlvQWNXMmcwdFE?oc=5) |
 | House turns back effort to censure Rep. Ilhan Omar over remarks about Charlie Kirk - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOSVEtb1duODNNUmV3RmtjR2dzTU9SZHA3eDh3enZXTHI1TVI2LUhDcnpFU0ZwdzhkcThkMlR3MnVVUXdtR1JveWxNNHNmQVQ2N0h2ZmpjcnJ2bDlBLXQtS3U2d3FqUmRVR3Y1dndJMzBJc3hzeDYyckVlMGVKNzZqdjVkOEpnQ1c4MUtGVDF1aUVWOTB1eFVrcVZFakRNZXlNbTE3b2Zkd2d1SmNGZl90OEpxZXd3TlNWclVZ0gHAAUFVX3lxTFBLLWtIWEpzUDAtNFRwYlV6eGViY1lWcGNMUHAtOWNaSzdXcnRJSXBDMHNtdjZPYksxYlhzVkFwLXFVbVBHN3pZQzEyWExuLWxlc3NoT1pwZnNsMG96MDF2UUdMNVIyWU5hV0ZDY2xESl9YVUUzTXJPQ21ZdlNrdVJqekFxM2tDZTEzd0xxWjM2cmpxNXctNERWTDgxeTdjT1hiMmJ4RU9yYWtiRmFHTFNiN0VkbXAwVmVlYkFSMzJsSA?oc=5) |
-| Investigating whether Donald Trump has the power to ban US antifa movement - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1kdzg2OEQ5MkVhVC1ZajhWR0hrZlg1bVByUDU2bVJvUk1tRHhWbWlxQmFlTzVaaHY0VzIta3hQY1hOU0F0bV9wRnVXVW9vSTFlZzBvUg?oc=5) |
+| Trump admin has been quietly pushing to retake Afghan base from the Taliban for months, sources say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNUEQ1RmlnWWRwX1pOSWVVbjJ0UkJsYnhsZG9PY0ZXMUc3OVo0cUxsSlB1aTlXcms0cjlZTlJ5b01TLXBjd0VXSjlsb05BYVZsQzdPVThXMnRiYUJvcEZHZWEya3hBUV8wVThXV0VRcU1vOHJpMjMydnlScEZMcTBnU2pwTQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
