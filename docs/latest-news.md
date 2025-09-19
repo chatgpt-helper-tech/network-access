@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 06:24:22（北京时间）**
+🕒 更新时间：**2025年09月20日 06:37:40（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump Live Updates: Government Shutdown Looms as Senate Democrats Block Funding Bill - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE05c3dlVC1aSktRTjdLNTNnNHQ2QWtmRjhrcjZhR2x5c0JPOHNuLXRQbktFaldTVDJJNzRWYXRPTk95aTk1a2x2NzMxbjRVNjRQa1FxSFpfVnZKS1g4cjVJQlJjVQ?oc=5) |
-| ‘Dangerous as hell’: Ted Cruz compares FCC chair’s threats against ABC to mob tactics - CNN | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9YZW05eU5lLU1LckFXMy00STcwREpVVjdPczNKMUNCdlFNdEhqU25jd1lfdHVIMklVQi1SLWc0SEJHb2JqaEx1ak5wM0VzbWNWSnBYUkdicmxLQWJjVjE0WUlyQTZ1X1d0eDJqYg?oc=5) |
-| Trump to attach $100,000 fee for H-1B visa applicants - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE90Ry0zaklfYUxRem15dF9kcDdQZzBOWU9tVnNBQXpPT1JHNGlYV2RiNjI2NHZoaTVxMm1yY1ZJLVhrUGR3UWpjbEpHdzVTcGJUUmppME1Dcnd6d9IBX0FVX3lxTFBQODRPTmNtTmhZVVdrdVhXSk5rWW52Wi1QOG9NQnRQaUsxcHo5TUJRdnpubHhZYnV0RlpWc0RJSVR5dVhUd1VPbUFyc25CWkZESkVGQkpUcWpQSTVBb0dr?oc=5) |
+| Ted Cruz: MAGA "will regret" what it did to Jimmy Kimmel - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5CMEVPcFd5TjZpeTJuM2NKc1lja29rZnU1Tl9qTVA4aVhWYlF0TzFacWdKWVc5bGdCV05Qcjc2M2dteVBOZ0lKNV9JazhXdzZzXzNuQlJKdHV4cmdUWW04eEVtYmViNmZVM3BqUi1UUFpTNldORUE2VFF0VQ?oc=5) |
+| Trump to impose $100K fee on H-1B visas in new immigration action - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE40YmhDM05zYWQtaE1sVWplNlR1LWdHMGhoZ1kxdG4tb2V2ZGlaTXVodkl0YWpRRDN6Y0plMFBQVXRuOWhMYnlDOGZlZ3ZKZHRfQVROZ2JTLUxvclp6Z3pHVXQ1eHhNeWRDdlE?oc=5) |
 | Trump and Xi bless long-awaited deal to spin off U.S. TikTok - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNUnBIYnE3NXZNLWYzTW5SSm1RWm90Q04yTjR2bnlNMF84bE5UV1NsTUVyZzViN2JqMVdaZjZnQjAyaV9wNlpZenVpRzFtR0FyMHpadzRzWFVaRnlRNDNqc0NtbWw2Q2l1MDVVeXBSVUxDWU0wajd5SFFMRXppb3FNZlk5b3pMaHc?oc=5) |
+| Estonia seeks Nato consultation after Russian jets violate airspace - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9leFZ2YUo5djdncU5WVDgxSm5UNUlLcHZvX0pxUkRGaFNHcUZqWGZkRmxQcEZZd0hCcl9qR1M3NnJVc3REd0RIakRVWEM5SXdTLTZBNFlvX3RNdw?oc=5) |
 | Florida federal judge tosses Trump’s $15B defamation lawsuit against The New York Times - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxORF80WHRCSGZhNTFTSXZDU1JSVnEtWmdOYk9UaURqZzg1YVI2enFDNnU3d00yZy1OR3NHRk1SRTl4d3pvcUJkLUhiOVFZZU8yQm1PaGJJbDBSQnFVRHYxYWVSM29ubFdraGhlN043U2JjMVlfREVyVFpUZTlYNXlrZmtXQW1qb3F5UzF3bUN0Mk9pQQ?oc=5) |
-| Nato intercepts Russian fighter jets on ‘reckless’ violation of Estonian airspace - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQTzNNanpJWk1QUkJYNFdkenF2TEswdXpiY3dhMzNvNDhDdjBROUlCT0N0WVQ2cGZGcEpwRUNjaFRhSEUyN2RXZE9uVGg2UmVnY1VNdnZCY1VHU28wb0FMRVhnSTFmSVJRUkZBYWpiVmtzd1ZHemtzRGxaWmk0aDNudGtneFJjdGRJYmwxUWFBSkRFbGl5V0FOcWx0N3JadmU5QmJTd0dTTQ?oc=5) |
 | Harvard Receives $46 Million in Federal Grants, Ending 4-Month Freeze - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE0xeTNUWEZFRlNBR0QwUEg1ajJwWkhZVHg3bDctZEpIcm5hQno1cXJyQkhWMHBfLUNTSlh3TkN0OU1NVTNGckloeG9hVUc3bjFkc0ZkX2VES3Q0OERWZV9JR3E0b2ZsT0xaZi00SVZaekpCVDdjdkE?oc=5) |
 | US appeals court orders deportation of Atlanta journalist detained by Ice - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOX09hV19VVFhQMDNyTVNHWklLenFuSWJXb3FUejk5Q2ZRRFVqTzhBX09iQzZCVEVGWTJGLW9LQ1g0eWV0TnRCUXVOeXZlRkJXelJiT25DNGlfWTNtak0wazdCYVAzNXUxamZJRkt2M2JJUEhhaDRwMXdWaTFrdjVBejZKeGU1eTRoTWlIdUppaDNVdnRhcFI4?oc=5) |
-| Texas A&M president resigns after instructor’s firing over gender teachings - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQRFV5ZXdfUmF5RWlVVlZCODRrZWl1RFNFS0g1WmZiaEpFUkZrZUVkUjdlRGxYX0hwSHRjVVdOM3hHaE51RkhJNjg5dk01dWRlNW1YSFFoZjh2NURVZmdfNjlTYmFESV92d3VsX0NYNEY5c1pDWlowczBlU0pWNHFFS0pNeUdSOTMtX0phbk9IS21kSzV1Vkhj?oc=5) |
-| Family of Black student found hanging from tree on Mississippi campus seeks independent autopsy - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOeEhkR3JSb05BZ1NaRkxxdXJnc1NNTzl3MDktTDUxSlZCTjNtblRQRnhrTkpmMnlYd2d2Tk1tNnlGa1ZZZjB0U012TEMxWWxQSm9mbV82eXpCT2ZlalM0WmhHb2Y4SUhPYVdmdkhLdGI2bnpJMlRDM3BUUGw2LUhKR2E1M0E2YkM4ZVJOZWREMmQzLXFxeFl5WW5YeW5kOUxTSjBVUkZKYjFXZ05keWgtWEVBYldJMk9kX2fSAVZBVV95cUxNdVZMUmFjYS1NSnlmZ2gxWXRSR3dfTnpZRFlwdUJ1NE5SSVhZMzNlZU12SUR2bG1kaFFSWTAxdUV4RkZ1aUgyeVl3dEkxSWVpcDdxTDFVUQ?oc=5) |
+| Colin Kaepernick to pay for independent autopsy for Delta State University student found dead on campus - localmemphis.com | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxNdElxRlhoMlVRYW9DM2dTWUIzdURlQ19yekRjQi1lNDVjWWVYejBNdi0yVDI5THZJYnJnMGVpQWpwR2lZMTR5MEQ1NHBUNnJYeUVVQzhsLWF0NlVtekxJWDhsY0U2cmRYNzNTbEVUNGZQa1VtX3dRTDNBejNvWW10eW5vc185WDlVbk9sYnI0YnVFcEg5TGJ6VFNBMl9acmJhMXFrcXlESWpNYmhSNzBDamdyWHZ2bW5TU0FUNmpPbF9jajNVZWlJU2x5cFpmQm1kYlE1MjUzeXVpZ2tlMUpLbjN1ZXVnaTcyU3ZfTEJfR2tzZw?oc=5) |
+| How a secret recording of a gender identity lecture upended Texas A&M - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPOEo0RHFtMVhLMkI0aVZPNVVMZXN0S1Y0OXBLWTFHRG1jUGw4MzlYZ3Y3eEJ5YXBFcG1YRTNLaHNQcFZSZlBEZUZaYmlVemR5SmFLMm9McnBVYldweTBCYUhYOGFfVWJqM3RHNW54QXN0aUhwa2EyVFB0VVM2QkV1emtwdU5fenkxRWEtWEJlZnQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
