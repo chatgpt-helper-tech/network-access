@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 12:49:51（北京时间）**
+🕒 更新时间：**2025年09月19日 13:01:33（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Travis Decker search: Officials say remains believed to be dad accused of killing 3 girls - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPREJQV3kwN2M3ZHpWbWFaNzBUdVQwMFkyaTU0ZV95ZHk5eXF1bHUyWEhSRnl0SHAtZmZpdWgxOXpQZFNFcDlyUmNXZXBPNS1paENoQlpGRGZId1JtZzZuX2NSWUlNM0d1Z21BVlpSWmlBaG5mbHk5cnNjeGxrUWNvTmtXOGphek1FOHFLUjZSUnVqRkVlQ0p5Z2xUUXFHb00wWUHSAacBQVVfeXFMT2lTWUc3N0oyUlZyTU9JTERpdU56OGF0N2I1N3lFdzhfc050aEdpeTZlbzNPcS1vX3lxaXh1NS00dHdyWVdqTDVzUmZRcTRCN2REYk9VRW5UQzRENHJmYmM0dXNrYjN3cXN4YjFtaTJNQl9pZkVyNS1qVWhwaWFJTXRGVHJfalU3RTdBYm9UTURTSXVkZFBRQnlYb1NpSzdlZDFFVTl6WlU?oc=5) |
 | Chris Mason: Delight and relief in government after Trump state visit - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1sd05lYldpSjZyczVwbzJzSGFkNEtQYnphaF9JT0tJWFk2TWVKbUE4UHR5bHF5VUtWdXhLMW1EdDlsaEtlZ25fZG9qQ0E2dDlVVFRaUXZpT19mQdIBX0FVX3lxTFBYX09SNmoxVVp3ejBwSEFwRmhyQjIwcmJKU1Vzbzctc1FUTVBHNUU4Q29Oa1lQX0s3b19nd0M0QWFZLWIxZG9NeHNTcmN5UkYtbWhFbEVYUElmOHhvalYw?oc=5) |
 | Trump says he's designating antifa as "a major terrorist organization" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1XZXhqRmtraGVfVlVPVFJ1bVFmRmQwV2dCVzhhUm9Fb2ktVWJTWEFsYnMxSno2Nmpqdjc0eXhQUzBjamM1VUt3VlN6MWFXM3JGR2xJNUhRNkc5SVVUYkZ1R1lpeUxZeTRQVDNRZjdrNlk2SkpNSmc?oc=5) |
-| Dissent Grows At Disney Over Jimmy Kimmel Benching As Talks About His Possible Return Continue - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9mRkJZQ2N4QXdETUpDNldVUEVSRkg0c0dSRHM2b3hsM0cxdGRLY1dhWF9ORmZwclFVdmplcHVYRTU3SFFmRjloSmMyekRMaHpUWlNNdXEzVFVHSzdxck1DMTB2eDluTGk5Z2JiNUFIZnBJOXR1bHZCNHUwMzdOQQ?oc=5) |
+| Jay Leno, other comedians comment on Jimmy Kimmel's suspension - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNTmVEYlFkcUpQeTgtYzdVQUxCVzlfeXRsOGVfaGZtcG9Zd05JRTY2bnBLallRTVdaM0JSeEdDU1c1cmdCTFFhTjR0ODhXYXZxS2VwUk0tNDJMNHNhNE04UnhSZlJOVFhUUmd1NDlFWGMtdEktQm4tOFBxa1dPQUkyUFU5eWFoMWEwWmFR?oc=5) |
 | Threatened by Trump, Canada tries to make up, team up with Mexico - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQMGZkLXI5bUtIZ3RNWDNnV1RjMUlwSGhKaGRvd3RqWVg5NnlvRnc4Nm5nWGpXRG1aZk5aSEc5VmdBOEhxZkdwMkhOSU12Tnk2NmFSdFhmNEFtUnZPbUFzUUxOQU5YWGx1dmJBVXVfemxyOElQbEpNQ1RXNXNRbDFXQjd6eEV5SmFET1ZTVTI4X0FsaTN0YVE?oc=5) |
-| Texas A&M President Mark A. Welsh III to step down after a week of turmoil over viral classroom video - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNSW15UXJ0UXZGRzE5MWlRM3Zjc3JvWWxHM0Q4QWQyaWk3a2xUUTRiXzdOYUhmYzJXcV9lTHROeXlueXNfaGtqWmpqS2ZGc2tiZFA4aWRLV2trU1BrV3ZXU2gxNXNpejhEOW5tV1pfc3NWNTR5SC1ScXdrUHdiY2pzQzFHLXRRekZ6c3FIRjdicVYzUUU?oc=5) |
-| Trump admin’s basis for deporting Guatemalan kids ‘crumbled like a house of cards,’ judge rules - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQVEdNd3ZDTmtBblN5YVZXYlhWaklNeVhhYkN6S2RfOFJubE5ZT1NpOGZaOEQ1ZEMtZVFwVFZuTzFqUnZWeHRFdkRiUzlVelNxaFlzdEhYZzdURHJydEdTZE9CamZFcUUtSTVpTlpMdWZDbnFwOUYyNi1GQmdlYmhPUkpIWnI3dFFNb3JFS2VUNmxFQQ?oc=5) |
+| Texas A&M president is stepping down after upheaval over classroom video - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNdk5iMXVxXzgtZXpNTEhJLTA5R05FNXk1blZtcGhETnpQZnhoRm83b3Y5WGVYUDFCbzNWeTVwRTVCMXZQU1pwdzJzM05HUjJQNmU0TldTZV9LRTlISnQ0MkpBN2poZzloT1FRRGFOVmhudWN6bmkzY1laTmNJMUNaalhXbENhZTNBV1pvZHRfbS1aYjhtUDktNkwyVnJNdHJtZDdYSw?oc=5) |
+| Judge Blocks Administration From Immediately Removing Guatemalan Children - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOczBHWEpoaG0xaENLT0RZYmxZLVlCMmlWZnVYUzB6ZzlURjNfWFNnSkxOYURHbUNfUEItRnZyVFJWOE5KX0Q2S2FwLU1lWUZRRHl4S1FKWUthcHUyZm82VnJqU2hOUGdnSkZkNFFndTQ3RDBVVFVjQzNqTnFldDNCNHZEdFp4Yk1JMkJr?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
