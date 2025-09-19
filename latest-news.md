@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 18:37:53（北京时间）**
+🕒 更新时间：**2025年09月19日 18:49:46（北京时间）**
 
 ---
 
@@ -8,8 +8,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| British couple freed after months in Taliban prison | [阅读全文](https://www.bbc.com/news/articles/c0q7l8ewj0wo?at_medium=RSS&at_campaign=rss) |
 | Minister rejects Trump's call for military to tackle illegal migration in UK | [阅读全文](https://www.bbc.com/news/articles/c04qre9l0v3o?at_medium=RSS&at_campaign=rss) |
-| British couple held for months by Taliban released from prison | [阅读全文](https://www.bbc.com/news/articles/c0q7l8ewj0wo?at_medium=RSS&at_campaign=rss) |
 | Trump says TV networks opposed to him should 'maybe' lose licence, after Jimmy Kimmel suspension | [阅读全文](https://www.bbc.com/news/articles/cr4qe0rz2zvo?at_medium=RSS&at_campaign=rss) |
 | US blocks UN call for Gaza ceasefire for sixth time | [阅读全文](https://www.bbc.com/news/articles/ce3yj41083no?at_medium=RSS&at_campaign=rss) |
 | Why France is at risk of becoming the new sick man of Europe | [阅读全文](https://www.bbc.com/news/articles/cvg9n6vr2eyo?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | A woman's remains were found in Oregon in 1976. They've been identified 49 years later thanks to DNA - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNOTgxZVk4Qy1jTjRWWG5ldlhZR2FYVU9WTllHRVdXN1VKVGN0UDJab1hMRmR0NU9Pc1FLLURyZU45TXZhT3VFcTlTMW85MmVTYlVnNXFIQW5jSkNnZ09qZ0d5ZFhMX1EzODhpV0ZkQzRDWXRGMXQxRWtycFdnMk1UYXpYWGlJNlpya3Z4TDNHSVdFQ0ktd3ZzWFowbUJJMFhX?oc=5) |
 | Mexico and Canada make nice ahead of high-stakes trade talks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPSWg3eGsyYWNPcVBOMGMxcnJlVXpLODlWSXFLbFQ5R0QyaTl2UG9qb3FPNnB0akppQlFYREVHQW55NnBEOVNIT05LQmN3SVRZS0hRYUN0YV9mRDdNY0VFRG9zWkx1OVM3WTBkLUlUeHZmdTZmbERIbXZjS1k5NDUxcEtXNnVScUQzX2hpbmt4Zl8?oc=5) |
 | Texas A&M president resigns after instructor’s firing over gender teachings - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQRFV5ZXdfUmF5RWlVVlZCODRrZWl1RFNFS0g1WmZiaEpFUkZrZUVkUjdlRGxYX0hwSHRjVVdOM3hHaE51RkhJNjg5dk01dWRlNW1YSFFoZjh2NURVZmdfNjlTYmFESV92d3VsX0NYNEY5c1pDWlowczBlU0pWNHFFS0pNeUdSOTMtX0phbk9IS21kSzV1Vkhj?oc=5) |
-| Trump and Xi Set to Finalize TikTok Deal - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQUkZLTHdBS2RPWWJmbkxuY2s5NGVqc2gyQ3FHek12cjVLUXoxRGxXbV9jeTFTTlBCQnBXTWRMT2FOakNxTjUwbDFZQ1o0U2JiYk9MdEMwODFadU1wRE5LTzFzUHZKTFdXbnVjb0E5NTBQdTVKelVRRXAyaHhJOE9rcThjblRfUUk1dldZcFRvWTZiV0oweHBfLU4tMA?oc=5) |
+| Trump says US working to take back Bagram Air Base from Taliban - Military Times | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOdFF3dEs5b2xJcjJCN3NNUVBBMlVYb0F4amRsMGc1UDlzQXJsWGtLREhFcjB1UG9jclNsYW5kdEtvMUVXdGVMb0lZaVNhRnJkSFhQdnRTUjRTMEN6bi12ZkUyR2ZERmJNZy1YcjBodjhJajFkV19hM3AtN0E2ZkxOXzJQUXFQZmdyb2F4c1EzUEhlU2hyYUp3QUhvdlY0M2t6RUFsVFhjb0p3Y1VXTTNkdXJ6dUlfVWx0ZTBBRVBQVElvTWtsMXpB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
