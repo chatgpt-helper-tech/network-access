@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 05:25:05（北京时间）**
+🕒 更新时间：**2025年09月20日 05:37:34（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Nato intercepts Russian warplanes violating Estonian airspace | [阅读全文](https://www.bbc.com/news/articles/czrp6p5mj3zo?at_medium=RSS&at_campaign=rss) |
+| Estonia seeks Nato consultation after Russian jets violate airspace | [阅读全文](https://www.bbc.com/news/articles/czrp6p5mj3zo?at_medium=RSS&at_campaign=rss) |
 | British couple freed by Taliban hug daughter in emotional reunion | [阅读全文](https://www.bbc.com/news/articles/c0q7l8ewj0wo?at_medium=RSS&at_campaign=rss) |
 | US TV hosts back Kimmel as Trump threatens networks | [阅读全文](https://www.bbc.com/news/articles/clyxjve3pe2o?at_medium=RSS&at_campaign=rss) |
 | Two ambulance workers arrested after the deaths of six people | [阅读全文](https://www.bbc.com/news/articles/cvgvnvnm0vro?at_medium=RSS&at_campaign=rss) |
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump administration to add $100,000 fee for H-1B visas - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9jejdTSXBlMkdiMnVaeHI0TzJvQjN1VWZXUDhkQnJ2R0dMTElPMFVWcHVyLUoyMXpuaUNnREU0WWpwQUM1TlFlS0ZaVTFnVHBFV0dsTlJYRHZmUXp3dUVBVXUzempNTWsyWjNVQ9IBckFVX3lxTE1QSF9sZkFUN0tteXVxbmhFbHljeFlBUU8tVThsMHotVDJ5OWZWMTNTRE9HSUJDaWw3OTFuS0NuSzB4N2Q2NWdYYnFlZWNLWnVMMEdPR1hOTDd2aXhqRFlwZG5Oa0E1TWM1MG9JcmZ5YlZQQQ?oc=5) |
-| 'Dangerous as hell': Cruz blasts FCC's Jimmy Kimmel takedown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPTWI4aFktaHNGUjY0NFpSLUgzWTFSUjlLMk9PcHBaWWVEMGhqd1AzUGp5X0dpTGtWYzNNbDY3WmFIN1RmWl9FWGNPV2prNFdYYTQ1SWZMNmNCTzU4TlFFQ25WeDcwN3d4U09vTGhGcjludktnZks3MnpuWkcyZkNkTHoyVDBOQVV2QmZHMmhSSGhhNDJNc0l1dXRRcGtIVUV2TEtLUEVRSDJOaVlVeUVVdE5kdko?oc=5) |
-| Judge dismisses Trump's $15bn lawsuit against the New York Times - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9ablR5UkVqbG5feXNFT1lIaFY0MGxYS0NVeWIwYTIwSXdjcER1aktYbWJXMEZ3bXNWeHltckNQX1lhZjNNdzczRk4tV2dfaDlkYlBvRzFGSHo1d9IBX0FVX3lxTFAtQ3NOYVlROS1IQlVMY3ByZDhfSk1KSGhsRHdmazlOQkVCZEszdmRnSVZDbmtCSUFfdmpFdXVQUzVCcjFhdGpybVA2RHpEN0tVSDRCUWp0SzE5YVhfVFdZ?oc=5) |
+| Ted Cruz: MAGA "will regret" what it did to Jimmy Kimmel - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5CMEVPcFd5TjZpeTJuM2NKc1lja29rZnU1Tl9qTVA4aVhWYlF0TzFacWdKWVc5bGdCV05Qcjc2M2dteVBOZ0lKNV9JazhXdzZzXzNuQlJKdHV4cmdUWW04eEVtYmViNmZVM3BqUi1UUFpTNldORUE2VFF0VQ?oc=5) |
+| Trump says Xi approves of TikTok deal as leaders plan South Korea meeting - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1Kb1ZiZWljcnpkNWZmVkVSYTk2RVd5MDZNT1pCM3ZSb0NDdl9Jd3pES1hadHc2bDIxRjVLV3FfZTdwRUtGTnZPdEZjNlVFRW5WY1BMYWdWOENMZ9IBX0FVX3lxTE9hZlo2UHFNR1VjTGFTblo2NTVwR0N1eGk2OHhJVG1TZ3JleHI2ZnlXM2RJYlM3RGhqZTUydGtzcjRxU2VEYVlkX1B1aXBkcXB4OThSTjBqR21PVGxJQWRv?oc=5) |
 | Trump Live Updates: Government Shutdown Looms as Senate Democrats Block Funding Bill - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE05c3dlVC1aSktRTjdLNTNnNHQ2QWtmRjhrcjZhR2x5c0JPOHNuLXRQbktFaldTVDJJNzRWYXRPTk95aTk1a2x2NzMxbjRVNjRQa1FxSFpfVnZKS1g4cjVJQlJjVQ?oc=5) |
-| Nato intercepts Russian fighter jets on ‘reckless’ violation of Estonian airspace - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQTzNNanpJWk1QUkJYNFdkenF2TEswdXpiY3dhMzNvNDhDdjBROUlCT0N0WVQ2cGZGcEpwRUNjaFRhSEUyN2RXZE9uVGg2UmVnY1VNdnZCY1VHU28wb0FMRVhnSTFmSVJRUkZBYWpiVmtzd1ZHemtzRGxaWmk0aDNudGtneFJjdGRJYmwxUWFBSkRFbGl5V0FOcWx0N3JadmU5QmJTd0dTTQ?oc=5) |
-| Trump intends to fire US attorney who didn’t charge political enemy Letitia James with mortgage fraud - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOSFRnVFYybFU3ZVhVR2t0QmY0TFR1M25hdFoxX2hvOXFWWEVDaU1uQTRzek5IaHpvUTZSU29DcktZT0Jld2pYcmJvMzZENTBINHduc0lpSFNqV0tiZXhDd0prTjNMaDJRaXdYUkFUTTE2eUdFRzZGSm9SWWtTd0RoRld3?oc=5) |
+| Estonia says 3 Russian fighter jets entered its airspace in ‘brazen’ incursion - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNaTVjUkNqRVU2WE1XcjljbWQ1VC1xbWM4b1VURkdyQnlaUW1tM1VLLU9iM1o5b2J4V2tMOWFTLW1JeVBMWkw0UU1lQWF5bmx5V2ZHTU1wcUo5QzJGRWpNVTZHb085UUY2UlEzc1BMMU8yWUVzNjRYbDJ4OUN5Z3hSSTlXOXcwMm90QnpIbnFqUXd4aFlWS1h5WmUtWQ?oc=5) |
+| ICE fires chemical agents at Broadview protest: Live updates - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQN052TW9YVzlUS2NLUHdGRWpsMUtQUF9aMUZETFJVU28tUkdHRm54cTJHWkJkMXVTQTZual9aSk9OOUE3OC1hNllIeGpaRjVmQkJmRVVRNGVMUjRXVkxtZTJIZ1pGRFlsa0Ria1BFTjhhUlM1cEFCc2lzZFJjZzJWWUZR?oc=5) |
+| Florida federal judge tosses Trump’s $15B defamation lawsuit against The New York Times - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxORF80WHRCSGZhNTFTSXZDU1JSVnEtWmdOYk9UaURqZzg1YVI2enFDNnU3d00yZy1OR3NHRk1SRTl4d3pvcUJkLUhiOVFZZU8yQm1PaGJJbDBSQnFVRHYxYWVSM29ubFdraGhlN043U2JjMVlfREVyVFpUZTlYNXlrZmtXQW1qb3F5UzF3bUN0Mk9pQQ?oc=5) |
 | Texas A&M president resigns after instructor’s firing over gender teachings - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQRFV5ZXdfUmF5RWlVVlZCODRrZWl1RFNFS0g1WmZiaEpFUkZrZUVkUjdlRGxYX0hwSHRjVVdOM3hHaE51RkhJNjg5dk01dWRlNW1YSFFoZjh2NURVZmdfNjlTYmFESV92d3VsX0NYNEY5c1pDWlowczBlU0pWNHFFS0pNeUdSOTMtX0phbk9IS21kSzV1Vkhj?oc=5) |
 | Trump to Harvard: Hand over race data or face "further enforcement" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE43S0N3MUUwbHRMT0l1YUJmMTE3SHB0WEF6M1V5ODQ2RC1BTVNwQlZ5ZVlQQUVoWGZjVmlDNmM4TXlqaUpkcF9FeTdibC1ZMzU0VHNmMmwzX3dkLUVRaUxHYW9IaWdZVHAxUTh3X1dxRjlvSm05UFE?oc=5) |
 | Congressional Black Caucus says resolution honoring Charlie Kirk ‘not about healing’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNYUVpOERySGd6dTBmSmVtUjYzS2YwSUdpa0lOa2hRUWQ0TUdZU1BVVnhxR2VDNlZ5Nk5DcnMwOElZYWIyUUhRTFlpLThjcEw1TGdZdlY2VmRCTjJTMUtkX2paUkVkSUZ3ZjRzQnJ3VW1JdE1VRU9ETkxjbUw5T0JhTkNkWTA0ZlU3bXNDV0xQSTB3Y2xmbzg1Z0VPSGFZOFNRdmxhWWNJQ1A1QklFdUNmUjBiZDVuZmNN?oc=5) |
-| Democrats round on Kamala Harris for dishing dirt in campaign memoir - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBydE02N1JDWDVMZTBNZUV0a1BBbjFmSEVSczJSalJ4RXdjME9zcjB0OUtlRTR3WE5UVDVzcmVxcE93NW1mTTlybXM5eXphUnpGa0xCcTBUWjgxQVhXVk95RnUwbER3b1hBSUNBdkVQdmg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
