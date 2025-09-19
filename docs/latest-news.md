@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 05:12:36（北京时间）**
+🕒 更新时间：**2025年09月20日 05:25:05（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Nato intercepts Russian fighter jets on ‘reckless’ violation of Estonian airspace - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQTzNNanpJWk1QUkJYNFdkenF2TEswdXpiY3dhMzNvNDhDdjBROUlCT0N0WVQ2cGZGcEpwRUNjaFRhSEUyN2RXZE9uVGg2UmVnY1VNdnZCY1VHU28wb0FMRVhnSTFmSVJRUkZBYWpiVmtzd1ZHemtzRGxaWmk0aDNudGtneFJjdGRJYmwxUWFBSkRFbGl5V0FOcWx0N3JadmU5QmJTd0dTTQ?oc=5) |
 | Trump intends to fire US attorney who didn’t charge political enemy Letitia James with mortgage fraud - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOSFRnVFYybFU3ZVhVR2t0QmY0TFR1M25hdFoxX2hvOXFWWEVDaU1uQTRzek5IaHpvUTZSU29DcktZT0Jld2pYcmJvMzZENTBINHduc0lpSFNqV0tiZXhDd0prTjNMaDJRaXdYUkFUTTE2eUdFRzZGSm9SWWtTd0RoRld3?oc=5) |
 | Texas A&M president resigns after instructor’s firing over gender teachings - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQRFV5ZXdfUmF5RWlVVlZCODRrZWl1RFNFS0g1WmZiaEpFUkZrZUVkUjdlRGxYX0hwSHRjVVdOM3hHaE51RkhJNjg5dk01dWRlNW1YSFFoZjh2NURVZmdfNjlTYmFESV92d3VsX0NYNEY5c1pDWlowczBlU0pWNHFFS0pNeUdSOTMtX0phbk9IS21kSzV1Vkhj?oc=5) |
+| Trump to Harvard: Hand over race data or face "further enforcement" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE43S0N3MUUwbHRMT0l1YUJmMTE3SHB0WEF6M1V5ODQ2RC1BTVNwQlZ5ZVlQQUVoWGZjVmlDNmM4TXlqaUpkcF9FeTdibC1ZMzU0VHNmMmwzX3dkLUVRaUxHYW9IaWdZVHAxUTh3X1dxRjlvSm05UFE?oc=5) |
 | Congressional Black Caucus says resolution honoring Charlie Kirk ‘not about healing’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNYUVpOERySGd6dTBmSmVtUjYzS2YwSUdpa0lOa2hRUWQ0TUdZU1BVVnhxR2VDNlZ5Nk5DcnMwOElZYWIyUUhRTFlpLThjcEw1TGdZdlY2VmRCTjJTMUtkX2paUkVkSUZ3ZjRzQnJ3VW1JdE1VRU9ETkxjbUw5T0JhTkNkWTA0ZlU3bXNDV0xQSTB3Y2xmbzg1Z0VPSGFZOFNRdmxhWWNJQ1A1QklFdUNmUjBiZDVuZmNN?oc=5) |
-| Trump Officials Question Harvard’s Stability, Saying Federal Inquiries Raise Financial Risk - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRlJJdVhmTm9feEdQaHd2d01vRmJIOTZZUTM2N2pPVDB0czdEcVpjUUpkT0p2S2xscDlVZ1pLSWp5eFJyOXoyQ3htSFFsdzBRVmstY0l3elJtOUlxUHNtZWJLcGNwTDA1X3VPU2JEY2VUR0hVaVhKeUZITXBUdXBVUDFGZ2dKc0k?oc=5) |
-| Harris says Newsom avoided her call after Biden dropped out of race for president - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPN1BvbkxFbHVxendnd01pOTVnOU1yR2xIcW52XzdBUjhPUmlQQmRCQTFzdHNWNndyMVI5emt1eFZFTG5HYWhtTVMxNkliSXdBVjBlRUpWQkdBRlBDSWowaHdrbkxpYmk1ZDBVaDEzcHBPYkxvR0tuZ0tXWnZELXFRMA?oc=5) |
+| Democrats round on Kamala Harris for dishing dirt in campaign memoir - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBydE02N1JDWDVMZTBNZUV0a1BBbjFmSEVSczJSalJ4RXdjME9zcjB0OUtlRTR3WE5UVDVzcmVxcE93NW1mTTlybXM5eXphUnpGa0xCcTBUWjgxQVhXVk95RnUwbER3b1hBSUNBdkVQdmg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
