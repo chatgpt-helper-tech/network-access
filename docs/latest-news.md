@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 11:49:38（北京时间）**
+🕒 更新时间：**2025年09月19日 12:00:42（北京时间）**
 
 ---
 
@@ -11,11 +11,11 @@
 | Trump suggests Starmer could use military to control UK borders | [阅读全文](https://www.bbc.com/news/articles/cpd91wjypj9o?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Delight and relief in government after state visit | [阅读全文](https://www.bbc.com/news/articles/cvgn3445655o?at_medium=RSS&at_campaign=rss) |
 | Second migrant to be removed to France after court bid fails | [阅读全文](https://www.bbc.com/news/articles/cx273vnkjpmo?at_medium=RSS&at_campaign=rss) |
-| Trump diverted and forced to swap helicopters on way to Stansted | [阅读全文](https://www.bbc.com/news/articles/c1wg8nq0p3ro?at_medium=RSS&at_campaign=rss) |
+| Trump says TV networks 'against' him should 'maybe' lose licence, after Kimmel suspension | [阅读全文](https://www.bbc.com/news/articles/cr4qe0rz2zvo?at_medium=RSS&at_campaign=rss) |
 | Why France is at risk of becoming the new sick man of Europe | [阅读全文](https://www.bbc.com/news/articles/cvg9n6vr2eyo?at_medium=RSS&at_campaign=rss) |
 | MI6 launches dark web portal to attract spies in Russia | [阅读全文](https://www.bbc.com/news/articles/c0r0vk1j4j8o?at_medium=RSS&at_campaign=rss) |
+| Trump says he didn't want London Mayor Sadiq Khan at state banquet | [阅读全文](https://www.bbc.com/news/articles/cwyl01x9pllo?at_medium=RSS&at_campaign=rss) |
 | Corbyn and Sultana clash over new party membership | [阅读全文](https://www.bbc.com/news/articles/cgkn3v1e7g3o?at_medium=RSS&at_campaign=rss) |
-| Ros Atkins on… What Kimmel's suspension means for free speech in the US | [阅读全文](https://www.bbc.com/news/videos/crme42nr8exo?at_medium=RSS&at_campaign=rss) |
 | 'Cataclysmic' situation in Gaza City, UN official says, as Israeli tanks advance | [阅读全文](https://www.bbc.com/news/articles/c5y8l46m5evo?at_medium=RSS&at_campaign=rss) |
 | Spectacular autumn leaves expected after warm UK summer | [阅读全文](https://www.bbc.com/weather/articles/c5yvd830p37o?at_medium=RSS&at_campaign=rss) |
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What Jimmy Kimmel’s Suspension Says About the Trump Administration’s Crackdown Against Mainstream Media - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNVTZfak1BaUEwbHVvOUJlUGE1NjlHM0hsa2ZHbXZJRWVidmR5bDFlS1BRMU9NX3JJZ0w5dGp5MEhtRUg3S1dKVFJ6N213d09ISlNkRlBNSVZCck5CdTQ4SXlsS1pYbDlscEUwT2UwTUJVN3NvZlgwWkVGdmdtTWRBbFM0eVNwbWNneWxTUWJiNEVUTHRsYXJVbFRR?oc=5) |
-| Erika Kirk named new Turning Point USA CEO after Charlie Kirk's death - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQS25IRFZEM2IydHc5UHhBNTdsUGl5YlFRaFZqVGNnUFhDMzNkVzh1WWowQ0ItdFZ2N184eC1FRnViV3F5SUJrSF9vWEhxOWVobnM0d3VaWHd1cWxoVVhDWUFQaXdPOFdWVnlyQkpNc0s2SWNYVWVpTnBGTEhHZEJRWDY4dm4wVDg2?oc=5) |
-| Man dies from blunt impact injuries after riding coaster at new Florida amusement park Epic Universe - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE92OG4xa0tYaUZ5ZFNPSUhYdl9yTEUxejBKQjFNQ3Y1ZDBMZlg1RW1samo2WHpicV9RVURGMGNobnNXTTZuRXhtVXlpc1pDQVptbFRienpYOFhRcTQzMlBZeGliY2gzTU1RWTVHV2RwNWxScDBtdXBmVg?oc=5) |
+| Erika Kirk Takes a Leadership Role in Turning Point USA - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE80VzJ0SGFEZzg2dndDU3dnaV9sTEppSDY2NHdHZVNjQ0JYbTFpTUt3UERQLWtac0RBYy1OWl9vaWFWZk55amZYSk9JcmV0TjJOMi1LSlRCQ0c3a0dXTGR6Z05TOUlLLXRHdVgwb2MxTUljQ1dnUC1nSVZPbDJteTQ?oc=5) |
+| Trump floats pulling TV licenses after Kimmel suspension - Axios | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFBKaDZQNGticDMxY3RDbnhMZUxfMjFxRnRZdkJEeU15VkJ2dU1Vb3pwSWozaGh4LU1Wcm05cHdPUjNZR1V2b3g4ZHh4X1lVSmVnVVcwSi1fbFB1dnMzZUM1SWNJYkNCVnFza1hwaUlwYw?oc=5) |
 | Trump poised to fire US attorney for resisting effort to charge NY AG Letitia James: Sources - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNYjFUR0ZpakhnRHFmcF9RX0p6YWFGQlQtMWR0UXpUeVNXUE02SUtrVXZFbVBiaTJET092Rnp3Z3JsM2kyQ2M2REN3bHdDVnN5Nkl3Tm4xNXZpU1BFRkE5VVRQUC14U3l5OEU5WGstSHNrS2YxdGdDN29SaEtJaXZ2d3B3M2ZkLTBDRWJvZTZ6dndxT2xLR2dlOE9MVm5yUjDSAaQBQVVfeXFMUG9NdzFNdlhNQTg1VVk2b2JOSmxyOXIwdjJVRVo5dHVvTDk1V3N5dGhONGxIdElJSWhBQm9XM1R1bUVCNm9VMnZpbWttc0tNaV9DLXcwekJMMVNjZFhRSlZKdUVKaGpfLWJNLWowOGhOYVpoTmlOeFJtWnNqTkU4Wldhc1JXVnNHOVpudWxLWThCY29Ra2pFa2tzZmhaU3c2Y3BFRks?oc=5) |
+| Man dies from blunt impact injuries after riding coaster at new Florida amusement park Epic Universe - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE92OG4xa0tYaUZ5ZFNPSUhYdl9yTEUxejBKQjFNQ3Y1ZDBMZlg1RW1samo2WHpicV9RVURGMGNobnNXTTZuRXhtVXlpc1pDQVptbFRienpYOFhRcTQzMlBZeGliY2gzTU1RWTVHV2RwNWxScDBtdXBmVg?oc=5) |
 | TikTok deal looms as China talks stall - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQYVFtRFpkOGFYNlM0S0Y1cWZkTTZzbEtiUzJxV1JvMXViQmY2TUsyOXM4ZWJZQWRpRFlfak1hclAwNWlTN1F2MmYxdHRaemkwOVFYa3U3X3VhVE5RWmJIUVNheGVPT3lVTXdqQWtSblVqSnRhaVBhMDlZRmRkRTlMdmpXRFd3bEFqcGw3TUxER0FsUWlIaS1tUmlOMGwwQnpXUkpjYW93?oc=5) |
 | Suspect in killing of Pennsylvania officers was a 24-year-old being sought on stalking charges - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPN0pxQTJOcXdaTGRRdFlMbWhTeUZxaHdmaGdtdzBFc3dzQUIxbV92RzE1VnlTVkNMRDBRUnlFZUlsZEljR3E1ZW9ybEZJNTdGck9pbHRSWnV6MXFFZnJ1WDlaVmV5aVRjdmxwYy1KanNJaFlsX1UyQVJ4Z0xIcXNmbWpLWkZaOTlF?oc=5) |
 | D.C. mayor calls House hearing ‘disgraceful’ for GOP’s depiction of crime - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQcWllZGtWWVNNMGk2cXI0b1ItTEpLTG9Id2dkeFpPY196UDUxWUJHZEd2dFp6QmtsUU51YnNBNFZVRjNzVHF2TVREYTVQcTlkYlcxU0x4eXh2aG1iSGxMaG81eVFTelJmQm1LZVZ0UTlpb1p4SlRiVVJ0LXpPX1VQOHJKWmhaLV8yV0ZBZG9EMUZab3M?oc=5) |
