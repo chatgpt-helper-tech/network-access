@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 11:37:38（北京时间）**
+🕒 更新时间：**2025年09月19日 11:49:37（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | TikTok deal looms as China talks stall - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQYVFtRFpkOGFYNlM0S0Y1cWZkTTZzbEtiUzJxV1JvMXViQmY2TUsyOXM4ZWJZQWRpRFlfak1hclAwNWlTN1F2MmYxdHRaemkwOVFYa3U3X3VhVE5RWmJIUVNheGVPT3lVTXdqQWtSblVqSnRhaVBhMDlZRmRkRTlMdmpXRFd3bEFqcGw3TUxER0FsUWlIaS1tUmlOMGwwQnpXUkpjYW93?oc=5) |
 | Suspect in killing of Pennsylvania officers was a 24-year-old being sought on stalking charges - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPN0pxQTJOcXdaTGRRdFlMbWhTeUZxaHdmaGdtdzBFc3dzQUIxbV92RzE1VnlTVkNMRDBRUnlFZUlsZEljR3E1ZW9ybEZJNTdGck9pbHRSWnV6MXFFZnJ1WDlaVmV5aVRjdmxwYy1KanNJaFlsX1UyQVJ4Z0xIcXNmbWpLWkZaOTlF?oc=5) |
 | D.C. mayor calls House hearing ‘disgraceful’ for GOP’s depiction of crime - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQcWllZGtWWVNNMGk2cXI0b1ItTEpLTG9Id2dkeFpPY196UDUxWUJHZEd2dFp6QmtsUU51YnNBNFZVRjNzVHF2TVREYTVQcTlkYlcxU0x4eXh2aG1iSGxMaG81eVFTelJmQm1LZVZ0UTlpb1p4SlRiVVJ0LXpPX1VQOHJKWmhaLV8yV0ZBZG9EMUZab3M?oc=5) |
+| Buttigieg responds to Harris’ VP snub: You earn voters’ trust on ‘what they think you’re going to do,’ not ‘on categories’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPa3lTT2FaOW1MZ3hYLW1NZXFUWmZTc1V6eFhNOW0zcGgyQ0hfdjh5MGY5NDZkbzRFeUVSdm5wX2ZZTXRUelJOOGsyMXl0T1pGeWVnMTBQZVktbEJmTTZybENsdUg2VjVVMmZwZk1EWldLSng2bUc2N1NSOW5WeXV3YkNmTkJaVk9DX0REM2c2c1g?oc=5) |
 | What to Know About the North American Summit Taking Place Without the U.S. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPa2czWFQ4c1VieFpTZzltcFRneXlIN3lIZUF1UG1CSFZidlZHc2RaZnVGVEVQYjg2YWtUYWh0YlJiTE1TWFR1bVdjcUoyVnBURjVjN1ZMWmdOenNUcmtsNm9sR2VSMXNIaHlJV015cTlxRjA2WTNNRXpqcVkxNnVuZkxIM2ZpcVhXZ0pPTDVwUnJFbEh2b3VLODlR?oc=5) |
 | Texas A&M President Mark A. Welsh III to step down after a week of turmoil over viral classroom video - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNSW15UXJ0UXZGRzE5MWlRM3Zjc3JvWWxHM0Q4QWQyaWk3a2xUUTRiXzdOYUhmYzJXcV9lTHROeXlueXNfaGtqWmpqS2ZGc2tiZFA4aWRLV2trU1BrV3ZXU2gxNXNpejhEOW5tV1pfc3NWNTR5SC1ScXdrUHdiY2pzQzFHLXRRekZ6c3FIRjdicVYzUUU?oc=5) |
-| Judge blocks administration from deporting unaccompanied minors to Guatemala - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPZ2R6Z2pIX1FQcjEyZ1VQdTlSVm1XUkc1TUl4YlJFbzdnekZ0dDNoN3poR1RVaGxhUzJrNmtRazNDYWt5UklUTkVhbVZUaWlBMjFjNkY4OE5fbXVqVGpJeVBPR2lYeVN2bHBXT2hvcEFydUloUjg0Unp5UlIySy1qaG9kanBzQjhaaGQzN1VsTkFudG94STdGaXNBTk9OeHFadWpGQkVYQWVrSDNMdlNXTUZUMNIBuAFBVV95cUxNTk8wdHV2ZFB2YXoySEhoXzNyOVF0NlU4SlB6QUV0Zm1yZ2RxYzhtY0c4dFMwSXlCYXRCS1ZRc1Q2Yk5ETUN6T3p0eGFqM2lnUUpRMURsMnpIRkhCUEhSODZKQlRaTC1SdGlBVEx0ZWFQTmVGMDRxZzB4U2x5eERYZV9JTThMaGRGa3l1ajVjbVFFWjE5UXp5YlBLS1dNMExhSF9SMlFzY2Qyb3AzMHZQSHlJdEQxT29q?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
