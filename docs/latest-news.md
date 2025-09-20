@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 15:00:28（北京时间）**
+🕒 更新时间：**2025年09月20日 15:12:47（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Queen statue will show grandeur and dignity, sculptor says | [阅读全文](https://www.bbc.com/news/articles/cd9yjzd757eo?at_medium=RSS&at_campaign=rss) |
 | Faisal Islam: Will the US tech bromance turn around the UK economy? | [阅读全文](https://www.bbc.com/news/articles/cn4w7wp24llo?at_medium=RSS&at_campaign=rss) |
 | They shed pounds with weight-loss jabs - but then came the loose skin | [阅读全文](https://www.bbc.com/news/articles/cx2500v087xo?at_medium=RSS&at_campaign=rss) |
-| I'm nothing like Peaky's Tommy Shelby, says Murphy | [阅读全文](https://www.bbc.com/news/articles/cm2zvwmen2jo?at_medium=RSS&at_campaign=rss) |
+| I'm nothing like my Peaky Blinders character, says Cillian Murphy | [阅读全文](https://www.bbc.com/news/articles/cm2zvwmen2jo?at_medium=RSS&at_campaign=rss) |
 | School's back - and the parent WhatsApp groups are very online | [阅读全文](https://www.bbc.com/news/articles/ce9rxed9m5mo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
