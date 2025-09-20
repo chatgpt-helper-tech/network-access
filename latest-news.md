@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 00:24:59（北京时间）**
+🕒 更新时间：**2025年09月21日 00:36:14（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | More than 1,000 people cross English Channel in one day | [阅读全文](https://www.bbc.com/news/articles/cdx20xenzgqo?at_medium=RSS&at_campaign=rss) |
 | Ukraine says three killed in 'massive' Russian aerial attack | [阅读全文](https://www.bbc.com/news/articles/ce3253gxqvwo?at_medium=RSS&at_campaign=rss) |
 | Dame Prue's parachute dress and Romeo Beckham's runway debut - London Fashion week in pictures | [阅读全文](https://www.bbc.com/news/articles/cd63n1wv8nlo?at_medium=RSS&at_campaign=rss) |
-| Why I left all my child's school WhatsApp groups | [阅读全文](https://www.bbc.com/news/articles/ce9rxed9m5mo?at_medium=RSS&at_campaign=rss) |
+| They shed pounds with weight-loss jabs - but then came the loose skin | [阅读全文](https://www.bbc.com/news/articles/cx2500v087xo?at_medium=RSS&at_campaign=rss) |
 | Russia's answer to Eurovision is less kitsch, more Kremlin | [阅读全文](https://www.bbc.com/news/articles/cre5vv0x31po?at_medium=RSS&at_campaign=rss) |
-| She lived in the US for 30 years. Now this Sikh grandmother is locked up and faces deportation | [阅读全文](https://www.bbc.com/news/articles/ckgq63lgn7zo?at_medium=RSS&at_campaign=rss) |
-| I'm nothing like my Peaky Blinders character, says Cillian Murphy | [阅读全文](https://www.bbc.com/news/articles/cm2zvwmen2jo?at_medium=RSS&at_campaign=rss) |
+| Why I left all my child's school WhatsApp groups | [阅读全文](https://www.bbc.com/news/articles/ce9rxed9m5mo?at_medium=RSS&at_campaign=rss) |
+| 'I'm Kenyan, don't shoot' - the athlete who says he was duped into the Russian army | [阅读全文](https://www.bbc.com/news/articles/c79vqpnqgy7o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -28,10 +28,10 @@
 | Defense Secretary Hegseth requires new 'pledge' for reporters at the Pentagon - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOcTJIRHJTdFo0dUhkRnpxNFBSLVFLRHdOQXRqbzZ6STl5MGFCa3E3eHd3VnA2RFdrTHU0S25tTURMVHpVaTR2c2hrSm9jYkp3VlRJSzNheGY5aDlWcmhQNWtXOWQ0bllxZ0l3SDRmRkNsSW5EQXgyaWRvMlh2a1Vqd0V6OFdUNy1CNXc?oc=5) |
 | Trump says prosecutor fired after gaining "UNUSUALLY STRONG" Democratic support - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOQnhQZU9JLVhCTGxiR3d1Z0NqV0FaMHhNUm85RDRUcUxNVk5OQi1TejZJTGVpazR1Y0ZINEgxOEQ1bWJOR1U3WXg3MXV2Z2ZBM1JpVXV4LWIwdmdqQ2ZOU1RNVXFxWmVjcEFPUW9GYmVOczZWdGZUWFpnM2pfX2VfWnNTT2lvSi10?oc=5) |
 | No clarity on TikTok sale after Trump-Xi phone call - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQMlJmX1JVc3NITndmSFE0dzN0LXJVa1g1bTl4aGZQeHFfcXBSRGtueXNTRFFYX2l6UHZ6RTJoWlkyUjZNa3ZQVU9GemgyUElYcGJpWXFnZ0JneU14NlYySzBsMU9CYnJ1U3loOWFXam91b2lwTFI4TDhaWlJuZWpkLVNjMHpmdW8?oc=5) |
-| Federal judge tosses Trump’s $15B defamation lawsuit against New York Times - PBS | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOQlpZMGJZQm9xbkdSRE9yMkV4eHNSRjlyTzR3VlBhblZFUHFRbHRDZWp1eHhRVlZzZklLeXJBSHFxSk00SzRTVVRtUmlwdWRSeUo4cENzc3pUanBMLWExdVVna1ZGczk3MnRMbmEtWVRxd2o3VFlFN3J2dkpQVmRMdzIzSWY3SV90blZIeEM4YW9kZ20ya1EyVlQ1R1I3OTljUmlTZUxuYW9EbEp3RHhwNQ?oc=5) |
+| Two-year-old boy drowns after heavy rain unleashes mudslides in southern California - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNTDE1Rk50cVl3amFva1RsZFY5VDVUWTBZSExlM1I0bHpOcFRySzlzYTljMzF0WU1Td1o0ZjF3WDhRVUJlQ2pDdHIwSFkxME5kRDRRTEVpY0hraGc5ZGo0cjFYNUpBdlBVSE5oNGxkNGR4TUUzTDR4S1h1T3RXQ2ZkelRSR2kyWTBUSk5UYVVIVnBDQQ?oc=5) |
+| Ted Cruz says FCC chair sounded like a mafia boss in threats against ABC over Jimmy Kimmel - Dallas News | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxQMFZ0TUNlYnctMURGNFBmdHRreDNKZXA5ZTIyemlBcHFGVWYxcWFYamZzU004Q0JTbEJwV3FlSVNfQ2hnZGlIN2xoTnZvOG1hZFdPNFZfMW42cUxWYzN3VkZyMnB2UFB3aTlHSDFpTmtBS1NEVk9HSzgxbmd0SjlFY2V2RzNwblY3S2Z5V191VmtpUHI5aTBJZ3lqVXdVNjM3dUpuUEQwRkRNSW96cW5jR1hzeEZpdjVCWmFtM2htSkpEM2FVdkR4cDBzUEhuWWdKTElnRGdreEtyNkk?oc=5) |
 | Trump administration asks Supreme Court to strip legal protections from Venezuelan migrants - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxOS0RCTmNUVmIzRk5wMno1ZWpXMWNxMEIxX0JObXNiRkFfS1JoUm93RWp1dEZ5UGppLUtaYWxpaUNCeXVIWnZ3cGczR05rcGg4Z0dNd0kwUGZ0RkxEWVhxaThRR3FmZUF4YzRFOHhxUlVoUERvVnBBcDlTVVoxVGw5aXFaTHVLUHg3THhfSG1JYmNRZ1VGbWtRNkk3OUZlZWhSVUM1bEZmc0YwYmhvUzB0cmZxdEE1eXV5SjM1T3g0U3ZtejBKa01lQ0M4dzBwVnZka0lELS1tRWg?oc=5) |
-| Trump says U.S. military fatally struck another alleged drug-smuggling boat - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOOHRBc1AzSG9NcE5hV2lCMXBFdU5UNHVmOUpRS0doajdYRnpGRGtKcWRKWERKSlV0dVlFaThxNmFBRklYdDBfZ1djeEExYm90TFlOQ2V1cV8xSjJKSGdUaGtrR1JwUXoyY19YTFhzc1NIY2E5WndJMVA5ZjJLNi1MRWpUajJhTmxSUDFTazE5MA?oc=5) |
-| Congressional candidate thrown to ground during protest outside ICE facility - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOTzJLY2RGcElkc2lLRDRmS1A2MV9kdjFfR0dwYmRtRW1zTGt5MC1aRElTemhpOWFTLTJYX2xHNmxucnVvZnBncG16RDhPdWFQUV8xYkNYc2ljZUhTc2U4S0ttdmRfdVB5RlZGUlNnMUVSZE1kUUlaY3p0SG9kYkh0Z3F5Nm93cWFwLWtYWW1Sc0U?oc=5) |
+| 3 killed in 3rd US strike on alleged drug boat in international waters, Trump says - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOTk93dVc4WWJfdnZFZGFEdDdiemZNQ3gyVEttY2xhMXRHVkpUTGd0bFMtY1loS2RmYzZNSEFPd0FjZmJnZWxZU3JSajdIQ0tPRTFJbU9BRm9FQ3RuWWU3QjZMQmgtdGVydnJfZEJLOERBRVFaZVNKODRCczQyVEp1WFluQ2dPR2V6VmdWdFptaHNxNkJvSnhLR1BCRljSAaIBQVVfeXFMT0t6cURWelg3eU83WVpQVXllZG1lY2F0ckpxMDhaQWgxT055eFR1aUpMQ1ptR3YxNnNqWEdsa2Nma1JxOGduTktyZjNJTy03RUNmWVB5X2FDdmswclhVaTREejZ6c2VDSVM2V2g5blBsUnpGTTRTVHNiS19wazVlZFVuWEVxN25Cd1NJbDlRVnR2N24yLUcyVHVOd1ZfWlNlS0Zn?oc=5) |
 | Suspect Arrested In ABC Sacramento Affiliate Station Shooting – Update - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQaFN5OXV6UlJWRGhTV09WMWpITHhkRE5HZ2VWT0IydXJ4cWYtbE9fejljV0Z1NjJQYXNKVl8wMi0wem8yODVxdFU1RHF1ODBBdVFYLUVBY1BpRF9QcmhpakhLaWlqQ2VBeTBCYTN0amdYLWktemU4TmpOdzAzR0F6cmFCSGt5TnUzdExjbExTZEhlVzQz?oc=5) |
 
 ---
