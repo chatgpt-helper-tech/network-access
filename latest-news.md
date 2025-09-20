@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 07:36:23（北京时间）**
+🕒 更新时间：**2025年09月21日 07:48:54（北京时间）**
 
 ---
 
@@ -16,14 +16,14 @@
 | Former Liverpool manager Beard dies aged 47 | [阅读全文](https://www.bbc.com/sport/football/articles/c0r00qx5llko?at_medium=RSS&at_campaign=rss) |
 | Curtain rises on Strictly 2025 as new couples revealed | [阅读全文](https://www.bbc.com/news/articles/cy9nnl78dgzo?at_medium=RSS&at_campaign=rss) |
 | Creatine - can this muscle-boosting supplement help boost my brain? | [阅读全文](https://www.bbc.com/news/articles/c2lx7klzvpko?at_medium=RSS&at_campaign=rss) |
+| The Papers: 'The actual state of Palestine' and 'Fergie's apology' | [阅读全文](https://www.bbc.com/news/articles/cn4llyxdl3yo?at_medium=RSS&at_campaign=rss) |
 | My student loan doesn't cover my bills - so I wear my work uniform to lectures | [阅读全文](https://www.bbc.com/news/articles/cly68e6r621o?at_medium=RSS&at_campaign=rss) |
-| Hamnet to Sinners: 12 films to look out for as Oscars race begins | [阅读全文](https://www.bbc.com/news/articles/cd9y7qx7gqno?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump’s changes to skilled worker visas spark confusion. Here’s what to know. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNaU1Ibi12TFhXaExwdDJESzVrQzBHdTRDYmZVTV9HbjNNNVBacktPLUk4MGFZMHlRaDBTX21QNGtkNTJKLXZRaGs3QVZFVmRHMVpKY0VVek9URTkza1JPN2VOUHdPTVpqSzRMbHk5aUNrcElTYXRUMDBXdXdYMmxYc083VlBjNUZmcEphN3diSUVXUzdVMzQtQzF3RHE?oc=5) |
+| Trump’s new H-1B visa fee prompts emergency guidance from companies - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1KUjBDdElVamMweUxhOVRCdW53dGxQVTA2dnpkVW9nSXFzaWhxc3FJN0NhRGQ1OWJUSWw4Nl9jWkYtME9YY1loVzhNcnBMTWV6YVgxaFRkMDVUQjNIcHp0Y2JHeVJxMjdVcUNiRDJ5V24?oc=5) |
 | Charlie Kirk memorial in Arizona expected to draw 100,000, with Trump and Vance headlining - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOVV9XRF9qd0RoR0dyaHdxdVdOSFhTM1VVOUU5bXJYOTJlTVdzTHE0VGdadTdULVpMRVJhdzA1bGJEQWtQOGJwc2V1VjRuMV9NS0xyX1hWV28yeVlDU3JpSUdBd25wb1VoU1JEQzJlMEE4MGQ1cnR6aS1US0hNRFZkTVVHd3dlZ9IBiwFBVV95cUxQdUhINjVPVzN4dG1YUUpRcExmbVVIMDFPNnVrOVl3MmR3THN5bUhlRWdJdG1fSlhHbVhHczR5N09HUTJLUWZfbXhvTjR0OGhJbmFiQzI3c2dsaWxSVjFxZnc5ZlY1X0RNNGJPc0taYjRIVHhyWTdDaFdwUGxtSld1TG5MMGJKZ09famw4?oc=5) |
 | US attorney resigns amid pressure from Trump after sources say he refused to charge NY AG Letitia James - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQbDgtMDVSNG96UDRJVEsyUHZ4eXNzVXJtc3VYRFVNZU1xLVYtbnlhbTB2V19TN1hOT0U4ejFKQjgteTZVQXY0ZmYxRi11djY1cUFfTXV5Z2hhcElWenhraGtwNXQ3cTFqdDdtNjVnUm9iOGhsWG1DZ0E1VzRXMWhoUThlMWJkbmN6MTU3cW84QkItN3VpRDhVYjVPb9IBoAFBVV95cUxNSjhZYkZfcTZBUk1iS213Y3VyY1NHWjBIdFg4RDZCMldmVWs1MERYbG5NLUhDTlJYUElnXzF5cC1tODJnel9BRWx5ZzlzaWtJcUw4QWtkVWVacjRwbE1CcWVoenFhTXBodlVJYnpxMmxRUFEwVnUwYzFMNll6cjVoVkhUeDVJczBXd285T0lkbFF0RlBSd0JSMENxWWlLMHc2?oc=5) |
 | California Bars ICE Agents From Wearing Masks in the State - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1ETldCMTYxLU9EbWhNZlNwQzhDYl9EQ01TdGp3NHRfVnZ3N0lCWV92M2JOMGZBLWlRenZhMkcyVmRYaUZUQTZWYWlRc18zTXlGeFY0TDdseTUybTZCVmhQbHhWS0JZbGR1VHB0bkhkeXFERXBrbWFVVU1OaVFXV0U?oc=5) |
