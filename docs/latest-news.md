@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 14:48:53（北京时间）**
+🕒 更新时间：**2025年09月20日 15:00:28（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Supreme Court Justice Brett Kavanaugh’s would-be assassin now identifies as trans woman: court docs - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQQWktMWxkeVF1bzVBSkpnSExOWlo4NUd5Zmc3V3RLOGlhUHRIalFyTXFPenhLWHdLcWo1Smh5a05kc3hpcDItS3A3T0JtVXhGVXEzNEpLbVgwQ3hWV0hYWlRTV1VfMk1NT002RTg3TWFCRjZsOVBRMkU1OHdid3dVYW0tOFdYOXViTkg3Y2s0WHU4dlF4Vy1qczJlbHJDX3FjcGdfbkxzN21XOGFTMkQzdjVsRUc?oc=5) |
 | Trump administration asks Supreme Court to strip legal protections from Venezuelan migrants - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxOS0RCTmNUVmIzRk5wMno1ZWpXMWNxMEIxX0JObXNiRkFfS1JoUm93RWp1dEZ5UGppLUtaYWxpaUNCeXVIWnZ3cGczR05rcGg4Z0dNd0kwUGZ0RkxEWVhxaThRR3FmZUF4YzRFOHhxUlVoUERvVnBBcDlTVVoxVGw5aXFaTHVLUHg3THhfSG1JYmNRZ1VGbWtRNkk3OUZlZWhSVUM1bEZmc0YwYmhvUzB0cmZxdEE1eXV5SjM1T3g0U3ZtejBKa01lQ0M4dzBwVnZka0lELS1tRWg?oc=5) |
 | Trump Says U.S. Military Attacked a Third Suspected Drug Boat, Killing Three - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPTVJmcUQtRllmSkpCTEQ1RUhsTUp2ZmgzVFAyWVEzT1RtWVRQZUhqUzA1SzNBSjUtYmxMcUZLbnpjWWJ3U0hRT1VlSUY2SE9NeVlQclRiaUtpQ2U1N3JfcGhRUzBJS2Z5MzZlV0NjMU9XVVhaNjhBQlEzVGM3eFZUMg?oc=5) |
-| Senate rejects both parties' bills to avoid a shutdown, leaving next steps uncertain - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOYUR5elFSbXI2U2hBa0tXdlh6ZnhWbG1pN0RTREhHaTJJVnNROGhoNmRGLVpQWTNPdjg5aWFRZ2xhZmF1eGVFcXFadUowRFZmU1EyYmNBY0lRYVVPTXRnVnpVTkV5Wk9rNkI0dHBkblFaNGNBWWRCbkZsS2hZcEFBZWdJQ09YM0lUNkNfZ04ycGI4Q3ZBZ2xkLTVOWHlPbFFhMmJ3UXdVVm9UVm5yQjBv0gFWQVVfeXFMTUtJSDZoX2twdmduVFAtRWIyNkF3YU9yTklhX1FwOFRrWlhxZ1BiYnBBRHVVWHpmRFpkQjA4eHBqMDBBVXRReHZxMGwtbGttZkRFdFJOZ2c?oc=5) |
+| Senate fails to pass stop-gap spending bills as shutdown looms - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQRF9oZVhmY1Z2Y1h3MHZQVnNuSmJoQnIzNVpCb3VWOWJIeEUzR0ZtWWh2Y2E3QktfQXk3X2F3OE9Kd2k5b2IySExaY2xYMjZ0WEJiajk3VmQtUk05SGFaVmZaNERET3BvYkJ4SXhndHVOY1RsT2EwYjdFelFRYThSZDI1WFl0d0d1S2c?oc=5) |
 | How to watch the Charlie Kirk memorial service - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNRl9oNXpRZG9wLW1SR2FzMXNKeWRDSzZEbndndmFnTFVJdkQzY2tkblhNcExLN2JaUTV1ZTZTS3dUcnlmcXE0OEtLbG9RR3JPNXJJcGpJdDZHWHYxU1RhTjJORFFVYUJ2MjhuLWpWeUpYb1RaUmNySkdrWnVKSFRPRXV1enVVbmVaTnRmcFRTZ2JEWkt00gGaAUFVX3lxTE8zaGxDWWRvM2prOWliMlotckgyaF9fdmY3UmNTVDQyZ0hRNVF1Y25zMUFuT2ZVb1ZZaXA3bTdBQ3pmcTBnX3BiT1d1bzNINUJVSm15cEdMR241T0tncFhfdlFGVnJVT2R4ZDJibXdzc0dJV0xUWHd5ZUtTc3owaUNSWTFUNktUZ2d6RFVzMDM2cjFjNDBHMGFydHc?oc=5) |
 
 ---
