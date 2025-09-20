@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 03:00:02（北京时间）**
+🕒 更新时间：**2025年09月21日 03:13:09（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump taps new US attorney in eastern Virginia amid fallout from Siebert resignation - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNbnR4Tkl3TTNPWTI0Ql81V1piM0c0OWlsVVAzS3UwM0VENldTTDFReUdtbmdtdS1mcWZyT2IzV2VYa05IUHdIZ1VhaWhEWmdzS3NyX1hFRk1weGZaeGJWTlJRU0dKYmpORGZ4VktlbGJ0RXYtVXlDNmJja1U2b2E2YWwzcWdvYlZhaWVvVG5LVGhyY3Z6T0RHQl9B?oc=5) |
 | Could 2028 be the 'YouTube election’? - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPU2RYeVNwckJLaTIzVVRsMF9HNk5zbnNJVzVDQ3JBVzd6U2JsWWlUTUVRbHNVSU00NDNxaVp6b2RZWF9MeHE4OExwRmN1elZaSE9uV0M5ZjRLSEEzbW9ENkdnT0J4Vl9YclprQV85bjE3Qnp3N3JwdmRWc25iWFYwU2JkSmJST0dhWFFVb2NIMnBNdUE?oc=5) |
 | Suspect Arrested In ABC Sacramento Affiliate Station Shooting – Update - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQaFN5OXV6UlJWRGhTV09WMWpITHhkRE5HZ2VWT0IydXJ4cWYtbE9fejljV0Z1NjJQYXNKVl8wMi0wem8yODVxdFU1RHF1ODBBdVFYLUVBY1BpRF9QcmhpakhLaWlqQ2VBeTBCYTN0amdYLWktemU4TmpOdzAzR0F6cmFCSGt5TnUzdExjbExTZEhlVzQz?oc=5) |
-| Trump says U.S. military fatally struck another alleged drug-smuggling boat - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOOHRBc1AzSG9NcE5hV2lCMXBFdU5UNHVmOUpRS0doajdYRnpGRGtKcWRKWERKSlV0dVlFaThxNmFBRklYdDBfZ1djeEExYm90TFlOQ2V1cV8xSjJKSGdUaGtrR1JwUXoyY19YTFhzc1NIY2E5WndJMVA5ZjJLNi1MRWpUajJhTmxSUDFTazE5MA?oc=5) |
+| He Wrote a Biting Post About Charlie Kirk. The Fury Came Fast. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOSms3WHItNjNzTXJtTzliN29DNlJidDV1UEp0bkgxM3hoMnY2MkE0bFJKdW9DZzNzZS1mRjFLMzh3M3VpekprLTdWWHdpRkROMFVfSGxmVzBZak5jVTZSenBTbDVwM0FsSGNxNXE3eFk3Umx3MktneExGT0JXRnpnXw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
