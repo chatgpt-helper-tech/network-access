@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 13:36:13（北京时间）**
+🕒 更新时间：**2025年09月20日 13:48:10（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Trump news at a glance: president hikes H-1B visa cost to $100,000 a year as aide tells firms to ‘train Americans’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPTnFoNGx2VDZOeVE1LXA1MnZLTFRhSUZtaUUzM2V2QWJiVGR3QnMzWkVSbUR4ZkV3VEF6ZE1YQnJiSklWSi1mc0Vicllld1pBYXZqODI0X2d3RUZnWFVacExibzQ1WGpGNUlYVFBJOXo1NDR2M1B6Vk9VN0s1ZXhmblhraUtPYjFkLWJtcHROdG1HTlFFNE5adDNR?oc=5) |
 | US attorney resigns amid pressure from Trump after sources say he refused to charge NY AG Letitia James - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQbDgtMDVSNG96UDRJVEsyUHZ4eXNzVXJtc3VYRFVNZU1xLVYtbnlhbTB2V19TN1hOT0U4ejFKQjgteTZVQXY0ZmYxRi11djY1cUFfTXV5Z2hhcElWenhraGtwNXQ3cTFqdDdtNjVnUm9iOGhsWG1DZ0E1VzRXMWhoUThlMWJkbmN6MTU3cW84QkItN3VpRDhVYjVPb9IBoAFBVV95cUxNSjhZYkZfcTZBUk1iS213Y3VyY1NHWjBIdFg4RDZCMldmVWs1MERYbG5NLUhDTlJYUElnXzF5cC1tODJnel9BRWx5ZzlzaWtJcUw4QWtkVWVacjRwbE1CcWVoenFhTXBodlVJYnpxMmxRUFEwVnUwYzFMNll6cjVoVkhUeDVJczBXd285T0lkbFF0RlBSd0JSMENxWWlLMHc2?oc=5) |
-| Trump Administration: Live Updates and Latest News - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE05c3dlVC1aSktRTjdLNTNnNHQ2QWtmRjhrcjZhR2x5c0JPOHNuLXRQbktFaldTVDJJNzRWYXRPTk95aTk1a2x2NzMxbjRVNjRQa1FxSFpfVnZKS1g4cjVJQlJjVQ?oc=5) |
+| Ted Cruz criticizes Trump-appointed FCC chair for urging "action" on Jimmy Kimmel: "Right out of Goodfellas" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQb1ktbWp3b0Q0N3VwUjdkSnI2MU01NWtiRU9weGd6eW5PZlpFVnE0N290TzFZa3BjMkZhVGpQNTJnSmtBcDg4aElfelk4YldEVDBpUUljV1JQb0NMUUVFaGhEc1pUT01ld3BMUEJZMUZnbm1IVnlUU1ctS19UZUxPUXJZdXZYNl9iWDY0S0x30gGTAUFVX3lxTE8wX29MTWllTHlxazhvZ0FBb0tfd2RCMG5XUElBWDhHTXItbDZXa0RVTTF3OGh6SWxyZmtfRTF3YkFON1dvYl90U295NW9CekJjc2xoT2Jham5oYVBWSDdCWUMtbVhzQ2ZjMkZVWE5vZnpaNkJHcDBNaVE3czlZa21pczN5U3NGOFJvSXVVaS1Hd0RjUQ?oc=5) |
 | ABC10 station struck by gunfire Friday afternoon - ABC10 | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPS2tUN2FJN0llbGJWUVlzMHk5dFdzSTdBNV9TTXZBQV9leDgzOGVKc0NpcHNJSDhTTW9uV0d3QkdGRUhOeDBUMFh5cUtMQU5mY1Z1c1N5QUd4Z2t1OFF3aldHTGFfUU5nLU1vSjhBNU1HRTM1d1ZLdy1BdHIxRmFDY0NxcW9KQXQ1TFJFUk9vTi1PN0pXalQtdW4tSGo4YXFhUjIzdVAzNWgzQlZsZFhoOC1BRGNVZGQyUHpkY2tB?oc=5) |
 | Man who tried to assassinate Kavanaugh in 2022 wanted to kill 3 justices, prosecutors say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9FZTRRaE5iNjhrc1pyM2hlUDlLZDJVYldsTTFHMzd4ak95RTdFbHNFZmJEWmFtT2xCMEZsM0JJdGctWjA3WlV6ck5vd015OWhvQ3k3ZUV4bkd0cWxKbEUzZDdRNVN2MkVvbFdhOWw2WXlqZ3VZZkVHVThIc9IBgAFBVV95cUxNMk8taFMxLTV2ekRiaUJwQmw3RGZoWkhRbk04NVBhd1NDSEFsYzlWV1ZYNmFGTklTelNyUm9tMWhoZDI1OU9UV29nZzA1dzh0eG9lckJMUVFUcjl6ZzZuRXNUNTFJYU56R0xCOFlldXhqX3VpMm1iWm5hNmxHSmtDNQ?oc=5) |
 | US military conducts third fatal strike on alleged drug smuggling vessel - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBYWHZVNGxTZWotSmF4cUpsdlBPcHRadVREMlBvM1U4Z2doa3hpWG1vMURYdll5QnhobTV4V3hzLTF4UTlQaC1RQ0lkMXZqTm5YT3FPN09pVGdzY25wZl95WGFhcUNsUC1NdHl6cHItRko?oc=5) |
