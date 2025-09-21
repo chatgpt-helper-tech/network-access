@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 09:48:25（北京时间）**
+🕒 更新时间：**2025年09月21日 10:01:00（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Starmer set to announce UK recognition of Palestinian state on Sunday | [阅读全文](https://www.bbc.com/news/articles/ce800enrglzo?at_medium=RSS&at_campaign=rss) |
 | Why Starmer decided the time was right to recognise a Palestinian state | [阅读全文](https://www.bbc.com/news/articles/cp9848kxp2go?at_medium=RSS&at_campaign=rss) |
 | RAF jets join Nato air defence mission over Poland | [阅读全文](https://www.bbc.com/news/articles/c4g7752w1ygo?at_medium=RSS&at_campaign=rss) |
-| Day of delays at Heathrow after cyber-attack brings disruption | [阅读全文](https://www.bbc.com/news/articles/c3drpgv33pxo?at_medium=RSS&at_campaign=rss) |
+| Duchess of York called Epstein 'supreme friend' in 2011 email | [阅读全文](https://www.bbc.com/news/articles/cgj11l3wd35o?at_medium=RSS&at_campaign=rss) |
 | Press could lose Pentagon access for releasing 'unauthorised information' | [阅读全文](https://www.bbc.com/news/articles/cwywwjevprwo?at_medium=RSS&at_campaign=rss) |
 | Former Liverpool manager Beard dies aged 47 | [阅读全文](https://www.bbc.com/sport/football/articles/c0r00qx5llko?at_medium=RSS&at_campaign=rss) |
 | Curtain rises on Strictly 2025 as new couples revealed | [阅读全文](https://www.bbc.com/news/articles/cy9nnl78dgzo?at_medium=RSS&at_campaign=rss) |
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Charlie Kirk memorial in Arizona expected to draw 100,000, with Trump and Vance headlining - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOVV9XRF9qd0RoR0dyaHdxdVdOSFhTM1VVOUU5bXJYOTJlTVdzTHE0VGdadTdULVpMRVJhdzA1bGJEQWtQOGJwc2V1VjRuMV9NS0xyX1hWV28yeVlDU3JpSUdBd25wb1VoU1JEQzJlMEE4MGQ1cnR6aS1US0hNRFZkTVVHd3dlZ9IBiwFBVV95cUxQdUhINjVPVzN4dG1YUUpRcExmbVVIMDFPNnVrOVl3MmR3THN5bUhlRWdJdG1fSlhHbVhHczR5N09HUTJLUWZfbXhvTjR0OGhJbmFiQzI3c2dsaWxSVjFxZnc5ZlY1X0RNNGJPc0taYjRIVHhyWTdDaFdwUGxtSld1TG5MMGJKZ09famw4?oc=5) |
-| Trump’s new H-1B visa fee prompts emergency guidance from companies - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1KUjBDdElVamMweUxhOVRCdW53dGxQVTA2dnpkVW9nSXFzaWhxc3FJN0NhRGQ1OWJUSWw4Nl9jWkYtME9YY1loVzhNcnBMTWV6YVgxaFRkMDVUQjNIcHp0Y2JHeVJxMjdVcUNiRDJ5V24?oc=5) |
+| Trump's new H-1B fee won't apply to existing visa holders, official says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBpZG1iRlJ6VGhuWlJGdFJjblR5TS1ZTEdaMzFLeFk0UUh2RGNraWpMU3hvMmZkU2tLSXBNUFRaQVktX1JQbGUxZ25JVE9jLU8xSDJlZm1lRFB2MzgyTTlCMkcwNTFHRHFUVk5MaHBR?oc=5) |
 | California Bars ICE Agents From Wearing Masks in the State - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1ETldCMTYxLU9EbWhNZlNwQzhDYl9EQ01TdGp3NHRfVnZ3N0lCWV92M2JOMGZBLWlRenZhMkcyVmRYaUZUQTZWYWlRc18zTXlGeFY0TDdseTUybTZCVmhQbHhWS0JZbGR1VHB0bkhkeXFERXBrbWFVVU1OaVFXV0U?oc=5) |
 | Schumer, Jeffries demand meeting with Trump amid shutdown showdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQNzBaT2g2N0p2aWpRZWFzZ29oUkxTeUlVbEk0NjMwZmlEU0lJY0I4TzR0V2hjSlkySU8xTnNkU1ZsUi1xdTFFYkFYX0JGLVRNdHJLby05NTVwcGlTVkstY0NGOVBiVTZWbUVoajhDdUgyYTVWUlFWTmIyWTBBMGdPcFNhV3lxeF9yamc?oc=5) |
-| White House names replacement for acting U.S. attorney in office probing Letitia James - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9kZFdCanRYQ2EwV2pUTV9SZzkwNUhTZTIzRF9IVVFFbXNRTjFPV3UtckVrN2ZWeTVLbzBwNGE3NHBnS1dxS3haNDlUdmhvbXpOY2NfZGMtNkxzYmFlNk1GeUJJUm5PdHV1WlRNRnZVNmE4NnRBWFBDX0xn0gF_QVVfeXFMTUg0WndPV2s3Vmw3YlBleDhIcEpINFA0ZzdFbVVWbGVuUTlrTGtTWGN0UElFUGVlMmpjRW45dDN2T2ZFamZaLXJoS25VNWZ3dGQ5eG1rSHZZY3IwbHJNb2s1TFZicG42TDByS0tsUVBHN19XWXN3eDg2c1NfYzc5VQ?oc=5) |
+| US attorney resigns amid pressure from Trump after sources say he refused to charge NY AG Letitia James - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQbDgtMDVSNG96UDRJVEsyUHZ4eXNzVXJtc3VYRFVNZU1xLVYtbnlhbTB2V19TN1hOT0U4ejFKQjgteTZVQXY0ZmYxRi11djY1cUFfTXV5Z2hhcElWenhraGtwNXQ3cTFqdDdtNjVnUm9iOGhsWG1DZ0E1VzRXMWhoUThlMWJkbmN6MTU3cW84QkItN3VpRDhVYjVPbw?oc=5) |
 | Man Charged After Drive-by Shooting at Local ABC Station in Sacramento - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbkFfVGN4eUdTbjZEQWc1OVdJdDU0YzJ5UkJSNWwxaXpWRlBmZEhndkIxNlhJbUdSVVV1UUM4aWs5QVZNTHNCdUFrM1IxN3l0eDVmdUZjVm9xZjdRZEIxSU85Z09OQ1N4YkI5dms0bmZiSXlGUnl3TGs2LUFMM2Y4clFocGw?oc=5) |
 | Oklahoma Republicans propose all state colleges must have Charlie Kirk statue - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQRVZpLU5xNFRIREZXV3lXSlUtbXpSczMtdHgwTC1QaVpFZmktZTZaRUtFbFFpdG9aaEJjNEJBOXlyR0ZMUldQUkMwZmRYUVdTRjZXVzJSOEZtMlNpNzBocXVOZ1lWVVhnai0zR2lKN1VocDBTRFZ3TDlDbTl1M2lsTkpZTXJQNDJY?oc=5) |
 | White House Outlines a TikTok Deal With a U.S. Board - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE53Mm1MeDZNRzRFMU9WbG85b1NOOVlMb3N5Q3JfblVxS2lEWnBFNkU2NURYaTdyeDFmdVNZMWN4US1iUG0tQ1lOSlRiT2E3dm4tSXBFeV9TRjRhcWxNUlpqMHZmcFFEd0dVZGp1aTNMS1FHRXNpOWU2ZWtBQnIxdWs?oc=5) |
