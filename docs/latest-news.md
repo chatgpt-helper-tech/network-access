@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 16:48:32（北京时间）**
+🕒 更新时间：**2025年09月21日 17:00:16（北京时间）**
 
 ---
 
@@ -17,15 +17,15 @@
 | Creatine - can this muscle-boosting supplement help sharpen my brain? | [阅读全文](https://www.bbc.com/news/articles/c2lx7klzvpko?at_medium=RSS&at_campaign=rss) |
 | Why Starmer decided the time was right to recognise a Palestinian state | [阅读全文](https://www.bbc.com/news/articles/cp9848kxp2go?at_medium=RSS&at_campaign=rss) |
 | I took a job on a whim on New Year's Eve - and ended up stranded at sea for six months | [阅读全文](https://www.bbc.com/news/articles/crev9y77njpo?at_medium=RSS&at_campaign=rss) |
-| My student loan doesn't cover my bills, so I wear my work uniform to lectures | [阅读全文](https://www.bbc.com/news/articles/cly68e6r621o?at_medium=RSS&at_campaign=rss) |
+| The close friends going head-to-head as a British gold-medal showdown awaits | [阅读全文](https://www.bbc.com/sport/athletics/articles/c2061rzx7k1o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Tech Companies Warn H-1B Visa Holders to Avoid Foreign Travel - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQVmtUOEhHUHNOQk56NTN1R1o1VWoxZ2JKNnFpRkRGdm1QNFk3NnVmTC1RMVhKeGdNTFZ1bW9kcFcxMURYcjBXVGR0aFpuWnMzRGVRMEg5MWxyR09QY0Q0M1k2LXcxMWdaOWwyRkNLeHdXMHNsNFdGa3BxS3ZEUEJIS3cyN1ZHd2FQMTJjMkdRNDBhMzQwZEg1UzZZZ3ZfTjBlM1NHWlBZNlYyUkllX2VTSUdxX3c?oc=5) |
-| Trump demands Bondi prosecute political foes in Truth Social posts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOM1hnZC1qUUFCOXlZOGYwaThRclRQaGROVkhKdWFuMkxNZ1ByMnJrZ3gzRXh2VVJmU1RsSFdXMldCZlo4V0VuVGlDb1NUSUVaaUd2cEpCUkh0YU1OYzRFZFVUakJTMXl0eS1uT1Z2elpuQkpidWlxWDhfakJ4UU52RFJsSzdiT1VMNWt4a2hZaGpVNXFYcDd3bHJVOFlPUG9XX3NIbGw5OHN6UkhiLVhtNGpYQmMzNnhybDZhdXYxZw?oc=5) |
 | Trump and MAGA movement will honor Charlie Kirk at Arizona memorial - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQRmpvOGxnWjloWHJIVHNpSWw5UXNoTGxGQm9XazdveEdJV0o2d3pZamtHRE1sMl9yYUJZOWNMc3NmZmdTNlF4Tk9VVXRqV0ZMQ0VRdzB6cFJNTDEtY0s4VHFMZjlwck43b1B5TUdodVNCQ09FN1JrMHJlRWNvSnVmZTJ1TWk4MHllTkNsbl91cWdnV1hsTFRPbEZ1WQ?oc=5) |
+| Trump demands Bondi prosecute political foes in Truth Social posts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOM1hnZC1qUUFCOXlZOGYwaThRclRQaGROVkhKdWFuMkxNZ1ByMnJrZ3gzRXh2VVJmU1RsSFdXMldCZlo4V0VuVGlDb1NUSUVaaUd2cEpCUkh0YU1OYzRFZFVUakJTMXl0eS1uT1Z2elpuQkpidWlxWDhfakJ4UU52RFJsSzdiT1VMNWt4a2hZaGpVNXFYcDd3bHJVOFlPUG9XX3NIbGw5OHN6UkhiLVhtNGpYQmMzNnhybDZhdXYxZw?oc=5) |
 | 'We're not North Korea.' Newsom signs bills to limit immigration raids at schools and unmask federal agents - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQUTdxLTRjaXJkYnIzcGZTVl93WlRPb2dHS3RpUl80ejlWWUlQRGdfOFEyTGhLWVg1X3I4ckJkd2FFUUZlQjZ4WFBrQS01RVVKZDhUWF9MWVZBTEV3akhpdG9PVHVHb3RmZGY4N3NEZV9sTDc1ZVRLcDdaeWJTX1F3dmpjeExubGp4cWc?oc=5) |
 | China's ByteDance will get 1 of 7 board seats for TikTok's US operations, official says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxPeWdVNjdXR25QR3psMnNRNEZ3Rjg3ZnNvOXMwMXFsTDJKQnB6SkEwenVIUkdDSi01bnRoR0x3bFBXUjN2N0MxQVJRSHJNX2pPajlfZXUwYjlfcHJERW5fV3VfM0xEdGc1bTduanUwb0VsNVladG9WWGFiWGxxYXZWUHVGYkNkR3lhY2dFSTQxVThRbW9WSnpYY25iWmx1dW5qSHd3bDBYX2pyTnEySXBFSl9Wc0gxWUZ2bG1fbGpyXzNqaTdaS0xac2FFaEdnZGduMGNHMXpqREJLdWZY?oc=5) |
 | Man Charged After Drive-by Shooting at Local ABC Station in Sacramento - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbkFfVGN4eUdTbjZEQWc1OVdJdDU0YzJ5UkJSNWwxaXpWRlBmZEhndkIxNlhJbUdSVVV1UUM4aWs5QVZNTHNCdUFrM1IxN3l0eDVmdUZjVm9xZjdRZEIxSU85Z09OQ1N4YkI5dms0bmZiSXlGUnl3TGs2LUFMM2Y4clFocGw?oc=5) |
