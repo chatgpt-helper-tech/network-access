@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 09:01:55（北京时间）**
+🕒 更新时间：**2025年09月21日 09:13:47（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | California Bars ICE Agents From Wearing Masks in the State - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1ETldCMTYxLU9EbWhNZlNwQzhDYl9EQ01TdGp3NHRfVnZ3N0lCWV92M2JOMGZBLWlRenZhMkcyVmRYaUZUQTZWYWlRc18zTXlGeFY0TDdseTUybTZCVmhQbHhWS0JZbGR1VHB0bkhkeXFERXBrbWFVVU1OaVFXV0U?oc=5) |
 | White House names replacement for acting U.S. attorney in office probing Letitia James - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9kZFdCanRYQ2EwV2pUTV9SZzkwNUhTZTIzRF9IVVFFbXNRTjFPV3UtckVrN2ZWeTVLbzBwNGE3NHBnS1dxS3haNDlUdmhvbXpOY2NfZGMtNkxzYmFlNk1GeUJJUm5PdHV1WlRNRnZVNmE4NnRBWFBDX0xn0gF_QVVfeXFMTUg0WndPV2s3Vmw3YlBleDhIcEpINFA0ZzdFbVVWbGVuUTlrTGtTWGN0UElFUGVlMmpjRW45dDN2T2ZFamZaLXJoS25VNWZ3dGQ5eG1rSHZZY3IwbHJNb2s1TFZicG42TDByS0tsUVBHN19XWXN3eDg2c1NfYzc5VQ?oc=5) |
 | US will control TikTok’s algorithm under deal, White House says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPdDJtQXNwQjJJUDJxUHVyOUJIcDR1VERGZkJKRnpQcGhpY283YjdmOHA3bDR0U2JvVjJ0Zlg3U0swSVExYTd4VTNoWHpEd3VYQmtCeEpjZDUxR05tUllJZlQwRlkyMmhFQjlyYTJMbElKeFN4SnNRaWtwLWRWV3UtZTd2aw?oc=5) |
-| Border czar Tom Homan was investigated by DOJ for potential bribery, MSNBC reports - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNWkxTa1kyM2hSeWxTT3psVlZ3VlVJU3dxVXktbUZ2aHc5Z3FGUkttWjlsTVhrb2Q0Z3NtRU5NYVRzUW9MX2ZBYkdiQnFLUHdXeDRrSEQ2X1ZMaE9vT0M1b2p1bV9yWmhldldmeTNjc2tGMjNzSzNacUs2djgybC1vWjhnYUg2SThOOXRUWHM4ZEZPQjNHNXBfbEtXaw?oc=5) |
+| Trump border czar Tom Homan reportedly accepted $50,000 in cash from undercover FBI agents - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNYkJCbXNBSXo1aGlfVTZkbW1pVEE5ZWY4TlhHbzhsTDJZWkF4Y3Y5N0FyOTZoaXlrSDVTeFpJYmNvUE9vU2I2SnFhS2p5blYtUjc5MUcwMTc3WVJWZ0NzMlJId3owVW9oYTJJaHlybkkyTXNWbmhIbldNY05jTHFOYm41TlNjdw?oc=5) |
 | Oklahoma Republicans propose all state colleges must have Charlie Kirk statue - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQRVZpLU5xNFRIREZXV3lXSlUtbXpSczMtdHgwTC1QaVpFZmktZTZaRUtFbFFpdG9aaEJjNEJBOXlyR0ZMUldQUkMwZmRYUVdTRjZXVzJSOEZtMlNpNzBocXVOZ1lWVVhnai0zR2lKN1VocDBTRFZ3TDlDbTl1M2lsTkpZTXJQNDJY?oc=5) |
 | Schumer, Jeffries demand meeting with Trump amid shutdown showdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQNzBaT2g2N0p2aWpRZWFzZ29oUkxTeUlVbEk0NjMwZmlEU0lJY0I4TzR0V2hjSlkySU8xTnNkU1ZsUi1xdTFFYkFYX0JGLVRNdHJLby05NTVwcGlTVkstY0NGOVBiVTZWbUVoajhDdUgyYTVWUlFWTmIyWTBBMGdPcFNhV3lxeF9yamc?oc=5) |
 | Man arrested after drive-by shooting at ABC TV station in Sacramento - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5ZejZKRVM5TlUxaXlqel9uYzRVLV9uTE5YRjhRMlBfMi1fQU9qVTB2OUMzMWVoU21aX2o4a0RzMVhxUDJuTjFQRTBzOTRmemJyQmJDdll6WFljM1p1Q3ZoWVpkV2RzaHZUc1BXU3kzV2lDZy1C?oc=5) |
