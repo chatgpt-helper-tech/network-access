@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 07:00:16（北京时间）**
+🕒 更新时间：**2025年09月22日 07:13:20（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | U.K., Canada, Australia recognize Palestine as a state, breaking with U.S. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQQndfNEtJSTJzS3dRM29ZQVFhbDZOMUF6VC1Yb296V0lWRTJEbUpmWHRobThDd05XLU1tUTN3dmw3Y3E5bXdpejgyVm5CMlJHLWE4WHRwb3BWNm9SZUI0Yzdoc1RiOVJwU2pzcHliUzhlUVBvQjh3MlRuVXZtNW9kRFhTY3NfYW5UYmNpUHVkNDZVaXIz?oc=5) |
 | DOJ ended probe of 'border czar' Tom Homan for allegedly accepting $50K in FBI sting: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPYWNJcmFnWVRrR3ZCZUszcDRLdzNfWE9GWHdfRi1wSjNLZ3JrSGhtbFJqT2RpLWtPcXhNTGwyU2JtbkdGVXdVUVdTZUZNdGVEUXF2VTBuUGktNzIwLWx0NTBmdWZSZTR2aWxReUdYRW5CcVh0LUxYUmlHSTlqaEhKeVU4Zlg0NW1vc0pjc1prMHhxcTl0LXZZcWtnV2ZXNkHSAaQBQVVfeXFMTzQya3c5S015UGRJZjVmUDF1WnRPMFl4cHVhbjR4N052akk1N2dta3M2cEYwWDUtb1BCb2kxOE5tQkFRWjJwT3JPRWlRUUZUaWZxX3NydEYtc1BoeGZRSFJXT2RYSTJRY3JRSTQyQVFfLXE1cGZMeS1pUjY2a3JPekM4SElnazZoMmxkU3J3cXFyZS1JSk90SU42Q2ZEeVRZa2dyTnk?oc=5) |
 | "Path to a dictatorship": Democrats flame Trump's public pressure on Bondi - Axios | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE1wd3VydU9KZ3dlWGtlM0ljeVFBSFFHTGNlSUpSalRjeXlaTUFKcEdmUW42bjBVUVN5NUduQktwSy1PcGdsLXRoelBGUmVoNG9iWUFfd3QwU0tCUWhYX2F0aXZ6RVdBWGhaMmk4?oc=5) |
+| 'We're not North Korea.' Newsom signs bills to limit immigration raids at schools and unmask federal agents - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQUTdxLTRjaXJkYnIzcGZTVl93WlRPb2dHS3RpUl80ejlWWUlQRGdfOFEyTGhLWVg1X3I4ckJkd2FFUUZlQjZ4WFBrQS01RVVKZDhUWF9MWVZBTEV3akhpdG9PVHVHb3RmZGY4N3NEZV9sTDc1ZVRLcDdaeWJTX1F3dmpjeExubGp4cWc?oc=5) |
 | Suspect in ABC10 building shooting arrested by FBI after being released from jail ｜ UPDATE - ABC10 | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPSGVWX1dXOXB0eXJVSmh5aWpLQ0F0WUtSSHFLLXJJRXFFU21MXzItTzJZbmdsRE8xNi0wZVlRSXo0aFF6YVNtQnd1dFdCby13UnVsV1VTS2dLbkJ2ZWlJVG1QaWhOZHhCQW5xc1RockNOYUNuRktaSHRxSGwza3BfVTZVRDhuV0hvM3VLa3pWUEpJNmZscWxCc0taMXEzOEtwckNtS09YMThaUmg4NXVFblBYZmFRakdwY3NmODE4cHZVS2Z4aWVhT2ZtTnBrZw?oc=5) |
 | Here’s what happens when big-time lobbyists become big-name Trump officials - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOVXk2UkZ6dk5iRXl0dmZxanFNR05pa1lSaXBfb3lIRWZoc2tPLWMzdTZWYnFIVDkzTWt3cExrY3lUYTZwOU0xNVdSOHM4SDYtV2tzM3Q5U2d2Z3hFYm9QTnZwR2NzaXZJWDZ4TVdiWXhvYk5la19aV3R3V3B3N0xKME1XUW1uY0M2Nnc?oc=5) |
-| 'We're not North Korea.' Newsom signs bills to limit immigration raids at schools and unmask federal agents - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQUTdxLTRjaXJkYnIzcGZTVl93WlRPb2dHS3RpUl80ejlWWUlQRGdfOFEyTGhLWVg1X3I4ckJkd2FFUUZlQjZ4WFBrQS01RVVKZDhUWF9MWVZBTEV3akhpdG9PVHVHb3RmZGY4N3NEZV9sTDc1ZVRLcDdaeWJTX1F3dmpjeExubGp4cWc?oc=5) |
 | The Taliban Reject Trump’s Bid to Retake Bagram Air Base in Afghanistan - Military.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNVnc5Uko2eE5LdE0wNXlQTngxNFpUQ09ya3NkdTNyV1ZCQWRQajA5a3cxQ1hteEdlOGpyNDZkWkxpS2VlbFdQakhSREhBeGVTblpNUEF2bExMa0FtQXRaMW9FNHdfSmJVRTdNMXZYUGJPR3lMZzRtTHBnQmxtdGNEUmMtM1RwSTd4MTFBM29DNmlTRklnSVNubHY5R01TSUZxeFNKMUlxNmZvTHMzUlVwWWVn0gG3AUFVX3lxTE56cUQyd1V6R0FGaWlPNVdDdUx1eDNPNTg2am5fWkF4OEdvWnc2STI5VUdiZzhZTmlZQzgtQkxSWUdxVEJValhSU2FCTjNLZEtBTTRGX3ZrWVhnNE1PWVhRbE1iN0otdllnaXdyeldmOGx0YVpZTEgyZGpURUFrZDM5cENIWUFBMTZpQWQ3VThleUtuMk9maWF3LVhSTDNla09NSDVnaF9yUEhrSTRIS3NiemVBSTZkSQ?oc=5) |
 
 ---
