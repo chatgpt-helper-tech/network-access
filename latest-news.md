@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 14:25:09（北京时间）**
+🕒 更新时间：**2025年09月21日 14:37:20（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Starmer set to announce UK recognition of Palestinian state on Sunday | [阅读全文](https://www.bbc.com/news/articles/ce800enrglzo?at_medium=RSS&at_campaign=rss) |
+| Starmer set to announce UK recognition of Palestinian state | [阅读全文](https://www.bbc.com/news/articles/ce800enrglzo?at_medium=RSS&at_campaign=rss) |
 | In West Bank, Palestinian recognition welcomed despite fears of Israeli annexation | [阅读全文](https://www.bbc.com/news/articles/c0ez9qxzl2jo?at_medium=RSS&at_campaign=rss) |
 | Duchess of York called Epstein 'supreme friend' in 2011 email | [阅读全文](https://www.bbc.com/news/articles/cgj11l3wd35o?at_medium=RSS&at_campaign=rss) |
 | Former Liverpool manager Beard dies aged 47 | [阅读全文](https://www.bbc.com/sport/football/articles/c0r00qx5llko?at_medium=RSS&at_campaign=rss) |
