@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 16:12:43（北京时间）**
+🕒 更新时间：**2025年09月21日 16:25:56（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Man Charged After Drive-by Shooting at Local ABC Station in Sacramento - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbkFfVGN4eUdTbjZEQWc1OVdJdDU0YzJ5UkJSNWwxaXpWRlBmZEhndkIxNlhJbUdSVVV1UUM4aWs5QVZNTHNCdUFrM1IxN3l0eDVmdUZjVm9xZjdRZEIxSU85Z09OQ1N4YkI5dms0bmZiSXlGUnl3TGs2LUFMM2Y4clFocGw?oc=5) |
 | Oklahoma Republicans propose all state colleges must have Charlie Kirk statue - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQRVZpLU5xNFRIREZXV3lXSlUtbXpSczMtdHgwTC1QaVpFZmktZTZaRUtFbFFpdG9aaEJjNEJBOXlyR0ZMUldQUkMwZmRYUVdTRjZXVzJSOEZtMlNpNzBocXVOZ1lWVVhnai0zR2lKN1VocDBTRFZ3TDlDbTl1M2lsTkpZTXJQNDJY?oc=5) |
 | Schumer, Jeffries demand meeting with Trump amid shutdown showdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQNzBaT2g2N0p2aWpRZWFzZ29oUkxTeUlVbEk0NjMwZmlEU0lJY0I4TzR0V2hjSlkySU8xTnNkU1ZsUi1xdTFFYkFYX0JGLVRNdHJLby05NTVwcGlTVkstY0NGOVBiVTZWbUVoajhDdUgyYTVWUlFWTmIyWTBBMGdPcFNhV3lxeF9yamc?oc=5) |
-| Trump says 'bad things' will happen if Afghanistan does not return Bagram air base - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNVFo4aXl0TW9XWnpIR040dElNUk1MZ0IzLWJKR0ZQaE9Valh3VmN3Wnkzd01BTm1FeHdCOXpqbmtpSUJwQ3FWdmZnbkNIWWQxQ0NBcy1TQ1U5RnRENzRDc2kxZm9FcmU3MWtiNVZWajVfTk9qVU9ja2Q1cnBLMVRJTkhacVJ2dS1Ycmc3OEpGUGhmWDdYWFpzb1RDaFVPS3dLQ2ZhOExOdFc2dWRILTVjS3IzUWRGSWZ5bmx1cmFQOHhxaFExSDNqeklvMUxuY2Q1?oc=5) |
+| China's ByteDance will get 1 of 7 board seats for TikTok's US operations, official says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxPeWdVNjdXR25QR3psMnNRNEZ3Rjg3ZnNvOXMwMXFsTDJKQnB6SkEwenVIUkdDSi01bnRoR0x3bFBXUjN2N0MxQVJRSHJNX2pPajlfZXUwYjlfcHJERW5fV3VfM0xEdGc1bTduanUwb0VsNVladG9WWGFiWGxxYXZWUHVGYkNkR3lhY2dFSTQxVThRbW9WSnpYY25iWmx1dW5qSHd3bDBYX2pyTnEySXBFSl9Wc0gxWUZ2bG1fbGpyXzNqaTdaS0xac2FFaEdnZGduMGNHMXpqREJLdWZY?oc=5) |
 | UK fighter jets begin NATO air defence mission over Poland - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxON1huU1hzeUozeDZDbVJHNF9qdm5RZW9QSFlDSHFyMFEydGEzcGRQYk1Za0FycjNhWmFIZnBVeEN3X0hwTmJMbWFtTHBMR29CQi1ZdTY0N1NCQTVrX05VN0NqeHBCQ2lUdW5ORFBCSDdaV1BGRzRLS3MyTXR4dUljbk52c19UaGZRclRZd0ZYSnlSdU9KU2c1YzNuZ2VPS3dIZ0tIaEdSeUxOZXpsamZualkycDQtX0VzTzQxb0JB?oc=5) |
 
 ---
