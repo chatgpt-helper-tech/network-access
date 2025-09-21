@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 11:01:12（北京时间）**
+🕒 更新时间：**2025年09月21日 11:12:53（北京时间）**
 
 ---
 
@@ -23,15 +23,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| New H-1B visa fee will not apply to existing holders, official says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBpZG1iRlJ6VGhuWlJGdFJjblR5TS1ZTEdaMzFLeFk0UUh2RGNraWpMU3hvMmZkU2tLSXBNUFRaQVktX1JQbGUxZ25JVE9jLU8xSDJlZm1lRFB2MzgyTTlCMkcwNTFHRHFUVk5MaHBR?oc=5) |
+| White House scrambles to clear up H-1B visa confusion after panic throws corporate America into chaos overnight - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNamZvLVZhYlFYcEV5a2trUkdBWnN2OXV4TWo4NjlVdDFCR2Rua012b0dpT3ZCMEJSVThxclBQVU5VSndiOE5WakdOeHU0MDh5YXVOb0R6ZGt4WjlaQjNiMWRsdlBjbUJPOV8yVjdVUmhXU08xbFRpME0xbHpyWC1adEJULWJKSEQtaHlMVUd0T2xKTXFfZUFOWEtjeExnekNqZXVIajJHMmNoU0s5QkE?oc=5) |
 | Charlie Kirk memorial in Arizona expected to draw 100,000, with Trump and Vance headlining - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOVV9XRF9qd0RoR0dyaHdxdVdOSFhTM1VVOUU5bXJYOTJlTVdzTHE0VGdadTdULVpMRVJhdzA1bGJEQWtQOGJwc2V1VjRuMV9NS0xyX1hWV28yeVlDU3JpSUdBd25wb1VoU1JEQzJlMEE4MGQ1cnR6aS1US0hNRFZkTVVHd3dlZ9IBiwFBVV95cUxQdUhINjVPVzN4dG1YUUpRcExmbVVIMDFPNnVrOVl3MmR3THN5bUhlRWdJdG1fSlhHbVhHczR5N09HUTJLUWZfbXhvTjR0OGhJbmFiQzI3c2dsaWxSVjFxZnc5ZlY1X0RNNGJPc0taYjRIVHhyWTdDaFdwUGxtSld1TG5MMGJKZ09famw4?oc=5) |
 | 'We're not North Korea.' Newsom signs bills to limit immigration raids at schools and unmask federal agents - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQUTdxLTRjaXJkYnIzcGZTVl93WlRPb2dHS3RpUl80ejlWWUlQRGdfOFEyTGhLWVg1X3I4ckJkd2FFUUZlQjZ4WFBrQS01RVVKZDhUWF9MWVZBTEV3akhpdG9PVHVHb3RmZGY4N3NEZV9sTDc1ZVRLcDdaeWJTX1F3dmpjeExubGp4cWc?oc=5) |
 | Trump nominates replacement for acting U.S. attorney in office probing Letitia James - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9kZFdCanRYQ2EwV2pUTV9SZzkwNUhTZTIzRF9IVVFFbXNRTjFPV3UtckVrN2ZWeTVLbzBwNGE3NHBnS1dxS3haNDlUdmhvbXpOY2NfZGMtNkxzYmFlNk1GeUJJUm5PdHV1WlRNRnZVNmE4NnRBWFBDX0xn0gF_QVVfeXFMTUg0WndPV2s3Vmw3YlBleDhIcEpINFA0ZzdFbVVWbGVuUTlrTGtTWGN0UElFUGVlMmpjRW45dDN2T2ZFamZaLXJoS25VNWZ3dGQ5eG1rSHZZY3IwbHJNb2s1TFZicG42TDByS0tsUVBHN19XWXN3eDg2c1NfYzc5VQ?oc=5) |
-| White House outlines TikTok deal that would give US control of algorithm - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE52QU51TnlGUnNHNG1qZmJPVGFWR3A3aVVrSmJqVzI3Q2tkNHc0ZHRVbm9KRlNYSVJPZG9KYjJZWGtwT3ZsTk1ZTnNpbl92TEw4RGlPTHZoNnlmQdIBX0FVX3lxTFBzN214SU1iUkJ1Nng5WlhJWU1XRklHRl9yOTJQYXRnYjQyN09PSkZUX0VxcUloZWlMU2NpOVhrWUwxVUxRTktsdDMzNlUtbXV3M0xMU1dGeGFVUkhqLWEw?oc=5) |
-| Trump border czar Tom Homan reportedly accepted $50,000 in cash from undercover FBI agents - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNYkJCbXNBSXo1aGlfVTZkbW1pVEE5ZWY4TlhHbzhsTDJZWkF4Y3Y5N0FyOTZoaXlrSDVTeFpJYmNvUE9vU2I2SnFhS2p5blYtUjc5MUcwMTc3WVJWZ0NzMlJId3owVW9oYTJJaHlybkkyTXNWbmhIbldNY05jTHFOYm41TlNjdw?oc=5) |
+| Man Charged After Drive-by Shooting at Local ABC Station in Sacramento - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbkFfVGN4eUdTbjZEQWc1OVdJdDU0YzJ5UkJSNWwxaXpWRlBmZEhndkIxNlhJbUdSVVV1UUM4aWs5QVZNTHNCdUFrM1IxN3l0eDVmdUZjVm9xZjdRZEIxSU85Z09OQ1N4YkI5dms0bmZiSXlGUnl3TGs2LUFMM2Y4clFocGw?oc=5) |
+| Multiple people shot at New Hampshire country club, police say, suspect in custody - CNN | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE8yWHNNbzZCemRCTHM0VmlNS2VscXQzMkwwTzlQc21PaGFTeGFkVmhFUU1TNlVTUzlFZFhpN0VFT2ZMenRmMnJXTW5HdDZDbHM4R1V6TXhDMlVjOVVrZjVNc2FPUVVxQWNCM25tNV9Hb2w?oc=5) |
 | Oklahoma Republicans propose all state colleges must have Charlie Kirk statue - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQRVZpLU5xNFRIREZXV3lXSlUtbXpSczMtdHgwTC1QaVpFZmktZTZaRUtFbFFpdG9aaEJjNEJBOXlyR0ZMUldQUkMwZmRYUVdTRjZXVzJSOEZtMlNpNzBocXVOZ1lWVVhnai0zR2lKN1VocDBTRFZ3TDlDbTl1M2lsTkpZTXJQNDJY?oc=5) |
+| White House Outlines a TikTok Deal With a U.S. Board - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE53Mm1MeDZNRzRFMU9WbG85b1NOOVlMb3N5Q3JfblVxS2lEWnBFNkU2NURYaTdyeDFmdVNZMWN4US1iUG0tQ1lOSlRiT2E3dm4tSXBFeV9TRjRhcWxNUlpqMHZmcFFEd0dVZGp1aTNMS1FHRXNpOWU2ZWtBQnIxdWs?oc=5) |
 | Schumer, Jeffries demand meeting with Trump amid shutdown showdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQNzBaT2g2N0p2aWpRZWFzZ29oUkxTeUlVbEk0NjMwZmlEU0lJY0I4TzR0V2hjSlkySU8xTnNkU1ZsUi1xdTFFYkFYX0JGLVRNdHJLby05NTVwcGlTVkstY0NGOVBiVTZWbUVoajhDdUgyYTVWUlFWTmIyWTBBMGdPcFNhV3lxeF9yamc?oc=5) |
-| Man arrested after drive-by shooting at ABC TV station in Sacramento - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5ZejZKRVM5TlUxaXlqel9uYzRVLV9uTE5YRjhRMlBfMi1fQU9qVTB2OUMzMWVoU21aX2o4a0RzMVhxUDJuTjFQRTBzOTRmemJyQmJDdll6WFljM1p1Q3ZoWVpkV2RzaHZUc1BXU3kzV2lDZy1C?oc=5) |
 | Trump says 'bad things' will happen if Afghanistan does not return Bagram air base - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNVFo4aXl0TW9XWnpIR040dElNUk1MZ0IzLWJKR0ZQaE9Valh3VmN3Wnkzd01BTm1FeHdCOXpqbmtpSUJwQ3FWdmZnbkNIWWQxQ0NBcy1TQ1U5RnRENzRDc2kxZm9FcmU3MWtiNVZWajVfTk9qVU9ja2Q1cnBLMVRJTkhacVJ2dS1Ycmc3OEpGUGhmWDdYWFpzb1RDaFVPS3dLQ2ZhOExOdFc2dWRILTVjS3IzUWRGSWZ5bmx1cmFQOHhxaFExSDNqeklvMUxuY2Q1?oc=5) |
 
 ---
