@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 10:00:07（北京时间）**
+🕒 更新时间：**2025年09月22日 10:12:32（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump takes stage at Charlie Kirk memorial after Erika Kirk says she forgives killer - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE04WHo3aVNSSU95VW94ZkJVSnB0aGo5MGtUa3RIYXR3b1kwRW9ZdjhQVTNwZVRSWlZMc01rVXh5TmlBWThnNmZBU3BaRER5Z3BTcUZtMg?oc=5) |
+| Key takeaways from Charlie Kirk's memorial service - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNS0gta2VUVWp5WjRucUZEbGlkTGxzTjEweUJNR1hQdHQzVXhCOXNHbEpoUDc5cy1sWE1ZMnhPN2d5cnM5RWRPSGxSV0thYXlCOGM0RHVCUGphWjFhWVJtb1pLYWhsUDQzNWNhQmtmazVpa09JRThKX0VaMHllX0tiUlM2bzBJWUZGVlg2aXJ6czdXUjlzclZqdXhaUdIBoAFBVV95cUxOWWhzT3kyLWZJOGZQa0NiemZ4OW1pQXdsX2lyWlhvN0s5Q1FFT0FPSFhad0hfQlVNMUVRUVpZaDJUdjNNa2Y1M1BhbjVGaVNZM2I0SHlTaUJqQTBwelNTOTYycm00Y3Q4dGZ6cU1qUU80aGg3cU51clNaVUhmemtlMlJ0N0stT1VjbkpIYUo2TXR6TjQ5YnB2Vy12WTF2MTBT?oc=5) |
 | White House clarifies $100K H-1B visa fee won’t apply to existing holders as Trump stirs anxiety - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxNY0NMMzVVY1BzVzBPUHlhRzZraGRpWnVWSFlXUDlmMjRGeTl5cmZ2Ry1kMDlsV1ZScElFSmp2OERmRE1PM1AtbDB2S29pQ1o3cHZPR2ZjaEJsZjZIclJyVVdmdHJiR3k5ZnJ4TTM2M3ZpUWxZcVh0N3hkX2U0WVZrcjZmVm9CbzJmYkhxUUswTG9PNDJWSU9HTzJ4aUJ4bk1WejlqRkh1c2RVTEVrVFpTR2ZhMV9waHZqcWNvQVB6SzdQNy1vZk1IZXljZWnSAdIBQVVfeXFMUDNCWWY0LThVRC1oSEtmanJ6UmIwTEE5aTNmbkR6Nmxod2ItSmhLdHlXUnVzaEc4YmRsdTFzRzJaWVdKQ1lUZy1HdWFFdThRV3dySlZjWEEtbUdZOEtrTkRlbjU5ODhKZkpXN1oxc2JVX19UeGRvX2ZpWVFRTE5fS0R1RnlLSHd1SENCdVNZUGtCMEZIU3R4MzlhTlRTXzlON0R2NGU1cWVKZ1lGX2dKcjBvRmU0ejJqbmxrY3RBdjM5ZDdleEU4YXZQMEVqZXlvd3J3?oc=5) |
 | U.K., Canada, Australia recognize Palestine as a state, breaking with U.S. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQQndfNEtJSTJzS3dRM29ZQVFhbDZOMUF6VC1Yb296V0lWRTJEbUpmWHRobThDd05XLU1tUTN3dmw3Y3E5bXdpejgyVm5CMlJHLWE4WHRwb3BWNm9SZUI0Yzdoc1RiOVJwU2pzcHliUzhlUVBvQjh3MlRuVXZtNW9kRFhTY3NfYW5UYmNpUHVkNDZVaXIz?oc=5) |
 | Trump aide Homan accepted $50,000 in bribery sting operation, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOUDExemhTT2pFMVdIakxVMFJzSFNnVV9NOENTX1dmWmJ1WmhmdFpwWEJrU0h2Vi1pSW1Qa0NRTTBIbnh1QXBxNTR2eGEwTGxVX2NmN24xTk03Zy1vX1daU1pCNC02T0sxODZZRHZLMGhKelo5SFNFQU1PLWhVNmtIQnZHTUQtQ3EzdDg4RWszRkJ0bjdzR0pJZzlQdGVRcFJ1SG5kNDRJZk5hYTE2R0h0M0tn?oc=5) |
