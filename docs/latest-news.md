@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 08:00:11（北京时间）**
+🕒 更新时间：**2025年09月22日 08:12:12（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Man charged with murder in connection with shooting at Sky Meadow Country Club in Nashua - WMUR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQLUViQjY1SWJRU2U3RHJNYURUb19oNUV3emRkMG9Yd2N5VGVnVkZ0ODdYeXpjTm5hSU1Fa29yVDdHZVVmX3A1RVJlSGowV3JpaUNmcTVnQ3haUlRlLUR6bjBLQWpONkNMYlBBcWlhOGVpSjJHN0hWVWw0Zy1DLXRaVVdvY1UzVUk3aG9hWWgzSQ?oc=5) |
 | 'We're not North Korea.' Newsom signs bills to limit immigration raids at schools and unmask federal agents - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQUTdxLTRjaXJkYnIzcGZTVl93WlRPb2dHS3RpUl80ejlWWUlQRGdfOFEyTGhLWVg1X3I4ckJkd2FFUUZlQjZ4WFBrQS01RVVKZDhUWF9MWVZBTEV3akhpdG9PVHVHb3RmZGY4N3NEZV9sTDc1ZVRLcDdaeWJTX1F3dmpjeExubGp4cWc?oc=5) |
 | Taliban rejects Trump's bid to take over Afghan air base that U.S. controlled for almost 20 years - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE5DczNCbEVxb182QlFPVjFiUDNWLThta3psaEw2UnBRQmJWZkw0UVhkdUlzaHpZYjhGTHdmRkJvU1c5WTVkOTN5b1BvLU1NVmlqTEN6ZjFRZ1dzaHFucUZBU0xfbEw4SXprQS12OTZvWmVXWjTSAXhBVV95cUxOZnRzY01JRkdsSkVCV3VucU1vaHA4QVQ3ZHcwaXVDclgyWGJ6bFVlXzRLcjIyNEZlTE5Qd2htaWRneXNrZUllY1FQY1JpQjZqWFVucDBpOGdjUU00RHllWU02ZDRfZXkzamZzbHg3ZzZFRVVFbHhYaEw?oc=5) |
-| Tiger handler fatally mauled at Oklahoma preserve - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdV9aZW0zYktOZHozTGZCWXNjYUhhUzFuNC1XVHVfQ0tXc3RtU1JxXy1RWDdpeG9yck02UjVNYkE0RndrbTJlR3hVQWI2NTM2d3ZsWHJJYmZSUlh5VG5vQ3RyNGhkUWV4QlEzVXNtb3pIR3VvWkhOMF9ubnE3dkx4a0g2dU5wc0VDMmtHeEZDc9IBVkFVX3lxTE9rS241ejMxXzhDbEpwMVc5bjY4YTFidEZObVY0TU9sNmlYNDBtMnZVZ2lqNXNSaXZHNXowRHktUEszSnBRSUc3UHlxbVROT2U1RjFYU3FB?oc=5) |
+| Trump says he is appointing Lindsey Halligan, one of his former attorneys, to lead key prosecutor's office - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQZlB3TFV1U2g2cFhSWk1SMVY4SThUVGoxbkRpWTZwQndRMHZpQW4wbVFrb2NmSkh1ak5YRWt1UUR0WW8tanVJR01saGdfa0JTQzJTdm42VHJCWU5KVkdkbnhGNVV1MlJXUlB1YXUyRHRINU5tYUFYMGpEWjBzaFF3ZmstY0JQNE9hdkI5WmZzWVVZSTg0UHVvUVFlYUxIY1FTeGFPeThXVFYzUmlyUEHSAbMBQVVfeXFMUDQwQjVOUXJoWWprbThCT0o2TEhXcFZLN1FKaUFuNUVJLVpLTnQ0TGlORmtfQlUtNzFYb0xXTU5hcnQ3VTNWbVRvbDZiSW9UYk5TSk52TmxHVWhlQk1qWE5kVHJOVjVZbExXM2J5bHRuU0xZd3ZkTVhDSkVMOGZrMVh2R3JmM0dCT2E3NGxMZ3hLdUx6QjA0Y0xvNGp2cUl0V3prSFJGZXpmcHdBMHNXWG1NbGM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
