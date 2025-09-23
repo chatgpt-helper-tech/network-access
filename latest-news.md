@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月23日 21:01:00（北京时间）**
+🕒 更新时间：**2025年09月23日 21:12:09（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| U.S. Secret Service disrupts telecom network that threatened NYC during U.N. General Assembly - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPNGttOFRaUTNNTzhkNzZlaTItVlVMQVgzUlNnN3JtNjV5aC1qZjFlaTlwN3FqZXktQVFNX3Q4NlliUVNMM3V6dnc2SXBwSTdsSGNNbUVCQl9WVU5aTEhsQVJYTkhHN1kwcFFFeEZKa2lvVDd1c05mSmZNc3JiMWYwTTNmbUp0Q2NLdUY3ME84RjB0bnpWdnZjLUxBcmwzcmZJVU0wZXk0OVlfYWY4cExXc2NuMk5kdmJfZlI00gHAAUFVX3lxTE5aLUlaLWdfQUlpT1B3bmJHOHUwQnBNZTE1QXltTmlaZkxEaVhhWFRvWFp1TTlySDFVMGUtWUI3UGNQeVQyRkZZbjNhZF92dWtTMDFOSnNKc2QwUGJRc2Eyd21YeEoxQ3Qybk83RnQ3S1BxNlNueFVrc2ZWZzd3ZjVsTUNmYkZwa25lNVJDREVFdnE0OGZwUERSUTJrcF9Qckd5cFQ5NU1ybHkwSEFBRHVYWElJZEVvNko2cGgyWGczdw?oc=5) |
+| Secret Service agents dismantle network that could shut down New York cellphone system - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQeThKeHNhRi1NYlRlcVU0SGc3SHhiZlk3dGx4T2VJOHpsUHNYbGNfQXdMcEtibEdjcTVhWEhoaURvZVgtMVBvMjVMTGNEUVRLblRYeUVCQkFGVGktQlRLMEpVRzhDeVFqZkN1VlgzcDljQkMyM1JmV1BoMVJFeEFrdDZsSFNOQ1FqMWhCTGtpQU02c1o5SXNLZGJhSE9ENDRwbFNzbnBLQ2NNY0VJMExWVHd5ZU1jMGhlQTN0MVYxYWFXSER3MlR1WnZDUWrSAVZBVV95cUxPcUlJWkVZQVZQTXVocURMd0tRNUFUV1paa3YxajA2bTJXdW4wX09BTW5SSEV6YVBVbXF0OVc1OTlfdHlBVVFtbzMtSE1FMDFwT3FaRjU5QQ?oc=5) |
 | Trump’s Tylenol announcement: What causes autism – and is Cuba autism free? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQYUlXbktrblA5VHpoNmVucUZwaW1MMXJMT1Z0dTdBM0MydndsLUpBTi1zcEJhVzlDQVZnWm8zSjNVczM0STloTmNNZnMtamVxMEsyOGNtNXFudUtOcW9uOGhCYzBtczZqbTF2UHFua2Qwek1BaENXXzk3dnlsbG9ZSjBKNFEyNld0VkdPZmNhMnZKc2wwWmVRcW1FYVlndE9QVlI4RHBmUVl5dFM2UTZRadIBtgFBVV95cUxPOVpwMDFET04tNGl0UlV5d1YzQzNsOGREQ0x6SEtjeFc5SG45eThRaWRIVmd4MTVSN1VSellvX3cwdmVtdTBWdmtOY1ZwR0h2dy1hZzFjWG00cDI4VVNJMWU0QnRzWHIwNjdFQzZxTGhXT0ZBczRzcURWY3psZEZVRnM3aVRvd2FYLWJRTDBqNjhFcXJtYjNnRGR0d2JuOG9WeWViWEtZRUlmUy1Gc2tiZi1OdThMUQ?oc=5) |
 | Trump was once laughed at on the UN stage. Now, world leaders are courting him - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5LRTNTd21HWmkzeDExTVJUQ0NuTVkzMFlHdXlrR1psbUExbER2SUM1aDFaY1pBbjJDUTdOVUVuSUZuUk84QVZXdk9sZF9mTUd4LWxDdnVadWE3OFhCZW13SEpzNjh1cVRJYy03RnBTZkZqcTU3cHpvd0ZXbk8?oc=5) |
 | Business leaders including Jensen Huang, Sam Altman, and Reed Hastings, react to Trump's H-1B visa fee - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQV1g4cGhYdFE4Tm9FZnZUdUwzblhGWGs1QlZ4VTR0d1N3akNmUlNvcnlDclNjT1ptd1NQVE9hQ3VNYkZOLTVMYURHRUg3NnlLVThiakJzMlNqWGdPWHRaVS1SLVpHclc2dVJIZTRoaUhfWWxiNTA0MFZlTjI3WEhGcVN4QUlFMUE3?oc=5) |
