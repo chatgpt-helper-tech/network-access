@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月24日 05:01:47（北京时间）**
+🕒 更新时间：**2025年09月24日 05:13:06（北京时间）**
 
 ---
 
@@ -11,10 +11,10 @@
 | Six years ago Trump's UN audience laughed, this year they were silent | [阅读全文](https://www.bbc.com/news/articles/c179p4wvz29o?at_medium=RSS&at_campaign=rss) |
 | We'll stop Farage turning UK into Trump's America, says Davey | [阅读全文](https://www.bbc.com/news/articles/c4g7py75g0ko?at_medium=RSS&at_campaign=rss) |
 | Nasa plans first crewed Moon mission in 50 years for February 2026 | [阅读全文](https://www.bbc.com/news/articles/cy7pegvz17yo?at_medium=RSS&at_campaign=rss) |
-| Is the Epstein email one scandal too many for Duchess of York? | [阅读全文](https://www.bbc.com/news/articles/czx0nr29neeo?at_medium=RSS&at_campaign=rss) |
+| The Gen Z revolution in Asia shows the power of the young - and their limits | [阅读全文](https://www.bbc.com/news/articles/cn4ljv39em7o?at_medium=RSS&at_campaign=rss) |
 | Man found guilty of attempting to assassinate Trump in Florida | [阅读全文](https://www.bbc.com/news/articles/c9wdv0118npo?at_medium=RSS&at_campaign=rss) |
 | Booker Prize shortlist choice was agony, says Sarah Jessica Parker | [阅读全文](https://www.bbc.com/news/articles/c62lej4x148o?at_medium=RSS&at_campaign=rss) |
-| Epping hotel asylum seeker jailed for 12 months over sex assaults that sparked protests | [阅读全文](https://www.bbc.com/news/articles/cp8j5vp7413o?at_medium=RSS&at_campaign=rss) |
+| Is the Epstein email one scandal too many for Duchess of York? | [阅读全文](https://www.bbc.com/news/articles/czx0nr29neeo?at_medium=RSS&at_campaign=rss) |
 | TV stations refuse to air 'insensitive' Jimmy Kimmel's show after ABC lifts suspension | [阅读全文](https://www.bbc.com/news/articles/cy4j0zldevyo?at_medium=RSS&at_campaign=rss) |
 | Amazon to close its UK grocery stores | [阅读全文](https://www.bbc.com/news/articles/cx2xnkkn9ywo?at_medium=RSS&at_campaign=rss) |
 | Noel Clarke must pay £3m to Guardian after losing legal battle | [阅读全文](https://www.bbc.com/news/articles/ced56jjnwz1o?at_medium=RSS&at_campaign=rss) |
