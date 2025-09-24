@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月24日 20:13:13（北京时间）**
+🕒 更新时间：**2025年09月24日 20:24:50（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump slams Kimmel's return: "We're going to test ABC out on this" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9HVGd3QVpjWmRhWGpxYk5tWDFaWURvUGZ2dTZjX0Z1T2V2NW1UYU1HTHZ4YzdWN184NDBiNGZWem9CbFVwTUN5Vm9uSHdGWFVfenZXWFM0QTRNdEEyRFFWNlRJUUpOOUxONkM5bnM4SQ?oc=5) |
 | Democrats sour further on Harris amid book tour - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOVWpHOTVTbFhvWlJZZWFkekRGNzBkM3ltSjRnLVhaelNvNUF2eDctNGRQT1hWLU1EWkwyU0lrSjd1S3pPalh5aGNTQmZoQ0NGN1FRalNRdTBOalBvMjVhVmZLRlkxNVg4OWI0NWUyU3RpdXZ3NXZwcjlJME5nN3ZxQlVOYWNOaFVJcGdz?oc=5) |
 | Camp Mystic plans to reopen in Texas next summer, a year after floods killed 27 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxNRVhMbHppdUFjN3EyZ2tZVjdQX1BTWll1STQ4VktRZWUtNkw5aXgtbnZnOGhjTUlUSGxGQlpwR1BDNkN1M0pIM3B4cEgyaTFQbG9FQ3lvSFZrZVRWd0NXWDgzQmZGY1JaT2U0YWpidEZ2c0FrQXMtdDRpcWVZczFBNWd5REtubEVZOGN1elVBTUlMNHNFSllIRmxySEltcm1fOTVIMjR1QmlWa1VqYmM0UzYzSEZTbE1EeTk1cWx5Sng?oc=5) |
-| The top Senate leaders aren’t talking. That’s a bad sign for a shutdown. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOR29ST2t5NXNuZ0dhM1RaMUNCeEN4Wnc0aXhMU082clAwbW00SndZMWlhNEtxMWN5WGNzM3ZlN0Y3VTh5Tm5JczBVb3o0eXMxMFFuQzdDZzd0ZC1fTzA3TXYzcE5ONEJDcDZxcVh5ZkdpQUZENU05YlRXOWdBUnVTQy13QUVFb1JZSWZ2NThsVzMzX0h1R1lR?oc=5) |
+| Jury convicts Ryan Routh of trying to assassinate Trump at his Florida golf course - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPeUFNaXhPWFgtX19oMWs4dVk2RExoQzc4eDB2OUZLQUptNlU2ZWtlaE51V2FlQ0tUQ2E2YzFVMEhCaFdxX2ZyakVIQ0dKb2N5TGloWW50c3ZFbjd0a0wzdGVXS3h6b21QN0VvSk1JVWZLZVhTOC1xMUc2OFZ6OUxyS0tZeERsdGJoOGhuczIycW9ZbkpxNmlPMFFLNzJhM1pzd1RyZlJoOWlLb2RIUGdHaDd1c1NvUGNueVE?oc=5) |
 | North Carolina legislature passes bill named after Charlotte stabbing victim a month after murder - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNQ3dtUkl5bTBwd21TY0JsYmFOSDN1RzJ5QTFTTl9fbWFRekFocVo5MjBEUUFZWmlkVDVzZ29LVkJXSDVEM0FQZlNkRjNWMkNTMXBxVnJ0QTVJc0RrYklUVTlZU1RORXdNNWlUdUZ4TGtyT0FmMldwS1p6YV85VDdCeHdNNTgxUUtMNTFlM0V6Smx5SkNsMllIVlBZRWFqRnlMR0HSAacBQVVfeXFMTWZ5U0FPYlRwRVU1RjhJNjdnd2JlSndzZW9uLUEyOC1Nd3dkRnI4TFU4SElCcTFwcU1pcjZvUmhNTnFubXM3c1Q1eUFYSWpRa19lQW5aT0U3OGVvUDROdllBNGx3VG9adUJiSXIzS214Qnc0bG1HakJWVE5FWWhON2o1bDJ5NTJxU3lUVzI5a05hc2xQZTFBVFhLWVJnZWVIRlpvTm1BV0U?oc=5) |
-| Trump’s H-1B visa caper will backfire - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1VMlZ5c25ZLXUyaFVVazBCOWl4RHdQMmtsTktNV0R4bnpMNnB6NEhXdHh4U0hYTkRDY04yVE9wdWw3bU5BTklvNjVycmJSeU5wQldqRXV5VHpBZmdhaUhLekFaelRQOXFxNFpUUWRHT2Y?oc=5) |
+| The top Senate leaders aren’t talking. That’s a bad sign for a shutdown. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOR29ST2t5NXNuZ0dhM1RaMUNCeEN4Wnc0aXhMU082clAwbW00SndZMWlhNEtxMWN5WGNzM3ZlN0Y3VTh5Tm5JczBVb3o0eXMxMFFuQzdDZzd0ZC1fTzA3TXYzcE5ONEJDcDZxcVh5ZkdpQUZENU05YlRXOWdBUnVTQy13QUVFb1JZSWZ2NThsVzMzX0h1R1lR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
