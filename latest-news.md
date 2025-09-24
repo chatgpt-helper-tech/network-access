@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月24日 22:49:05（北京时间）**
+🕒 更新时间：**2025年09月24日 23:01:26（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Ryan Routh found guilty of attempting to assassinate Trump in Florida - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQelJNQnBIT0FjR3FaRTA5TTZ0c1pfV2JPdV9nQ20weHRUaTdOTEhMdGN6NUF0SnkwTEQyaENScEg0NlBZQk55RDZnR3ZrSG5mYXExeExyeFBMSDBxVEx4VnQ1a3JndFFKSmxkYjQyVm1HRzMxTjBpSkVGNTJwaEhjSDJyNmVHMTJOQnRtcnB6Rkxva0VWM0lKZ1JOaDdxbVJ4UkVSTWMyU2tBbUxHdzVj0gG0AUFVX3lxTFBDTU1FZElDVm5ydUZabVpWVHZPMmtVMFhFdDZ2OWc1VldXUWJESlFuQ0JlQWVveEd5SUZzdmVXcUdXeFppdDR0U1dldkdONnJ5ZmpheVBGbGVSOWZrNFRBc0pQWlJHZWR0UlhpT1lWNlBDbklweGVXYXp2VDFNMVNqelR0RkdKWDNXWU1nLVZIVmhpdTd1YXFSY3FWd0ZwWUhHOXUwVDAyb0FwRzZEdlFsZ1ZVWA?oc=5) |
 | Camp Mystic plans to reopen in Texas next summer, a year after floods killed 27 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxNRVhMbHppdUFjN3EyZ2tZVjdQX1BTWll1STQ4VktRZWUtNkw5aXgtbnZnOGhjTUlUSGxGQlpwR1BDNkN1M0pIM3B4cEgyaTFQbG9FQ3lvSFZrZVRWd0NXWDgzQmZGY1JaT2U0YWpidEZ2c0FrQXMtdDRpcWVZczFBNWd5REtubEVZOGN1elVBTUlMNHNFSllIRmxySEltcm1fOTVIMjR1QmlWa1VqYmM0UzYzSEZTbE1EeTk1cWx5Sng?oc=5) |
 | Oregon police recover partial remains of dismembered woman in 80-year-old cold case - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQeEJfUm9mTTF1dU54N1pqSy0zRkkwQ2RPQWdzRXlBX2NqU2NhdzNaZ3ZTbUpBck4xeUJsX2kxMkhyUTFIZzFPMFo0aEpkWklXNFN6SlM1T1lPai1TeGN0eUJLODItdnQyNVJkclBjTjZxRmItNUx0RXVoNFZXU3A5OERlQndPRkl4YVpjZllxZFVkTFlQVjZ4MHJhLTYwMHhCNDN6WFFB0gGrAUFVX3lxTE5CVzNfeWFtU1VKOHF2RlhHbDR2YlJWLXJ6ZlJrVWR0UzZsMmo5ZVRPT3ZmYklGZFlJRUJqLUV5cHRuVWlHaG81T2RWWXZxNGpKYnd5bXc4T1g5WlFod1o2NWw0X1doazluMGtWdzBtcGV1Y2YtWkZoZDg1Vm5QT2RZS0FoekdaYmVyWmY0NzdMMFJhbDhianRKZFVWVWlLVGlJRzVTVl9oNTg5MA?oc=5) |
-| White House suggests U.N. escalator mishap with Trump "doesn't look like a coincidence," as U.N. blames Trump's videographer - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQTUg3NEwyX05pUlBuVWNqdnJGNjlHUkp5dTUyaUFQMzVLcGc2QTlqSG9VLU12WTViTi04WW5fdzNTbmVJY0VPaUR0N3REbEZNM1Q0MS1ERV9FOHptM3J0VDIxcUd1N3JUMGlYR2IzMmc5QUpkcWhHd3RjbVJETUhoaTliQ2UyTUdtOEZzR1pmVWhxQdIBlwFBVV95cUxNUFRrbk1zWS01aDM3ZXlJMUhyQkR2OUt1Q2h2NmRDS0RnZzNyOFdmc1ZpVDMwQ05JalZ6cFl3b0h2c1NGa3lidnIxMWF6cWJsa3l2cDRTb1FnLXN5Rk5qbHFuQjZKYWhfNU1ha2JmRGhQUlRONFZMd05lXzdGX0l0bjdnWHlxNXZGQ1VrQl9TRC05dzJLREdR?oc=5) |
+| Democrats further narrow GOP’s House majority with Arizona special election win - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQelZJakw3RnRzSlVWRGE3cFpkWl9ZTWdrNHBwemoxWC1yR1FKaFRRY0N5eFpFZW5EM3BwRTdhN2wwTDRrWXN3SXRnQTllWTdkYl9mX0xWcDBkM3hpZEdoUGtOTmZ4YWthX2RBZjRpbDNrWVE3WUlIanhVTk1ycTlKWFdEeVY3OUpjc3RQb1JZVE8xWERySEkxYXY0LU50aTNDQkdEUmJYSU5TQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
