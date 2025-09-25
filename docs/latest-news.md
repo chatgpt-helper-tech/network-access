@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 11:01:29（北京时间）**
+🕒 更新时间：**2025年09月25日 11:13:33（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump demands investigation into alleged ‘triple sabotage’ at the United Nations - CNN | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPYlAtUjM3ckZsbEJiX19tSTh6Y2VLMjdUSDhNYWswWVdDSzJLRnFJTFBYQ09HRV9SMnlPS3dNakFmRWJhTjVHMUJFLWxKVlZ0M0hjaktSTGVzUTd6YnRHZDFILXliUk5KMmVQTnJrTlVRRE9RNjFUZlFwTTRVeG9GMjVsQTVmbFlXbWkzOHZpbFhyNDJOb00wMUxnbERXaEJJdVE4Q0RnTQ?oc=5) |
 | Will Trump Sue ABC Over Jimmy Kimmel? Why Claims About ‘Illegal Contributions’ Are False - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxON0E0YjZjb0FYckJOeWVRWVJxX20wdU5ESHBPaEFLNm9nUmMtSW9CSWg5WEctdUZ3dV92NTZnV0hIQmI1VFpYbDRvbzFCOHpJRUFTLUMwbDBOX25LbXdYZnhmZEJPU2d4M2oxV2lobmx6Tlk1YmQ3QU9xQVNORjg1cHpfS1M1a3pXbm5qeEEtVlJZNng2Rm5KckpjR1ZuaUl3QnNiZktWc0RPMHhpRVZvVDJYa3BMZ0NNWmFDckZHVmI0NzVhb3dTb0VmZWJVWVJQanNfYVQzaUY4OFdXcmxvRklyX0RhaDNwLVFmd2V2dy1rQQ?oc=5) |
 | Victim's widow files the first lawsuit after January's D.C.-area midair crash - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQdUkwRjdMelQycVk2ZzFyd2FKTk04QS1JRDJJdmFWT0F4WHFsUU9RaE5ZYW96QnFQU1pUdUN3QkFXNkI0Wm5vUEFyMV9aSG9uY0xCaDJYUTU3LXp4TjFHUVpPOEpXOFB0Z3UxNzVFazA0TjBsZTl2SFNOWUFJeVRUQzI3c3I5TFNvUEJBRUxFNFZwTlhFZWdKUkwtSUZIOVhyRW9oVHdSd1c1WkE?oc=5) |
-| Will the Trump administration's $100,000 H-1B fee help Americans get jobs? - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNNm5XVEp3QzZYNnJ4Ui02Wk1PT2NPajk3aEZZeWVjekVaaFFiWWZXQ05DMGx0ZHVDYktGeU8yTWRmNDZHanJHMmNzOXc3WGdqVnloS01DWmFGckdocFVwZG4weF9wWDVPZFBaWEdFbGREWjlGdjdsRjU5M3FxNVg5cUNEb2FsV2k3OXBZ0gGQAUFVX3lxTE9icWNNd3UwZi1mTEFiYTJUcE42dHNLSHJJQnFpMng0Y1VMdWdvUnZVSWRGNW4xQ3VHTG1VcFNJR2NrYXhKVkNTX3dCUHkzQU9KbFJGSzI3U1hUUjdfSHpYelVkcWlFdmVwNlowcUF0eW9fRE9jaEZ0eHRyVFNJTXlhZ0NoQUowMGVhd1RwdGktVg?oc=5) |
+| H-1B visa: US tech sector scrambles in the face of $100,000 fees - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FZjdrTGJ3cGZTcDQ5SWVrYmYxNHJHODgxYnp3Qzl3Tkg1WTF4ZDFrNUpGZFdULXJFLVpPelg3RThnS0loT2RQY1VycWJUZ2JfTUlOVWNLZWFUZ9IBX0FVX3lxTE14T0MxMm9yYW91QXZlNnFCcE5lMm9ocjlyRXJkQmxETU9DZjFfWXEyX0VrdUdQMGRKQmxFVjBBdXRoXzRlTjgxc3ZYOGdSbzJfZTdrNTJ2U2ZyMTRCbzFN?oc=5) |
 | Judge rules feds can’t require states to cooperate on immigration to get disaster money - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPRXVHcG5PQkMzUmZTRzk5UEI1bWZac2F6Z0kwdmN5eDlxUGxVb0tZc0RwZTRkYzBQTDZPa3dWdm1PU0UyWnZTU3VjSHRDbXpaclBLU1c1UnF5WXE3RDJaZTFoMkFGclB3ODA5MVlKMHpKRllFT0NydGx6VFRwY3FXQVVIS1NSZkUxVFMzWG5yMnlHS3VMTXpSZHFYakphd25IZ2pDUWhPRkpwaW5DLS1R?oc=5) |
 | White House to agencies: Prepare mass firing plans for a shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQc193d24xa2pZN1ZaeXhlVEliX3B4TU1VRFBmVmlMX2RUSWNUQk1Da0FjMEhuYUFxbTc4QVdrMWR6ZEwwWS15YjlRZFZtQzdfQmFGOWViX0sxRFNNVm96Q255ZFZNX1hibXgycndZb3pTMmdOUGEwYUduOWdiZjFrYXJubEI?oc=5) |
-| China doubles down on climate, wind and solar pledges — a day after Trump called them a 'scam' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxQcVdZSXdzLUFiNENpU0lwczhmMUJiNkoyVU5SR3N4dDNpaE9KRUZmdWRnbEtYNmN5ejlmQU1wTGpDdEFMdUV4YThENXJVSzZwcE1jS2d4Y1lDdDhoaEdnMUV4bThjZ0F2V1JaT09ET2hnTHI4MmJxLS1DNmhqNDhyTU1VaGtFM21kMGFfVkttSHhjMkdFSHlrd1NJSy0zZkQtbmZqMlVNR3RtYThUWU8yS1lRX05uS0NRbDYyUnlUWTFxWW04MVlFaFZuRDJfTUhnaHV5UDdn?oc=5) |
+| 'You will be the next Charlie', Youngkin tells students - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNNDd2Wm0wblpiTFhZVlFKR0Fab3JwQ2xzT3hvaGxCcWJKZGNVZEg5WG51NWRsVXFQdTZhX2dzNXVXQjBYZXR0VEhaR3BCUllPQVF0bkRnTXFXSUllemJxeTRCVEVqVTh4eEllMHlWY2hSTEZfVDVlZWlxVzNfNDByMm8yeHk0N2Q3RXBIQ3MyNA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
