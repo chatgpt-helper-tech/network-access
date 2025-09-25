@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 01:37:35（北京时间）**
+🕒 更新时间：**2025年09月26日 01:48:48（北京时间）**
 
 ---
 
@@ -17,15 +17,15 @@
 | Drone attacks leave Denmark exposed - and searching for response | [阅读全文](https://www.bbc.com/news/articles/c4g96gvql99o?at_medium=RSS&at_campaign=rss) |
 | 'Film me all you want' - teenage girls with no fear of police torment one High Street | [阅读全文](https://www.bbc.com/news/articles/c0q751vlxw1o?at_medium=RSS&at_campaign=rss) |
 | Asylum seeker taxi bills must stop, says PM | [阅读全文](https://www.bbc.com/news/articles/cy0vpxqyz45o?at_medium=RSS&at_campaign=rss) |
-| Private schools could face higher Ofsted fees | [阅读全文](https://www.bbc.com/news/articles/cwy8xyrwkgwo?at_medium=RSS&at_campaign=rss) |
+| High Streets and rundown spaces to get £5bn boost - is your area on the list? | [阅读全文](https://www.bbc.com/news/articles/c1mx8vr2gr1o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Hegseth summons generals and admirals for rare meeting in Virginia - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5iZGwwMlA3VGFWbnhEakFHbHRSSDFIcmtTMDQ5VnFCWFNNc2U1YklCWjhlRUY0Y0Q2eHJPLWNGNjdtNTZvY3ZkbE55UXNVc0VBUjFudmE0Wllmd2EwUTdXVFBDR01vRUx6dHY0ZzN6RFAzdWRyaC040gF8QVVfeXFMTi1pc1BYWU96S1dyVm5rWVJsamV3OW5HUy01dk9uamQ5NHFFRi0takhmTmhVQzczQkpjVDFnVm9FS0xtX2txcjdqMVNIS3hTWWZRUlczampVUmt2UUduNXlqZGJkbktfOUFZR05aWW8wX0pJdzhBZ2FmaUF0Xw?oc=5) |
-| What we know about the Dallas ICE facility shooting and suspect - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOWnFaOVVsR1dvTGc4ZGs1WVMwNkxjc2xNbXZXaHNvMVhxQjdfNHJFYjczMzZZdjFCRDJMaTJwM25uRXBpWU5ReXcyWkktejM5YmxFYVUyMTR4MWFSM3pCY1pKYnRSQThaWFhvZVI2ZXNFOVFfQ1pRRmdNLVRna2VSdHg5M0JjYnpfcDdkS3d4NUlTU1hvdnRyRmdZRQ?oc=5) |
-| White House tells agencies to prepare for firings if government shuts down - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNWktlaFlVYkYtX295ZGwtUmdOQktjUUFxSDNhenIyczdBbzdjYjItZlFrellsSk83ZEJvMElFNzRZbmV4bG15MF8zVTg4azRCUWttZG8wZUYtSWFjYWhtc1Fzd1dEMTc4WWFLZDdtT3RMVW9OTmt2Vlo5MXJhMjludHJMV09taXBNOGVVWUpRYVdkZw?oc=5) |
+| Hegseth orders rare, urgent meeting of hundreds of generals, admirals - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOMjF2QjR6WFptb211YTdpcl9oaGxaQnowaDkzOXhrbHZGT3hKYU1BbE1LZk9UdHNBOF9NWXYyRlZPODhmUG5Mam9VZzNwOUdWdlZESHEzNTFCUHo2Qkl4blc5d0VaSFVwQUpSSXJ0eEtVMndlcmJ6Snk4dEJnU2NBZThJSU1GUlRlT1hkMkxrWDZpY0JvYlVzTUdR?oc=5) |
+| What we know about Dallas ICE sniper suspect Joshua Jahn - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE10YVRhQmVucDNoTS1UbjQxaFpFVktyUUVSbVRZTEh4WFRqMFE5eG93Um5TMndDTUN3SUpuTEtlSkhLQzJMZnVQeG1WVjNvb1luQUNvVXppbXliQWV2RWZHV3VKN01TZ3g4clJ0V21KYm9zblR1b1Bzajln0gF_QVVfeXFMTk5wNHBxbVBrNTRpMDNXZUNudFRMckFvZ1RPbW12RHluSVJWeWxMQUJzeU5vNktfY1dJQjctSEVOLVZTczY4VkhOTU5HTElVWFpLX0hHYUFpUHMtOTFZS3VObEwzMVVaOEZCc3JMbTl0VTlDVGR6MjVTQ2FENko1Yw?oc=5) |
+| Threat of Mass Job Cuts Raises Stakes of US Government Shutdown - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQQ2pELXY0di1HbTlNTFlXMFBJNTNwbWZzZDF2MzFmdWVHQlVZS3czaVFlSHM2ck9OZWdIQlRNRnp5VWFMa21NOFpEemJhX0RGeEFHbzZ2Rkhqa1hpYzdnZnBYZHdEWHRmOWZmekhmMU9NMUFvOGxtNE1IYWNRVWVWMHFPbGItdEtUT1RMdTJDLW9wYTdjT0N1enh0Y0t5RWMwYlZKX3h4UkhzR0dYRzFpUGdBOUo?oc=5) |
 | Attorney General Bondi and prosecutors have reservations over charging James Comey, sources say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPb3J4UGNpMVJHbDN6M2d1bldfb05ySGpsNDRFdG9IaU9zek8zNjhaYXQ0UGswTGp0STJVWXppRmo1bWlQZUF1S2VuNlBOTnBFM0t0NzAtUXZtamlwZkFCcFNvZnBIY2tlZTAzV0szeTNnVHBINnRaS2NXb196Tmd1RVFHNzRTSC12TF9ocWxQV3BKQ2xFUk9EbDh5eWs3c2hy?oc=5) |
 | Trump's worker visa changes prompt legal review by California's top attorney - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNd2I1WXNkY3hueHFBeUZ2blJmUDZKNU1hZTYtNTN6R01sRUl5MEhUNVBIYWNlNktxUF9RNDNBOG5hcmFFTU9MeUJ5SWJEb3VLUDl6dU1tZGxQTGNjdExLbFpnNHIxbGJhRmo3YlR0MnJVRHEwYjMyYXRNaklKMnpXekdUMDBfUDdqaFlleFRIVkFnUQ?oc=5) |
 | Commentary: Escalator and teleprompter humiliate Trump, so Fox News' Jesse Watters suggests 'blowing up' the U.N. - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQX0FSam1vTWFvM0o2Vk9rZDFhMXFMeEo1bTR0RWtVeGhLUDdVemV1bzNHMFNNbXMwa1c5YVVvTEh1WHJ3blM0T3NKUUljOFJ5MlpDejhoTnctWnRROWNnZlZ1bVRrdThQMFpLZ2dkNVFZUUotT2xVc2ZCRDREcC1Cd1BldlFJVDFVT0V6NDg2T1E3blFVZXdSREE3Y3k?oc=5) |
