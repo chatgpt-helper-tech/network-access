@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 18:00:10（北京时间）**
+🕒 更新时间：**2025年09月25日 18:13:18（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump, Vance fault Democrats after shooting at Dallas ICE facility - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPbUV6VERJNzNWU3FYaWtib3BXLVdacEZaaFVad0NoSXY2LUJXWkRHSkI5SFlGamhGcmlJaFdaM2FmdlNrb05uRTRVM2k3WlhEUkJDSk5ILWxnY093S0RuenFMY3dqQXl0VTRwR3hTbzg2TGZmSnVhN0hzU1phczUzZmxfLXA2YnFHMGEw?oc=5) |
-| With His Pivot on Ukraine, Trump May Be Washing His Hands of the War - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1vTGdWOGFuMjh1THZxemZnbkpFbXc5OThySGhTV0x2QTZpQndfYThTQ29jXzl6ekdaR2RuT1k5OURuZ3RtaURnNnlMZl91T2p0TWQ4clJWZWRaZWg2Qk5FSXgyNXFXa19LRWxPZk5CTXZrQU0?oc=5) |
-| Justice Department to try to charge ex-FBI Director James Comey, AP sources say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNVGZxdWVPZFFES2pEaHU4QTFuS1k2ZVdVN0dkSjJiaDU1RXJIamxnSjBwSXUweVpEdzJIbzFvSmZWVGFGSnhaRldMYzc1R2k3RjgwUU5qUGVTRUp3bDhjTVJ2Q1lxd1lObDR6QWtuYkRBWi1WQk40NVVMUlJwZVY4SlFaMWE3d182b00wT01BS3VUYnlKa0MtamJFMEtidmFpdmplZg?oc=5) |
+| European officials fear Trump is preparing to blame them for Ukraine failure - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9nc1pyV25qbEo0ZFRoNEVmUFBrVkR1ODVkYTV3bEF5RDlaQUwtYUgySDVhY1Z2REl2VXhhT2lpRFczSHMxRVFhLW1nNGgyVW9tVGFwcTBLNkNwM0RpYUFyVVNPeE9HOUxYd29GODYxd2M?oc=5) |
 | White House tells agencies to prepare for mass layoffs ahead of a potential government shutdown next week - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOU0hzZFJfendielNEUEFxOVpIa2VZRmNGTUwxNVFQRkZjNjFpYWNDNFU2Mkd1dEhSWGhXVW1CR1hKTkpEU2tGbkoyeDJWNzhmYW04dHZuQUNPMFBtaGg0cFZsSnlScmFvMC1LcmRlRHZvM0JHcDhVWG5mZnF4RjNSbzJsVTlad9IBiwFBVV95cUxQZkdvY0ZpNE0xVmJjMHhJM0dtZUJ0cDNwREhaMC1vcW1yQzJsYkk3V2o3QVVSV1BUV2toSkFYaG91emJuSDBDb0pWelhSd1dLMlJ6cVdhRlUxYUNNazBRd0dWU3FRQi1WbWpkUjJROVlaZmw2X1l3dW5ib0NNZnQ5Vk9vckhablhTbzM0?oc=5) |
+| U.S. Attorney Races to Present Case Against James Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5HWHpsaDdXUW1oMjNwdDBhcWJGNDgtRzBIZ2VYcUlxeGpIMTVYalFmak5hdXp3ZU5WTXl2NW5MeHhxZWJURzZVZjdETVZBUkJWcEFvejdjako0TEtPV3AwYTk1WlJyckhCc1UxV19XNUFubmJWNHJfTGNBa1RxZEk?oc=5) |
 | Trump says Secret Service reviewing UN escalator, teleprompter, audio "sabotage" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPaUF1UDVqX2lZSnlxOVRkOHhIUHRZdnBpWnd0SXBXbDR3cmVfMElBRlM3SDhRNHRCdGI5R3N5RDVoT3pTbWc3eHdpR2h6Y0RtUGdlLW54a1lOcDZfNzZLMXN3SnFsNzE5VTZmMDNpUGhmNklHeDVuUDdORWhOSThKZkE3Qng1YjVLYkVhNg?oc=5) |
 | China leads nations with new climate plans, defying US climate denial - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQd1lNRV9DZVBWd0c1Y1o2amhoZXVETG81Q3BsdVpGZ0VUQlB3eHNfZm1VM21fcmRkZHlxNFB2M08wZHZleEVsTTdiWFc4TVdHSDBST2N4OThNdm94VkZKbXB3QVRQb1ZlVW5xdUU3aEMzb3BRd0h3Z1ZTRlhEVE1CSm5lRml2em1XeGREWkMtd3dTYU1VSjN3ejJSdVNoUFNmV01mTklkakptU2JfVDZoWTdpRy1oTjZiMV9tZkRR?oc=5) |
 | Trump's worker visa changes prompt legal review by California's top attorney - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNd2I1WXNkY3hueHFBeUZ2blJmUDZKNU1hZTYtNTN6R01sRUl5MEhUNVBIYWNlNktxUF9RNDNBOG5hcmFFTU9MeUJ5SWJEb3VLUDl6dU1tZGxQTGNjdExLbFpnNHIxbGJhRmo3YlR0MnJVRHEwYjMyYXRNaklKMnpXekdUMDBfUDdqaFlleFRIVkFnUQ?oc=5) |
