@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 11:49:01（北京时间）**
+🕒 更新时间：**2025年09月25日 12:00:57（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Government considers financial support for Jaguar Land Rover suppliers | [阅读全文](https://www.bbc.com/news/articles/c62nv0xx32go?at_medium=RSS&at_campaign=rss) |
 | Russia will expand aggression beyond Ukraine if not stopped, Zelensky warns | [阅读全文](https://www.bbc.com/news/articles/c5yg921rjrko?at_medium=RSS&at_campaign=rss) |
 | First migrants arrive in UK from France under 'one in one out' deal | [阅读全文](https://www.bbc.com/news/articles/cwywv34w00ro?at_medium=RSS&at_campaign=rss) |
-| Colombia's president calls US attacks on alleged drug boats 'act of tyranny' | [阅读全文](https://www.bbc.com/news/articles/cy8rjp178mno?at_medium=RSS&at_campaign=rss) |
+| US attacks on alleged drug boats are 'act of tyranny', Colombia's president tells BBC | [阅读全文](https://www.bbc.com/news/articles/cy8rjp178mno?at_medium=RSS&at_campaign=rss) |
 | 'She doesn't get another childhood': The lives on hold waiting for wheelchairs | [阅读全文](https://www.bbc.com/news/articles/cm2zwm8m41mo?at_medium=RSS&at_campaign=rss) |
 | Drone activity confirmed at multiple Denmark airports | [阅读全文](https://www.bbc.com/news/articles/c7401vk4lgzo?at_medium=RSS&at_campaign=rss) |
 | Labour MPs are privately urging me to challenge PM, says Burnham | [阅读全文](https://www.bbc.com/news/articles/c7v1m873mjyo?at_medium=RSS&at_campaign=rss) |
@@ -29,8 +29,8 @@
 | White House budget office threatens mass firings if government shuts down - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxORno1d2pVanBMYTRIQllBdXVlanFYU3FQT3ZrdnVoeU02LUI1SUl5ZUNNNUVGYTNoU0ZXNThYUnBCTC1zdlNaWTFMZlpKLWtxdkZ4REZCTF9iek9RUDdEM0lXVFVyRWM4RXlwOTNOZTFJai1qM1RuelpSdldGcEJIM2lYMlVRWG41a1BEMHZn?oc=5) |
 | Trump demands investigation into alleged ‘triple sabotage’ at the United Nations - CNN | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPYlAtUjM3ckZsbEJiX19tSTh6Y2VLMjdUSDhNYWswWVdDSzJLRnFJTFBYQ09HRV9SMnlPS3dNakFmRWJhTjVHMUJFLWxKVlZ0M0hjaktSTGVzUTd6YnRHZDFILXliUk5KMmVQTnJrTlVRRE9RNjFUZlFwTTRVeG9GMjVsQTVmbFlXbWkzOHZpbFhyNDJOb00wMUxnbERXaEJJdVE4Q0RnTQ?oc=5) |
 | Victim's widow files the first lawsuit after January's D.C.-area midair crash - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQdUkwRjdMelQycVk2ZzFyd2FKTk04QS1JRDJJdmFWT0F4WHFsUU9RaE5ZYW96QnFQU1pUdUN3QkFXNkI0Wm5vUEFyMV9aSG9uY0xCaDJYUTU3LXp4TjFHUVpPOEpXOFB0Z3UxNzVFazA0TjBsZTl2SFNOWUFJeVRUQzI3c3I5TFNvUEJBRUxFNFZwTlhFZWdKUkwtSUZIOVhyRW9oVHdSd1c1WkE?oc=5) |
+| A Federal Shutdown May Be Imminent. How Would It Affect the Economy? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPZmtST0gzZjN1NlFqaXRyQmI3eFVvQ0R2YVJHZkw5ZmVfVmV1SDQwWmw3UUhITEdmNzduZVI3amVsRzhrTkNUSWRfOWQzY3VNd0JMTHhrNzhsT2c0azN1Z2JacExvdVhGenZRUkhhQnczV01OQk9WSzFIY1p2ZWZIanJkMFVWemNtRHc?oc=5) |
 | H-1B visa: US tech sector scrambles in the face of $100,000 fees - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FZjdrTGJ3cGZTcDQ5SWVrYmYxNHJHODgxYnp3Qzl3Tkg1WTF4ZDFrNUpGZFdULXJFLVpPelg3RThnS0loT2RQY1VycWJUZ2JfTUlOVWNLZWFUZ9IBX0FVX3lxTE14T0MxMm9yYW91QXZlNnFCcE5lMm9ocjlyRXJkQmxETU9DZjFfWXEyX0VrdUdQMGRKQmxFVjBBdXRoXzRlTjgxc3ZYOGdSbzJfZTdrNTJ2U2ZyMTRCbzFN?oc=5) |
-| Judge rules feds can’t require states to cooperate on immigration to get disaster money - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPRXVHcG5PQkMzUmZTRzk5UEI1bWZac2F6Z0kwdmN5eDlxUGxVb0tZc0RwZTRkYzBQTDZPa3dWdm1PU0UyWnZTU3VjSHRDbXpaclBLU1c1UnF5WXE3RDJaZTFoMkFGclB3ODA5MVlKMHpKRllFT0NydGx6VFRwY3FXQVVIS1NSZkUxVFMzWG5yMnlHS3VMTXpSZHFYakphd25IZ2pDUWhPRkpwaW5DLS1R?oc=5) |
 | Trump’s attacks on Kimmel and ABC put him at odds with high-profile conservatives - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOcHEtTTNXazVqS3Nxa2pnSWdCWGJVOUtqRFR0QWJQTzZlbUhfNUNGY0VKaDlBRE1FZ3VGV0JKTFRseFRnV2dpZ0lHcXJYNFg0MVFVVkZJU2pkMHJqUEpydXByWTI5WUtkaGczYWxfbVQwMEQ5eW9xakEyQUpZWW03V0JlcUZHU29tWmE1RkxjSTVVUGk3OGlBYXVoMXlaZXpreTFJ?oc=5) |
 | 'You will be the next Charlie', Youngkin tells students - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNNDd2Wm0wblpiTFhZVlFKR0Fab3JwQ2xzT3hvaGxCcWJKZGNVZEg5WG51NWRsVXFQdTZhX2dzNXVXQjBYZXR0VEhaR3BCUllPQVF0bkRnTXFXSUllemJxeTRCVEVqVTh4eEllMHlWY2hSTEZfVDVlZWlxVzNfNDByMm8yeHk0N2Q3RXBIQ3MyNA?oc=5) |
 
