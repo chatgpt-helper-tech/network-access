@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 17:01:07（北京时间）**
+🕒 更新时间：**2025年09月26日 17:12:54（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | LA County releases after-action report on Eaton and Palisades fires, finding 'series of weaknesses' - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQa0ZDZDlGdW1ER0tnN3VMV3RaMHg4YVdXcTl4anVQQUQtX3lHVHdBajAtbDZFZmQyZzM0V0hFdjNNdnlZN3ZSUElYbFNhX21rdk1WSDdhcm9SVDhLS01PTkFKY3JpT0dQeHFmZmc4Y01talI2eVc5NG12Vk5BSm9JVjJaNGxvcFFQM2V3STZXONIBlAFBVV95cUxPVVRGNUtodXpwWUdQdjctLU9VXzljcmVCbW5DTWVxOVZicUhQaU1pZFdIM21INnN4Q0RaMEcxX1MyM1BlMkpsdTRsaXkzbUVYeXlFT2QzQjFrM0VUcl96TVhZZUhscHhZclVkZ0dBQlhfcDVOaDc4cnBSVFpuS2hUZXN2eEdxNTVHUTFGeG9hVXFzUWRy?oc=5) |
 | Human remains identified as Travis Decker, wanted for killing his daughters - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5mWXBsQVJzc2xQUjFCZ3UtWnUybU1ablcyYTBJYjV5bWZoRzZsV3g0WTktTWtyOTRJQ1Z5UmVnNkZxdzA5YXgtd0g3MXBwc3VyR2h4clpNd2huRlJwOFJmX0RpT0VBY2k4RmFWcDlvN0tpVGthX2dnSFRnWUQ?oc=5) |
 | Alabama man convicted of killing store clerk in 1997 is executed by nitrogen gas - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNOTkwLUJ3WVd6MmpGcVV3Y2F0aVNJYUNjUk9Sd3ZPRmQ1UlhCQ1djakJNdjNqeFdvMDNoUENpMVd5cUFPMjFZTmZrNEk0SExwVm90UUNXNTI0VVNLYlMzQ1h0NmxwYXVCZ0s2cEtoM1BFNkkxdG5wSURxQUNWMmdDMjN5RE01dkFuY0pFWHp6MTBsRWpWUDNLcGtuVm9OV0cxWEk5cFY3UWd2eENzblRR0gG0AUFVX3lxTFB2MjFIdEU0NXJldXBBU1JyeElaTTZfcG9rcmZHVU5kay1Hd2xLRDBfelZ0N0ppal9VRklWYzVvMG4zN1VaQ1o1cDMtUjRPWWRGQTNmX1R6ektsZFVfMXE5RjR2SjRYenp2NzdRaWExenVmQlZEYTgyQmJkWlR6UC1vY2JKWXJQNnpaNVJBdEVNX2F2UHN1ejhCVGVMTjVDQTJTcGFNTkpwRVdQTlBRLXJ2ODUwcA?oc=5) |
-| Trump to put import taxes on pharmaceutical drugs, kitchen cabinets, furniture and heavy trucks - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOcGdoTVR0aE1HUF9heENPbllSbl90VkE4VFZsQlJzQnZ5ZEY3RWZzSm9tekJValVoaFVpemRXWTRaVkpKTy1ZTzBQQnBfejZ1X0tpQW5NME5yYmU1NktrNnpDMnJMUGZXMVhXRXhqTXJOZ1M1NmhHTGszSnN1d0haQzZmbUlTZFF4VTJkWldVMnMyb0NDYW5TOVBQZTNudnpwR051MWd0bC16OEpVai1qenViWQ?oc=5) |
+| Trump slaps 100 percent tariffs on drugs, trucks and 'kitchen cabinets' - France 24 | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPcVJQaEJyU2ZhSUNkUzVaWi1sUHZOTnFTRC1RbGViSHVDZHlTdHN5QkR6ekUzaHFYZHhqVjFIQ1ZuRWNoZFl0UnZrWHhKOGNSbVVnVDRCYkJFZWxoaUhaZzVWX0hOOXRDbElSWlpOSWw3M28yM3Y4WE9MeFBSSjRxaGEwanRlbmNWVHU2ODJuNGZ3LVZmZmtqTUx1T3A?oc=5) |
 | Trump Orders Broad Effort to Root Out Groups He Says Organize Political Violence - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQN3htNFUyZlFmMXVYWHRqNEZuT0lJZklLMDNpeGU2Sm5BR0laeXNGV2JVaWJfLXlINjZYNGhram9VeUZSYkZ4OFpaSkxvV25aWVNYTVpCNVF6SFNIOE9ESDRxY196bnNvLUI2S3ktczE3V0YtSHZPSlN6MmMzcUdPVTIzMGpXQ2dkemRrSmtuVkQ?oc=5) |
 
 ---
