@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 15:25:56（北京时间）**
+🕒 更新时间：**2025年09月26日 15:37:17（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Chris Mason: Starmer's irritation with Burnham shows as he seeks to tackle critics | [阅读全文](https://www.bbc.com/news/articles/cly19zld70qo?at_medium=RSS&at_campaign=rss) |
-| Watch: How antisocial acts leave locals living in fear | [阅读全文](https://www.bbc.com/news/videos/c0jqv18yd5eo?at_medium=RSS&at_campaign=rss) |
+| 'I've got to get out of here': Antisocial acts leave locals living in fear | [阅读全文](https://www.bbc.com/news/videos/c0jqv18yd5eo?at_medium=RSS&at_campaign=rss) |
 | Tony Blair in discussions to run transitional Gaza authority | [阅读全文](https://www.bbc.com/news/articles/c3drmk95xlzo?at_medium=RSS&at_campaign=rss) |
 | Ratmageddon: Why rats are overrunning our cities | [阅读全文](https://www.bbc.com/news/articles/c4gvk397j80o?at_medium=RSS&at_campaign=rss) |
 | Former FBI director James Comey indicted on two charges | [阅读全文](https://www.bbc.com/news/articles/cy50ggv35zpo?at_medium=RSS&at_campaign=rss) |
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Former FBI Director James Comey indicted amid Trump push to prosecute foes - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQRXduM2JlZ0V3OU9hV2RnblloYzIyU0dILWxqNFJkUnp3b2ZLU2lqYjV2OFg3aEhvTWpBa1VVeWREcEVVVVVpYnRjaXIzYTc2LWNVRWJrWUZ3ajYtQmZVeFZXMXZKQUI0Y2NrU1k5cXgzM2pSOWJkangwcTVCbF9JSTV1bnZiYTh1bkdIcGY5T1FuQXJMbllsVWFHeURTc05KMUxaSU1vUGdyZGNjbC02LTFqU3ptQQ?oc=5) |
-| Attack on Dallas ICE Was ‘Very Definition of Terrorism,’ Prosecutor Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE11VmhEOGxWOHp1YTZDejE0M1B0Q2lNZXU1N2diT1VRWFVlUlZVZkVjNGQyanRUZm5Bc3ppWjk5MHRsczVBc3NPQXp4QXlaalhUdjZTdUN5clIzWHh2NGlPbG5mM2Z6aGRSRFAyVXRHWE4wbkFZdFFaMUVQVQ?oc=5) |
 | Trump signs order allowing TikTok deal to proceed - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiX0FVX3lxTE5lOEY1LVpzU2RvdUFaRW1tbkxPdmpsTDE0cmRpVnJoOFhSb0Eyd3oyS1pnc2stT1VfSEZSYkt5UHhDeWExU1cta20zWU1fS3VVdGJiVnoxT1pPbmRjbjBj?oc=5) |
+| Attack on Dallas ICE Was ‘Very Definition of Terrorism,’ Prosecutor Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE11VmhEOGxWOHp1YTZDejE0M1B0Q2lNZXU1N2diT1VRWFVlUlZVZkVjNGQyanRUZm5Bc3ppWjk5MHRsczVBc3NPQXp4QXlaalhUdjZTdUN5clIzWHh2NGlPbG5mM2Z6aGRSRFAyVXRHWE4wbkFZdFFaMUVQVQ?oc=5) |
 | Feasibility of RIFs around a government shutdown called into question - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNZGp6dVEyaXFCQ2lITFJnNDNJV05xcVB4ZWZYcVJ1dGxRbDRZTWluVDEzaWZUcDhKYzRfcUZxYnF4WklMUXdFdWNmTFVxS25oa3FidHBySGk2SUNFQjhwNGh3eEpkckk3cjdtYnBTbFB1aE1mWnhnUjlZM21tNEtfdUlubDdibUhZc3kxSG80aVBBZkJxeXdwZmRDQVpnVW9POWFhOGlNX2tTdi1XNHdNMUlBczMwQWY4aWFfSk1mQVlSZnhyanBEQg?oc=5) |
 | Hegseth calls rare meeting of large number of generals and admirals - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNbmJBRHpselcyY3g4ZGxmNEc0VUdDRTliY19CdlFsc3ZqdVRMR0N6NzJIU2lGWVlwY2VzbUEwaGotSkdNdnJ1R0t4S1FSNDlPNjZGMzVESmlvVkhRTEM2OFNEaXUyUEwtWnFVc2l3d2ZOdW03N3Z4UnQzMkQ0QUVTSUxpZm5VNkVBa1dScmJEWHA4NXZjbnJhY3hCemRYSmNldmZyWWlFa2tzYUhw0gGyAUFVX3lxTFB3Zk1KZkNrLXBFdVRNR1BfSkl4bEN3SUUtd2lfa2k3NG9uYVEySWNiaVRVaEpoUm1RRWJybVBKLXNzdzl6ZjMxbGZTb00xRW1NYXVrWGNKZldOTWFVcjJUejVCTXd2RXBsZTRuRjRyckZyN1l0bmQxMlVEckNQX3JkMm00SlJEbjdvbHRpaTNycmoyU2pNb1FoRXY2dzhFbXVMT2RESk5wY2JITHRGQnFyUnc?oc=5) |
 | LA County releases after-action report on Eaton and Palisades fires, finding 'series of weaknesses' - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQa0ZDZDlGdW1ER0tnN3VMV3RaMHg4YVdXcTl4anVQQUQtX3lHVHdBajAtbDZFZmQyZzM0V0hFdjNNdnlZN3ZSUElYbFNhX21rdk1WSDdhcm9SVDhLS01PTkFKY3JpT0dQeHFmZmc4Y01talI2eVc5NG12Vk5BSm9JVjJaNGxvcFFQM2V3STZXONIBlAFBVV95cUxPVVRGNUtodXpwWUdQdjctLU9VXzljcmVCbW5DTWVxOVZicUhQaU1pZFdIM21INnN4Q0RaMEcxX1MyM1BlMkpsdTRsaXkzbUVYeXlFT2QzQjFrM0VUcl96TVhZZUhscHhZclVkZ0dBQlhfcDVOaDc4cnBSVFpuS2hUZXN2eEdxNTVHUTFGeG9hVXFzUWRy?oc=5) |
