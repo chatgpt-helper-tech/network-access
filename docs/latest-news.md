@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 04:48:52（北京时间）**
+🕒 更新时间：**2025年09月28日 05:00:29（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump orders deployment of troops to Portland, ICE facilities - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNRzM4c01XUUdFYzhaSE5lYUg5YnVkVDRCQ3Y0Xy1qMmU1VzkwV1pmeU1lYlFVbWVNdlVoNFYzYzR3d3p4a1AySFJSVlptN0RlWXo0REtwcHRKaGszRXg4M2lmNkYzVGZaYmFtUlRqZE84OE1aUEdWZVBTU25NdkI4WDNZMFlzdmdMaHJ3NXplTDdzeWwtVlo5ZWZKQURHWTFY?oc=5) |
-| "The first domino": Comey indictment sets MAGA retribution in motion - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5KcjFWelpFTUhXQ1FxQ3dBMnJGd2J6WXBNT2xuRGJxWjZfWHJWdlRIMC1RZ2RsZGtWV1BWcG9BY2U1VmJpV3BCZ1UxYXZCVlBGQ2phZ1ZhMXlWUTNwYW1LeVNxRWt3bGtXamMtYUVFck9FcG94emRxYmtXeWtQZw?oc=5) |
-| Future Tropical Storm Imelda closing in on the Southeast could unleash dangerous flood threat early next week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQS3lNbGJhV2xWQkVtUmw2emlrZlNQRjhUdDRnZnp6X3RBbUJ3eU9mQlVxQnpBaWF6X2NhMWNvc01Fem4yMW9uZHJnVGF5NVBrTWtLX20tUVI1cVZPQkx6MThQdUJEME4yb0NyNWdqdUJUQnRTU1h3NndNUi1HWmE2aUFmODEzM1AwM3lCS0UtMWs5RGtvcXk4UEZB?oc=5) |
+| Trump’s Repeated Attacks May Undercut Case Against Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPeGFNQ29vSHI2UnRRRFpyajhQMTBRb09ZTjNhc1RsbWNscWRHR3V4ZHVYUEdGU3BPbE51QnpOSTduM3hWUk1Uc3A2N2FHSHVJRkl1QmU3QTkwdFJKRFg5b202X0Y5ajdiRGhiM2xOaG9CS1pCNVMyN2I0N2hXNGFJaUw4NlNybUVjOU52NHNvYw?oc=5) |
 | FBI fires agents pictured kneeling at George Floyd protest, US media reports - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBTZWd3aFhSYm1ONHVBNTh3ck9OOUl6RFBrRkZzdUpubTdEQzdhZXdaeU41Y2ZYd081d0xjTlFfZDVRdGtGUVlrS29jUlkwcEpLMndaMkVCVUlQZ9IBX0FVX3lxTFBhMmRiTTBjTU9VY1hIcHlJeFNKa2NxUVVEbmYxZTMwZWp0MlRHMGt5VWFIN0REZkthY1QwTWpBaTJfTUFpbGRYMmk0UXNEZEdYMnZSMWJGNVZwQ3dhTndj?oc=5) |
+| Future Tropical Storm Imelda closing in on the Southeast could unleash dangerous flood threat early next week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQS3lNbGJhV2xWQkVtUmw2emlrZlNQRjhUdDRnZnp6X3RBbUJ3eU9mQlVxQnpBaWF6X2NhMWNvc01Fem4yMW9uZHJnVGF5NVBrTWtLX20tUVI1cVZPQkx6MThQdUJEME4yb0NyNWdqdUJUQnRTU1h3NndNUi1HWmE2aUFmODEzM1AwM3lCS0UtMWs5RGtvcXk4UEZB?oc=5) |
 | U.S. revokes visa for president of Colombia after he urges American soldiers to disobey Trump - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOM0Y5MXVJLUVPaTFfUUVYelJkRHdQWkZMZVVNallJZ29fekRsMTlpNXBlemJFYS1lYk1nVDJtbUIzWDkxRHBqQUJ3SUhrYkRSMkxSWjRoXzZ5cEJNNVg5OVhvV18yZFJZNWJuY3RIVTd2cXlrSWRCdmM2cFF4MUVHcUtDZHpNQ1ZwblU1YktRSdIBlAFBVV95cUxQNldQdjZwaWhEUjh3QnUtUUJuaVdTcFlpNWxlMDliSVFGZklEUF96WUUwV1BtQ3I2SGw3Q0lZcXN2Q2g1RGwtWEFJOXlQRTJWYzAwRjVBMGI1aDVmY0h1cWJmODJfY3R4R05WaFdxWG1KcnlXUjZTaHdkU3V1SkZHYWtoV0s5UEhjSWlJbXd5NlJMQ2VT?oc=5) |
 | Southeast U.S. braces for heavy rains from a potential tropical storm - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPLXpBR3laTFdDQnhjUE5XMXVGUk16SHZGZUk3VnZjdmtCQlZuSk5JVW9WQ2IwcVdaZmhYUmFNUDRldG9LdzBCY1J6eEVMaWVDRmp6NW1VQ1hOOTJJdTBNWkJtUGhJTjQ2QjVLV2F6cFhHSHZaU2ZoejYycDZpVkFocjhybHVYaVNZLUpQUQ?oc=5) |
 | US military brass brace for firings as Pentagon chief orders top-level meeting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQckFfRGFlOW4zN05sSWttdGhmUGFvQkgzX1NPMlBXTUV0cUw5ejNFZWhBRFlUZ3RESWxrWXR3UzZpS0FxOG4tWU5Hbl9leG5HLW01azA4OWFzazBHeE5uaFlsLVRKUVJQdjlPS1hzbmFpSHBSdHR1d0pENjY3Q09xeFBrRV9MVmI4dHRDSlZKUThrQQ?oc=5) |
