@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 18:01:10（北京时间）**
+🕒 更新时间：**2025年09月27日 18:12:39（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Bondi vows to send Justice Department agents to guard ICE facilities - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQNVR2ekdpZDFVOUdwVVhPWnZ5RnY0enpDd09JQ2hJcGZxZGJmVG5kcDFna28wRS1fTHVBNW1HS0NxYXVQeDY0MW42MFFuR0dPaWlnaDljek92MTlMNmp5UUp1dGd4Yl9RaUZMT25FclNLcXFaLWJLLVd6a2wwbEtjWNIBhgFBVV95cUxQdDBuSG0wcVdOckk4ZTdEWnF1b1R5dnk5NEsyNENQSktWZHJmZll0S29rT1ZqUVZLSlBySVQ0T3FmQ010Vk5PTkpkaUstZjE2ZDJCZGRtal9qY2pEREJqZTZKTmg2WHJCTC14Mk1lU09vU1BCNDZtd2FuYXNBbmR5cHRTS3FxUQ?oc=5) |
 | Howie Rubin, prominent investment banker, charged with sex trafficking - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNVUwzVW9mVnlVNWJidjVGeTJzMUN2T1Q0MVVVTW1USU9yazVFVTdkSmQzY2lDdUdNb21qbDFBMkVONHZmbDJ4bXhmYTl2NTVHcWJNeHZjRTlLSW9NbFVqeXFSUk5BTkpmbWpoanUzaV96aHA5QVJCb3hvUWtiblM0TExsMWdxdUx1dEcwOXVhdlRKQlB0XzZEamItVnBwRl9WSWJqZG8xX0lrRHZz0gGyAUFVX3lxTE04OXJyeVh3YnM1a2Nobmt6MGNHVXJxMV9hcGk5M2lIZEVOUlRPV2NGN1c2NHRnYTVyZzhjeWx5S1pYNlk4aHBCTDlPMVkycjExZ2VZeFJtMUZjNE5qZFdWZTZUVWREM0NDTXVNalVnZUlHb2hHLVJjanNWYVJoYTVMWUtpY0ZjNThucTdsbWsxSVhieWdsNmMzRHJUYTR4RC1RbkpyYS16Tnp6S0FrSF9qemc?oc=5) |
 | He was body-slammed by immigration agents. Now a car wash owner has filed a $50-million claim against DHS - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxNV05mb2JIQWJMS1U4T2llSWM4c3d5bGtOSWpKZk9JR2VfTk5oUkFLT1NuZ1gzbV9VUHEwME44MGczS3NULXppNURCLWxqUlZpdjhEWjhVWjR1d3hOYlNqRWkyaUVkQTdSNmE3Wm1ESEJhQmktRHhPQ1dUd1VGZ0ZjaVhlOTgyLWFDcVJ6dEZjWE1QSUZhUU5ucFVhcS1Md21WOVFPN3dhVG1JNWZwZnFjZkJSREY3a25ETEFfVWwxeDZiUnU1R0kxemh0Z2lrUTdfT3dsWXBEczNnbWxwaEszWmJQZUdVMGp3U3V6WA?oc=5) |
-| Trump fires US attorney who told border agents to follow law on immigration raids - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb3hjeG1vVTJyVm5UZnRZX2FHYVFDUVcyWkFPNEwxVDdGcXd5M3lIOFlvRUFzcjlMeUFKNkNIVG1yNWZvNTltZ0czZzZRS3NmTHh2RkdPRnNpVEYzbTFFYXFLV19iZmd5eWNJLXpLX1ZSRmZPa0FNSVNuTlRnY2ktamYwZExCZzdt?oc=5) |
+| Trump Fired a U.S. Attorney Who Insisted on Following a Court Order - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOdDkzcHZYaTRsaFY5dlR4LVZ4b19neks0bEw1dTV6LTczUVZoRTVRb1lPSEJIOUpsdTA1TGF6bkpkeTJLOERmdEVBdDRXYjltVFdmWWVQTXpGckc0RFpwUWFmRENETVZzekFvLTRUWDBzckVUZ0hMdUZPZUxnZTRMdXVZUjBXVF9ScGVSYzFHRXJGMlk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
