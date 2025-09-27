@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 06:12:53（北京时间）**
+🕒 更新时间：**2025年09月28日 06:25:52（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Trump never forgot Portland’s 2020 protests. Now he says the military can use ‘full force’ in an American city. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPSTZjQkVUU2tWWE9yVXNSVFNxc3psdE9vMFNmZ0hITFMyVzZBeGZwSmc1NjFMblBtOFgwQkxoaXBfd2tQWnFOQjNhQU9QQmt0N0dWWG0zelZjQ0ZfSkdmOWVrdGNSUUg3SDlXR2VTb0tiNmU5ZGtkNHVoZWNicFNhYkowYjk5Mnl1bTlKdUVqdzdYQQ?oc=5) |
 | Trump’s Repeated Attacks May Undercut Case Against Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPeGFNQ29vSHI2UnRRRFpyajhQMTBRb09ZTjNhc1RsbWNscWRHR3V4ZHVYUEdGU3BPbE51QnpOSTduM3hWUk1Uc3A2N2FHSHVJRkl1QmU3QTkwdFJKRFg5b202X0Y5ajdiRGhiM2xOaG9CS1pCNVMyN2I0N2hXNGFJaUw4NlNybUVjOU52NHNvYw?oc=5) |
-| FBI fires agents pictured kneeling at George Floyd protest, US media report - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBTZWd3aFhSYm1ONHVBNTh3ck9OOUl6RFBrRkZzdUpubTdEQzdhZXdaeU41Y2ZYd081d0xjTlFfZDVRdGtGUVlrS29jUlkwcEpLMndaMkVCVUlQZ9IBX0FVX3lxTFBhMmRiTTBjTU9VY1hIcHlJeFNKa2NxUVVEbmYxZTMwZWp0MlRHMGt5VWFIN0REZkthY1QwTWpBaTJfTUFpbGRYMmk0UXNEZEdYMnZSMWJGNVZwQ3dhTndj?oc=5) |
 | Hurricane Humberto strengthened into a rare Cat 5, but there’s another storm the US needs to watch - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQS3lNbGJhV2xWQkVtUmw2emlrZlNQRjhUdDRnZnp6X3RBbUJ3eU9mQlVxQnpBaWF6X2NhMWNvc01Fem4yMW9uZHJnVGF5NVBrTWtLX20tUVI1cVZPQkx6MThQdUJEME4yb0NyNWdqdUJUQnRTU1h3NndNUi1HWmE2aUFmODEzM1AwM3lCS0UtMWs5RGtvcXk4UEZB?oc=5) |
+| FBI fires agents pictured kneeling at George Floyd protest, US media report - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBTZWd3aFhSYm1ONHVBNTh3ck9OOUl6RFBrRkZzdUpubTdEQzdhZXdaeU41Y2ZYd081d0xjTlFfZDVRdGtGUVlrS29jUlkwcEpLMndaMkVCVUlQZ9IBX0FVX3lxTFBhMmRiTTBjTU9VY1hIcHlJeFNKa2NxUVVEbmYxZTMwZWp0MlRHMGt5VWFIN0REZkthY1QwTWpBaTJfTUFpbGRYMmk0UXNEZEdYMnZSMWJGNVZwQ3dhTndj?oc=5) |
 | Colombian president accuses Trump of violating UN principles after visa revoked - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNQXlIbUFNLV8xc3FBUVZacjBhcGw4dEVfdzlvTl80R2NiRXhfSXVRZE1sLW1YblIwNHdnMGFwTlY1dXJUeFRkaVVLSnBUWTE3RUs5RkdsYW1VXzNjMHlfM2FlZ0FwTldLWXFYd2gxbFFLby1NQ1NVakM4T3JuUU5PMGJuU3BQSXFQVGJrVw?oc=5) |
 | Trump’s looming shutdown: Mass layoffs, fewer regulations and military deployments - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPRThLbmRkcDNRU2lrQmxIdzNiQlJQeDFfb1pLWFFzYmJScTBtNm1LaEVCMGVubktSYm9YeUw0Q2plS1liWlhLbVZxN0EyeHl2djVRTkNzT2pESnBNc3dCSmJnVnVmWkFrdHgyVEtjYkx4UW5PcjZVZm1hZ1hLNnhPSENIWFB6aE14OXc?oc=5) |
 | US military brass brace for firings as Pentagon chief orders top-level meeting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQckFfRGFlOW4zN05sSWttdGhmUGFvQkgzX1NPMlBXTUV0cUw5ejNFZWhBRFlUZ3RESWxrWXR3UzZpS0FxOG4tWU5Hbl9leG5HLW01azA4OWFzazBHeE5uaFlsLVRKUVJQdjlPS1hzbmFpSHBSdHR1d0pENjY3Q09xeFBrRV9MVmI4dHRDSlZKUThrQQ?oc=5) |
