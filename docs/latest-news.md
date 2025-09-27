@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 11:26:00（北京时间）**
+🕒 更新时间：**2025年09月27日 11:36:56（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Detainees shot in attack on Dallas ICE facility identified, source says. Here’s what we know about the victims - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBHNUc4QmRobXJxNHhFY3d5OGJWdDJjd05KUktJODQ2VGdyY1dHWlNsN28yMHdfT1JPS1JmR1ZRa2psbXc5Ny1UbzBDYzVweEpOaUFpQndsOXlwbXlYRFBPdUNKbkxhcFhpZzJQNEU1RmhoTi1Yd2c?oc=5) |
 | Supreme Court allows Trump officials to freeze billions in foreign aid - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNeTM4YWxnQXhlQi1Ga2dFS3ZnTzhqY2l5V3V5Ni1odjVBM0g2X2dxRTUwVVF5Rk5QdzlENF80R21tWU1uNjRqTHVjb1EybDQwQ3hDYjh4bERNS2ZWVmZzM21MZFhRN1U5cldJUE5OVXcyRk9HTGhSMnpHSExyX2dwN1dIR3JwdmZ6dy0ycWJiWkVYOTkyREFZOWpEeXFjTVgt?oc=5) |
 | In rare rebuke, federal officials discipline ICE officer for shoving woman in New York - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOekg3OWtyVlFHeEo4eGM2WGFoZzBZNmNMRTFJcjM3Nk5xYlVJbF9WdUdTbnR0bFlzNmVOc0Nxc1hwVmNtbE44Sno1Z3gwTmVLQWRVc2doZVNQcFRySEFwa0ZQNzZmY1hZZXRUZHE3clpZcnYtMjMtWkNadnhRMnI2MUQxRkJESXRtNGY4bnZDVURZWGpzSmVYZkRvRQ?oc=5) |
-| Gunman in NYC Shooting at NFL Headquarters Had CTE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5fUG5fQU1zalZFTHB4OHFOTldUc2ItX1VieGxzRG9fZk1fZFJiQUp3a2FzQWZFRmtYNXQ4VmlNa1NXUUVGY25DUEE1WXZlMU4yQ2JYUEdSSnJyLUN0SlVhN2FBekRZRW5LMmxrRlVzYy1wVmFOMkdBMA?oc=5) |
 | Trump fires US attorney who told border agents to follow law on immigration raids - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb3hjeG1vVTJyVm5UZnRZX2FHYVFDUVcyWkFPNEwxVDdGcXd5M3lIOFlvRUFzcjlMeUFKNkNIVG1yNWZvNTltZ0czZzZRS3NmTHh2RkdPRnNpVEYzbTFFYXFLV19iZmd5eWNJLXpLX1ZSRmZPa0FNSVNuTlRnY2ktamYwZExCZzdt?oc=5) |
+| Shane Tamura, gunman in shooting at NFL headquarters, had CTE: Medical examiner - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQc2ZQb2o3b2pLSVM2Wjc0LURtN3o3b1RBWlBFNm5TZTNjYW0zTnRKNDZ0OVBBTzJpRFZ5SzU1ZG5aR0Y5bHRFTVdQbk9NcGhGYmVza3N4cFVmVndlTDN2bXhvbmNGYUpieU93YTNIUFd2RUxXaGI1eXZuTXE2VkVDbmxrZlRyaTdUMkY1TEtHVW83S3NqZWhwZmpmNFR4NFZ1RENfONIBqgFBVV95cUxNb09uRmhucDd5ZHJDZFkwOXlpdVMtTkM3VnRrYnpLaEE0VldxX2xFbzRzb0RNQ1Vtb2JnNXVLUV9TTmkwRUxrN1BfWEs4dzkwcHJxRHNNQUhxWG9oR3JYN3JYbFRwUG9kSHdXWXZvWHZqLUVzSm85N1JOaG16MHpQWVpCMUJsbWdrRGJWZFJqWWRYa2FjbkRwWHk1MkVsMkgxaFY0d3ZsVnpVQQ?oc=5) |
 | LA car wash owner sues for $50m after being slammed and detained in Ice raid - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOd1JRbnV6NE9SUmFvaXk1eElSOGxscGkyWTZGV2ZKb2NJcFQxR0FIUTB1RU1NMmNKMENrTnpDeVF1ZDhuZ1RvSDlDc29XaVY4ZXlNd2lKTE9kVmVBN21ZQ1gwR3p0WWh5Vl9XWHpCQjVoNWg0NFI2X1RIcGhOWlAwQUxIQkQ4YTRxaEVZTGEwQ3JtRWdHdmc?oc=5) |
 
 ---
