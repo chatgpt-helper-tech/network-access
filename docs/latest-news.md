@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 14:13:00（北京时间）**
+🕒 更新时间：**2025年09月27日 14:25:56（北京时间）**
 
 ---
 
@@ -25,6 +25,7 @@
 |--------|-------------|
 | Judge who reviewed James Comey's indictment was confused by prosecutor's handling of case, transcript shows - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9hNzdKN1dfbDFIX1dYSWJ5ZFMyMVZVYTJ0OUo0TF84NVVzNDRUY1VUQjQ5WDQxdFZmS3ZkTXEtYVBqRGhmWEVibHJ1Y3R5YUJFb1JEM1czdHpuVjVHSGRMejlNVVpqdDZIZ2NKRHllakNRS0VxSFNSZ2lMVWpOZmfSAYQBQVVfeXFMUDRETGQ1dHV3VFdwdHpaMktBZ3dsQWRqVndRX01COUtEenEzZ0ZLU1J0MXptOTZpSHVWYy1nemQ1RXRwV2NGZEwzb1M2V3ZWWFU5QVJGaVpHSjROTm9yUENxWld5bS14N2t4T1BRQlhWa19LaDdySm9aemN6SVZPNktSVHlx?oc=5) |
 | Des Moines Schools Superintendent Ian Roberts Detained by ICE, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNX1dvVWhBbUZiamFWajVZcUliV08yMm5VVGg3VEVaU1NvdkpiQXhxc0FncDBIWW92NlVIWXJlaWk5YVBiTllBSEQwc05ienZMc1c4dW5nMDNoci04NGMybUZRaWZXdXRnVGxQM3pTNVpEU3NubUtUSzd2aVFvSXg2eXFOWQ?oc=5) |
+| Defense Secretary Pete Hegseth to tell hundreds of generals about the 'warrior ethos' in rare gathering: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNVUtMLXBIOWI4a3F5SDNXRWk1SkJaTmxYM3VOTGdBQk42Tm9WQkUyZTVBd2hKdGh4OElOQkx2d255M1RUWE91YXZ4OGxuOGQybDByQU1TbjhocW5Ud3AzRGV4UE1WbWExeGw1MkVxdTliX05xbFh5QW0wZk11TmFadDh1aUtYbjRWengwdkxJX1RTVU41cUFpR2ZUZG80UEtNMTNYalpVcjhQQmVYSVJndzN6d9IBuAFBVV95cUxOZFZEdVVrUVdRR3VxRk1LTkQxdGEwd2phWmdOTFlRdFJZMW5PXy1nYVNTM0o4c0x1Mm1wZkVfeHIzMlpVRGRlRjl3cDA4Rzh6QjdGYXpkdWlVWEpJZlk3aXY3VmoxRUpSU2VxbmdoOFVuNWktUHlNYVBOOF95VXQzLVRFSXVnN1BjTlR1ajlfMllNWGFLVkVsQVJmX2c4ZGhZRXRQVExMZmtJa293QUU2SG9vQ3ZXY2tm?oc=5) |
 | Detainees shot in deadly attack on Ice facility in Dallas identified – reports - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNdDNuQ0hnejRoM2NqcjlibXpMUHBKTlM5bWliNVpCSUdWamJVOWs1VnlkbnA4UnZHU3dqZlRTLWE0NFh5UzFJbjUxZGNkTVlIQVV1eGhOcTFLbjJLcE4zRjhnWmhSS2IwRHB5QzF2X2VrNmhrU2JVWTlrN0VFVVNpUHYwRTNJLS1JZWh1OWJSbmlqVGpP?oc=5) |
 | Scoop: Some of Congress' trips are being canceled ahead of a potential shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQdGJSY2txUGhBTldON2ZxbWkzel9KamVHbDZxUmc1aHh3WnJQQmlraThNci1SY0M1b24tSEZxaEt3cU5ON244al90RkpvTmJINWlDRWVOZ0wyRkpENUNOelJ2dU1hN212QzRoTmlEcGhCVGpqSTlUOUpmeHdhc0hTWUVMNA?oc=5) |
 | Supreme Court allows Trump officials to freeze billions in foreign aid - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNeTM4YWxnQXhlQi1Ga2dFS3ZnTzhqY2l5V3V5Ni1odjVBM0g2X2dxRTUwVVF5Rk5QdzlENF80R21tWU1uNjRqTHVjb1EybDQwQ3hDYjh4bERNS2ZWVmZzM21MZFhRN1U5cldJUE5OVXcyRk9HTGhSMnpHSExyX2dwN1dIR3JwdmZ6dy0ycWJiWkVYOTkyREFZOWpEeXFjTVgt?oc=5) |
@@ -32,7 +33,6 @@
 | Veteran U.S. attorney in California insisted Border Patrol follow a court order. Then she was fired - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPOGNnSXVJamQ5TjJhNGVTWVZ2Yk0zdE5IYWE4VlI5cWVEazNURXR0Y1NUOG1RMllHNGVNbUpRSGt5UjNPNTdTNzhZS1lGRGtFazhzME9jbE5zcE5KRlc0bG1RczRXalEwNTRGZElqckVpTmxoTHlScnA3SWdWeGlwOGNPMFdTYXg5T21MWThFVjJucEhLZUk2bTMxaUtJS20zVUp6Q3BGS0lSM3BaTkJGbk1UOG9vYjdGR0ktag?oc=5) |
 | DOJ agents will be deployed to ICE facilities to protect federal agents, Bondi says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOZHJoQlJtX210QS0yZTFHamJSRUkxTjZ5WHBsWU5LUFhYU2M4NDlWaU9EYTFHeGxHQVlBVzROUXQ5eFU4Mm90UXU4UWIyeVBPOXZaN1BkdmFRQ3Q1aElQNC1xVGtzZURiamZLY0lmMjFZOFFCeW4zTDVhdTdjemJzQ1dzZWQyZw?oc=5) |
 | LA car wash owner sues for $50m after being slammed and detained in Ice raid - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOd1JRbnV6NE9SUmFvaXk1eElSOGxscGkyWTZGV2ZKb2NJcFQxR0FIUTB1RU1NMmNKMENrTnpDeVF1ZDhuZ1RvSDlDc29XaVY4ZXlNd2lKTE9kVmVBN21ZQ1gwR3p0WWh5Vl9XWHpCQjVoNWg0NFI2X1RIcGhOWlAwQUxIQkQ4YTRxaEVZTGEwQ3JtRWdHdmc?oc=5) |
-| US says financier Howard Rubin and assistant have been indicted on sex trafficking charges - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPT291ZjRYMzhXYVkxbUVEV1BIaEFuQUkwUW5NUVR4X2tvTUh5UW9QSXBROVd2X1Zxby1jR3RPVWNNR0t0U2lTbVNaNUNNenNxX0VKZTlMUUk5Q2M4TURWZktTc3ZkSzExMVR3UWNjYTZCUV9sN0FxeWJuNFFPSlNEUmNRNGdkT1M3NnVaWXk3VGViZ2NLaGg1N2pKM05VN1ItUm5reXJ6OVotMTZINnZOR3hROEp2amkt?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
