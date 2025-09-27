@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 12:24:34（北京时间）**
+🕒 更新时间：**2025年09月27日 12:36:49（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Detainees shot in deadly attack on Ice facility in Dallas identified – reports - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNdDNuQ0hnejRoM2NqcjlibXpMUHBKTlM5bWliNVpCSUdWamJVOWs1VnlkbnA4UnZHU3dqZlRTLWE0NFh5UzFJbjUxZGNkTVlIQVV1eGhOcTFLbjJLcE4zRjhnWmhSS2IwRHB5QzF2X2VrNmhrU2JVWTlrN0VFVVNpUHYwRTNJLS1JZWh1OWJSbmlqVGpP?oc=5) |
 | Elon Musk, Peter Thiel and Steve Bannon named in Epstein files released by Democrats - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOWnljQzJ2czNBZjBYNGtWTFdOd0c5N2QtSnpFZzVZNDZ2cDZ3dlhJTVllY3pQbHlCbktVaW43Y1ljQVA2VEhXNExOTVpjVkhtNkk5dU1HOWt1M2Q1WVJCVXBzVDFzM0tEaDNKZ2hkWGRJVEJQWXF0c1lPbFBCTEdCUnpEX3BDSHlG?oc=5) |
 | Trump fires US attorney who told border agents to follow law on immigration raids - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb3hjeG1vVTJyVm5UZnRZX2FHYVFDUVcyWkFPNEwxVDdGcXd5M3lIOFlvRUFzcjlMeUFKNkNIVG1yNWZvNTltZ0czZzZRS3NmTHh2RkdPRnNpVEYzbTFFYXFLV19iZmd5eWNJLXpLX1ZSRmZPa0FNSVNuTlRnY2ktamYwZExCZzdt?oc=5) |
-| Gunman in NYC Shooting at NFL Headquarters Had CTE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5fUG5fQU1zalZFTHB4OHFOTldUc2ItX1VieGxzRG9fZk1fZFJiQUp3a2FzQWZFRmtYNXQ4VmlNa1NXUUVGY25DUEE1WXZlMU4yQ2JYUEdSSnJyLUN0SlVhN2FBekRZRW5LMmxrRlVzYy1wVmFOMkdBMA?oc=5) |
+| Gunman who blamed NFL for hiding brain injury dangers had CTE, medical examiner confirms - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNbHI5Qm96Y1ZQWk16ZFZHNmd1Tjk4RVVTR29Vbk9DSHUwR0xSRFhuWFhYRGNZZ0k0UFNhYjlPNGZzOVFZcS02R2VIR3YyOHpsaEIyN2xiSF9uWWlEZ1dpZmVBZVlwVkM1ekJLaTl6bVl2STZSUnk3em5JWjU0UW9qQ3EwRms0QVIxcjQ5VF9PQ1d3V2hSMWp5U2Jn?oc=5) |
 | US attorney general orders deployment of Justice Department agents to ICE facilities - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPelJyOFNocFBTRU84Z1lLN3RhcmpTNDA3ejJiR3BDeWRUZmdaZG5oZnZKd1dGNVpnMEVfY3hQTGVfcS1sOTBUTEdKT3hXU1Jac1o4ZDVjeXR6WFllWk5NbV96aDVGdVhIbEwyNno0Q0xQeWFRUUZNT0t5dldPRV9ReHJRWEZUdjBfS3BUYm1iaXF3VlFGcGl5V3gxWjFWYU9GM3FBcjVGbVFVTDF4QlhBTTlVR25NRXhPRnN3cTJZTW8?oc=5) |
-| In rare rebuke, federal officials discipline ICE officer for shoving woman in New York - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOekg3OWtyVlFHeEo4eGM2WGFoZzBZNmNMRTFJcjM3Nk5xYlVJbF9WdUdTbnR0bFlzNmVOc0Nxc1hwVmNtbE44Sno1Z3gwTmVLQWRVc2doZVNQcFRySEFwa0ZQNzZmY1hZZXRUZHE3clpZcnYtMjMtWkNadnhRMnI2MUQxRkJESXRtNGY4bnZDVURZWGpzSmVYZkRvRQ?oc=5) |
+| ICE officer 'relieved of current duties' after violent confrontation caught on camera - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPdDBkSjV4WVM4cDlzTVRUazRVUmNrYnc3c002V24zM0VQejVISF9fQmhpa1RkelI2aXdUYlFLS2syeUt0bGlhcjZBSXpWeTdqWFo0YUdZTWdtY01RY0Q5NzluenRtU1lYZ3FLYkhNNDB4ZUU2X0EyNm9mWDNDVmFXUFd2TldnMjRUSlVFWTZUQjZRNjU0QnNBdlVsVUhaN1hNWVhKcV9feEMyejFt0gGyAUFVX3lxTE40ZmhUV1BOcmYwWGxaakVhT2dTRk5ib1VjN21QT1FlWWNkYnp4UmUtWlQyX1IxWVlhandRN1VZWDFNQ0VQUXlpaXU1M0xDWXJvZVNMUHo0RWdMTmptVnRjSTJQc3NMemhHYXhETHlaOXRVR2UyS3FYVjJTZmhnU0Z4WFlBb1BMV01rbTZ3QjBGZXVBNWpqMGYxVWdMVU5LZEMtQndQbzZadEZaNy1zY212OWc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
