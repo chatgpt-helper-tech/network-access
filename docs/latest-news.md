@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 15:13:45（北京时间）**
+🕒 更新时间：**2025年09月27日 15:25:04（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Reeves pushes for EU youth migration scheme ahead of Budget | [阅读全文](https://www.bbc.com/news/articles/c179z10vy28o?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Starmer unflinching as he seeks to take on Reform | [阅读全文](https://www.bbc.com/news/articles/cvg41lljnryo?at_medium=RSS&at_campaign=rss) |
 | Trump promised retribution - how far will he go? | [阅读全文](https://www.bbc.com/news/articles/c0q74pxx871o?at_medium=RSS&at_campaign=rss) |
-| UN sanctions against Iran to resume over banned nuclear activity | [阅读全文](https://www.bbc.com/news/articles/c39rpgpvwy1o?at_medium=RSS&at_campaign=rss) |
+| Holocaust survivor Ruth Posner and husband die at Swiss clinic | [阅读全文](https://www.bbc.com/news/articles/cp8j256l79go?at_medium=RSS&at_campaign=rss) |
 | How the King’s vision is shaping next wave of new towns | [阅读全文](https://www.bbc.com/news/articles/c179z9z1lxwo?at_medium=RSS&at_campaign=rss) |
 | 'Have I made the wrong decision?': Backstage at Strictly as live show looms | [阅读全文](https://www.bbc.com/news/articles/c9dx0x68z46o?at_medium=RSS&at_campaign=rss) |
 | 'Primal and sexual': Wuthering Heights director on bringing Brontë to life | [阅读全文](https://www.bbc.com/news/articles/cly0nnrr48ko?at_medium=RSS&at_campaign=rss) |
