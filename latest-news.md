@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 23:48:26（北京时间）**
+🕒 更新时间：**2025年09月29日 00:00:04（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | Zelensky condemns 'vile' Russian strikes lasting 12 hours | [阅读全文](https://www.bbc.com/news/articles/c75qeqr5905o?at_medium=RSS&at_campaign=rss) |
 | Building of three new towns will start before election, Labour pledges | [阅读全文](https://www.bbc.com/news/articles/cly1geen679o?at_medium=RSS&at_campaign=rss) |
 | From drug theft to Dubai arrests: The Scottish gangland feud that went global | [阅读全文](https://www.bbc.com/news/articles/c8xr1n4pp49o?at_medium=RSS&at_campaign=rss) |
-| Lola Young 'doing OK' after collapsing on stage during gig | [阅读全文](https://www.bbc.com/news/articles/cr7031gv2m8o?at_medium=RSS&at_campaign=rss) |
 | 'It's bigger than us' - England aim to inspire | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/cd9ygg1l48zo?at_medium=RSS&at_campaign=rss) |
-| Move over, Murdochs - a new family dynasty is shaking up US media | [阅读全文](https://www.bbc.com/news/articles/cr4qwwk0g0yo?at_medium=RSS&at_campaign=rss) |
-| Bali's Instagram image draws millions - but record tourism is taking its toll | [阅读全文](https://www.bbc.com/news/articles/c07vxdny178o?at_medium=RSS&at_campaign=rss) |
-| Dismissed as a joke, UK's first rice crop ripe for picking after hot summer | [阅读全文](https://www.bbc.com/news/articles/c1wgeq702dyo?at_medium=RSS&at_campaign=rss) |
-| Collagen: Do you drink it? Inject it? Rub it on your skin? And does it work? | [阅读全文](https://www.bbc.com/news/articles/cjr5zj12ye1o?at_medium=RSS&at_campaign=rss) |
+| Lola Young 'doing OK' after collapsing on stage during gig | [阅读全文](https://www.bbc.com/news/articles/cr7031gv2m8o?at_medium=RSS&at_campaign=rss) |
+| Thunberg denies claims Gaza flotilla is a publicity stunt | [阅读全文](https://www.bbc.com/news/articles/cx25grpxzd3o?at_medium=RSS&at_campaign=rss) |
+| Woman raped by group of men in churchyard | [阅读全文](https://www.bbc.com/news/articles/cly622k0jm4o?at_medium=RSS&at_campaign=rss) |
+| The US navy killed 17 in deadly strikes. Now Venezuela is giving civilians guns | [阅读全文](https://www.bbc.com/news/articles/c5y5q173053o?at_medium=RSS&at_campaign=rss) |
+| Jaguar Land Rover may need more than £1.5bn government loan guarantee, MP says | [阅读全文](https://www.bbc.com/news/articles/c62zggj69e0o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Crunch time: Democrats ready for shutdown standoff over Republican health cuts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxON0VVcS1WSVJFb05NSlgxUEdlR0p3aHlweHdYd0VWVm83TWo0bUNzWVBSM1RFU2xEeXQ2RWs3SzhWbDB5QnBNX2tnYmdya0dVQmxrODlndHVraDJVNlE4X2wtSTE4ZHlQZkhLLXJPRjcwTEZKOWdqRnZoNFR2NjUxTnFrX0VKV0xlNlAtWVVjM1AwLWZna094Vjl0eVlLMllKN0JRUlF1WQ?oc=5) |
 | Portland’s city leaders and residents are pushing back against ICE. Now Trump is sending in troops - CNN | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9mX1VlM0hHUTVkMWh4VFRCenVNUE94b2hCR2dyZ1JSdDQtMVR0MjVxREVQNktYUHRQZFd6Z1ItQ0V3TXRMLW5iS2VQbnNyN2JLS2s4aTJXRlBzNVRWZVdIalNqaWtjM3lrdU4zTmRPa20?oc=5) |
-| Authorities give update on Southport mass shooting: LIVE - ABC11 | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxQcy1uckJZT252QlU3RFVvaENUUW9FZTRTRFNKNHE0Z25jR1ZoQ2pXMTVwWW10enBud3hSOFV4WXVGZkFUZlljTTVtaTNicnRwdFg4eThzakZfc3JaSUlDc0NQVTVYcVcwTHM5VDJ3RS0tai1aVW1fX2t4SERrQWR4YlBzLWFlQXU0eXo2TE55RHRqd0xHNnhuRTkzRDVkLS1wTi1NYmliSy1vZ1JKbElJbWhEaXBXeVZIMk5TZ2tHa1luRnRJUmtKckllQlRQdGZTam95Zw?oc=5) |
+| Suspect charged in Southport mass shooting that killed three, injured several at American Fish Company - WECT | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNYnBYWXhrRndnZGJjQ0xmNUxPbnMxeUNCQWxqYVdiYTYxRGtFZTNnb0pzUF9iX0FRUGd5eFBGVWpfMkIyQndqU2lBNXJlb2NYcVIxeDlYajhNVzN2R2ZOOTNxMl9DdC1OMkVsZklKMmlFNy1UTzBGZ0pLN2RkRUh2RHRuMHd0S1hGRUlCajhaOGJnR2lycVh5MEV5X1BtTW93?oc=5) |
 | Inside the Trump Administration’s Push to Prosecute James Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPb1k0cHVhbkhsSnFhYVRvUXh6WEVzZWNKSXpGSkxIVmlNc3pNMThpVFc3blNrUGhVazRzb3ptSXBhcnB5LUdONDZIelBWckhIWGQ1UnQ3VHFrQ0s2UkFXSFBnZGlZelZfUk9kcHllalRFLURzLWhwQzRqYkVzNnFvajRrYUtTaGVGRVE?oc=5) |
 | Russia pounds Kyiv, other regions in mass drone and missile attack - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOcnBySGRzMVFsa082VWRHX292dkRROTI2QXFsZ05DSnU3T3phRlhxTDFOZHNGTGRfdmR5Vk1iT1JReEZRZzBHdDFHVk5ydXg4MW5LbVMxb2ZtRlJHZUV1TWVKMnVUcl9Jd2pnektQLWdnYUtHVVJ2LTFMc2FKeHp1QklfNFEwamNIRENoc3d3ZHhjdnRoSGdoZTNCVkZ3OFVNbTAybnA5eEZaYW4xT2UxOHZkSkcyQWlpY3ZOVUgyblNoR3JrVGNN?oc=5) |
 | Officials place Des Moines schools leader on leave after his arrest by immigration agents - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNeFllcURLanVUS2txemxaaDBJVFhwYUFSWl9YNGhtempfVG02am03aGk2WUhCUW1TN29VbXNsOURqMmxIYUsyN2dXb0lhN3cxbmhOTnZGNHo1cjIwMDVWM3dTQ1dfM1N4anM0alladnBBOXVPT082ZGlISzMyU0lrVXhsQXUxSVRqOGVVTlN5ZW9FRFhhVUZTai02OVZHSGJSSmNv?oc=5) |
