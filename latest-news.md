@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 17:12:46（北京时间）**
+🕒 更新时间：**2025年09月28日 17:25:27（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Inside the Trump Administration’s Push to Prosecute James Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPb1k0cHVhbkhsSnFhYVRvUXh6WEVzZWNKSXpGSkxIVmlNc3pNMThpVFc3blNrUGhVazRzb3ptSXBhcnB5LUdONDZIelBWckhIWGQ1UnQ3VHFrQ0s2UkFXSFBnZGlZelZfUk9kcHllalRFLURzLWhwQzRqYkVzNnFvajRrYUtTaGVGRVE?oc=5) |
 | Officials place Des Moines schools leader on leave after his arrest by immigration agents - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNeFllcURLanVUS2txemxaaDBJVFhwYUFSWl9YNGhtempfVG02am03aGk2WUhCUW1TN29VbXNsOURqMmxIYUsyN2dXb0lhN3cxbmhOTnZGNHo1cjIwMDVWM3dTQ1dfM1N4anM0alladnBBOXVPT082ZGlISzMyU0lrVXhsQXUxSVRqOGVVTlN5ZW9FRFhhVUZTai02OVZHSGJSSmNv?oc=5) |
-| Trump news at a glance: Trump orders deployment of national guard to ‘war ravaged’ Portland - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOMTJKUTNTX1otVW1ndEJPMzNISXU3djdKMmNaUS1GSkNwQ0tNSDlPSmRmMmhFM0NqeVFQTXdBSEQ5eGhXakVpOGRVOElVX3pibHJRcHVNTWVpNU1PVGdyMHlGbnJIRzRNeEIwQzMwSTBZMm5sbWdGeEoweXF5SG9tb3BrQTJuTjZ1V2VaMFhBZFM?oc=5) |
+| Trump orders deployment of troops to Portland, ICE facilities - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNRzM4c01XUUdFYzhaSE5lYUg5YnVkVDRCQ3Y0Xy1qMmU1VzkwV1pmeU1lYlFVbWVNdlVoNFYzYzR3d3p4a1AySFJSVlptN0RlWXo0REtwcHRKaGszRXg4M2lmNkYzVGZaYmFtUlRqZE84OE1aUEdWZVBTU25NdkI4WDNZMFlzdmdMaHJ3NXplTDdzeWwtVlo5ZWZKQURHWTFY?oc=5) |
 | 3 dead, 8 injured after shooter in boat opens fire on North Carolina waterfront bar: Official - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOQzhEbVQ1cDlDaWUta3c3WjJicFJ4LU12bUY4LVl0b04wSmxBZW5DZVhUZE9MQV81TVRaTjlycy1jRlZGWDYtWHktVTMyY2FZd1FqNGRGZGRhb3B0dTNaZ1JLOW9kYzBVbElTeFphNjVNZjNVUFV6NkRwNzM0a3M4cUFFMGtISV9meHE4dFJIVdIBlAFBVV95cUxPTjF1VDR5TXFCRG5qZ3Q2VEpLOUplVWpKMGRSekExRVZYUGduMVZJelFpcTF0SGY0VFUwQnA0VHRMS3J4Y0tVNFhkME1pV1U5MGc3ai1KYk8wTU9SQmxNNnYtZnZJWmNaZWZ0UVBJbmJQaDR4Y083RTg5NnQwMkRsZ0ZqcU9JUDhzRmw2WWZoQXItZ3JG?oc=5) |
 | Trump to meet with congressional leaders ahead of shutdown deadline - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNejNCc3o2dHRJU0VKNFJ3OEpRWXFFSHdtMDlHdUM1Z05SUF9Wb2VSUlRGMTNERXhweWRIVl9yZlJKSzdEbDN6MzZ1TksxSkxtdlA5bUhIVFMwYmY1NUdtbFNSWnZVV0RncUFjbFc4aGlSTnd5UVZFS0tWYnN1OTdwVVBVVVdRVEZGTFNIQ29jdzAtb291TU0wOEZqMFRnQdIBowFBVV95cUxNQmhabm5BVDlHb3hZU1Q3bGNHMmdnR3haVDQyRG1LM21jUHFIMEc4aWg1WTNQNmZIS2dvdFZIVVo0ZHdfN084QkJYVk9oVHh1SlpUZEtMZUFBVXJhcjJ6QkpaVjcxRnZlM0JESDJ1OEdtSG1HMDJFbTlQS2NhQy0xaE5fMWlSN2x3NTRWcHdYRDA0dnhTcTROdElvMFBjRVVfc2RN?oc=5) |
 | Iran sanctions reimposed 10 years after landmark nuclear deal - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFB5amFFQk5mZTF4czhMbzRjVGdtb0R4elRPZ2Fnc2dhRG8zNjgtVXZYUGh4VHV0UjE0V2ZzbV9XTTI2eG5MdlhMOFpYVnJabHhaRFJQSGJnSnFnd9IBX0FVX3lxTE9UTkVmdi1NOGk2M2FCUFFWVVg3d21sS0t3ZnViNXlMRjNxNU9fZmpxQmpXbVlUSDhNb05LZ3dKcUVNN1JQU2cwaEFWM2R2Mkd1TG9KUGNNSEtWS2JnQllJ?oc=5) |
