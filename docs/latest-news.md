@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月29日 11:49:16（北京时间）**
+🕒 更新时间：**2025年09月29日 12:00:13（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Suspect held after allegedly firing from boat into waterfront bar in North Carolina - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPaGdKSGw2dXZEVXVGV0JRYWNtdzJYM05VaEFxWGZhMlF3b0l6ZzdHSXloZTJ5UmVwV2NiaGloYXNCblc2b0dHeEwwektNaEpUcU95c0U2c1Z3MEdjTF9EYUFBRURCMmpHYTRnaVV5c1hwbzdMa0l3eHZVcGU0R0dvVzlFRS1QODAyU0xyZ19hWVF2WkIwQVRHQmttazJtMHpaWkE?oc=5) |
 | Missouri governor signs Trump-backed plan aimed at helping Republicans win another US House seat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNV0oyeFJCRWJBb1UtUVBlQUdLN3BEa19rN2tYN1NfM1U0UnYxZU1BOWtrNElPSXhrN2wtUW9ZMkhTT2Q5ZVNES1dkd182OXdUT2VMUXVmTGQ4a2c5Z3I5dWk2WmFkQUFnSG5WYWc4NnBxNUxVbnMwSVVrVXltd2ZqRENkdFhpcWFybzlYaUVQTU10ZTQ5X0VHeERxNUZOR0dpMVE?oc=5) |
 | The Pentagon suddenly ordered all its top brass from around the world to a meeting. Trump wasn't part of the initial plan but will now attend - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQVmNiZVBnQk13SU9wdG4wOWplSUgyUU9kYkNacnEyamFub1BEYmN5Q2dwajNZNEZTOTBrY0FmeGY0ai1VekxxZUVLa0NpTUlPZXpzZHB1a1VPQnhodlY1WkpVSWFVTkN1UUJDVzRCTU9qa2stMGU0VVRhVHJnZ1h6VzAzS1k3WmF4R05ZcXNtejFOdmh6RTRIV1dR?oc=5) |
-| Moldova’s Pivotal Election Projected to End in Victory for Pro-Europeans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQS21RQTFZenVPMHVlRkh5MHZLcEttd1BtVlJhdU4xRHlnMkppb3VzT2ppUndIcEhyZzh5VFJzeUFTdmpocVBXVVYwbkkyVlllTFdnREtMS0VRWU1oZVZjUGhTNzAwamFyUTBRVm1mX3ZvQ0ZzdENFaDNmbDA1ZGhRLUR3?oc=5) |
+| Russia Hammers Kyiv in 12-Hour Drone and Missile Assault - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxObGp2WE9wLWE4LV9tQTI2Z0N3YTkzVHAwLU9SNnQ0MXp0WFlOcTF1dnpqMkNqb1pVbUY2cXBZcnpDaGdWVDVxNFYzVlFuSEpPdEM1SzR4Z1V6Q01mYVJ2X2NpOFlnMjRheWhPRW5MMFV1clpnNFJhMXljeFI5eE0yWHJSS2dTX0U?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
