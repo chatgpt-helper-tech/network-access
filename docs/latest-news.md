@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月29日 16:01:52（北京时间）**
+🕒 更新时间：**2025年09月29日 16:13:21（北京时间）**
 
 ---
 
@@ -13,10 +13,10 @@
 | Europe survive US comeback charge to win sensational Ryder Cup | [阅读全文](https://www.bbc.com/sport/golf/articles/c0m4g7k4l0yo?at_medium=RSS&at_campaign=rss) |
 | 'You'll never need to work again': Criminals offer reporter money to hack BBC | [阅读全文](https://www.bbc.com/news/articles/c3w5n903447o?at_medium=RSS&at_campaign=rss) |
 | How weight-loss injections are turning obesity into a wealth issue | [阅读全文](https://www.bbc.com/news/articles/cre5xp83394o?at_medium=RSS&at_campaign=rss) |
-| Pro-EU party in Moldova set to win vote mired in claims of Russian interference | [阅读全文](https://www.bbc.com/news/articles/cx2rdlj8ejgo?at_medium=RSS&at_campaign=rss) |
+| Disabled Post Office Horizon victim offered 15% of claim | [阅读全文](https://www.bbc.com/news/articles/cq5jqxjqj0eo?at_medium=RSS&at_campaign=rss) |
 | Denmark bans all civilian drone flights ahead of European summit | [阅读全文](https://www.bbc.com/news/articles/c708dzqvz1vo?at_medium=RSS&at_campaign=rss) |
 | Is your friend draining your energy? Three ways to handle social vampires | [阅读全文](https://www.bbc.com/news/articles/ceq20p1nr88o?at_medium=RSS&at_campaign=rss) |
-| Disabled Post Office Horizon victim offered 15% of claim | [阅读全文](https://www.bbc.com/news/articles/cq5jqxjqj0eo?at_medium=RSS&at_campaign=rss) |
+| Pro-EU party in Moldova set to win vote mired in claims of Russian interference | [阅读全文](https://www.bbc.com/news/articles/cx2rdlj8ejgo?at_medium=RSS&at_campaign=rss) |
 | Small boat carrying record 125 people crosses Channel | [阅读全文](https://www.bbc.com/news/articles/cn0re8x7172o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
