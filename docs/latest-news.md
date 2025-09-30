@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 15:48:07（北京时间）**
+🕒 更新时间：**2025年09月30日 16:00:28（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump, Democrats leave meeting without deal to avoid government shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQNUxnUXRpSVRLdlZPY0gzS3NxeTBqZFBNS1ltY0JIUnJXZ1Btemp5MGZOUXlUVy0wRXAzNGZoUGVPQS15Qy1ZYkJUWHZoaXA5NFNtTmRGNEJfajZJRjRGb191Tlh3c1N5YXE1VDhDRDNPNzhwYVFydmVYRUQzMlhJZmpMX2JmZzVmSmw4S3d1TkYySVk2REZnUDlR?oc=5) |
-| What to know about the Gaza peace plan agreed to by Trump and Netanyahu - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNTG4xZ0lONkJCUVlab2JUeVdiOC14Tk0wYlpHTGNnMWpvVHBPa0EzRE9JYnNmQ1ZDMDF0VkJLRERzUFlJMjg3N2tIYWRXNk5HR1UwclRaMzJLOEFMd1RSX0NZWWpteEdTZ3ZXSVdRamZZUUlqbmZEYXZXOTZBMk5nU3E3cGFVY3ExQmppV0w0VF9TWl9KRmZ2ZkRrUWVGaS1JeXg4?oc=5) |
 | Military leaders voice concern over Hegseth’s new Pentagon strategy - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNOVg5TFNLOXhKa0JISWFXM3Jrck9POFN1RmVLN3p1dEY0eFhwZ3laM082a1VfR0tVd25KQVMxckp4WVlsM2xvR0lqUld2M1FSZDZVRnNrQUtvUzU1VGdRY2JwSV8tR0xkQnBqal92Z2M4XzR2M0FsTVRodlIyY2dMVzdqQmhvWW9KSUFnN3F3SHV2dkU3enNMVEJZZTNMMHVFX1VjejROdC1ZSzVs?oc=5) |
+| What to know about the Gaza peace plan agreed to by Trump and Netanyahu - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNTG4xZ0lONkJCUVlab2JUeVdiOC14Tk0wYlpHTGNnMWpvVHBPa0EzRE9JYnNmQ1ZDMDF0VkJLRERzUFlJMjg3N2tIYWRXNk5HR1UwclRaMzJLOEFMd1RSX0NZWWpteEdTZ3ZXSVdRamZZUUlqbmZEYXZXOTZBMk5nU3E3cGFVY3ExQmppV0w0VF9TWl9KRmZ2ZkRrUWVGaS1JeXg4?oc=5) |
 | YouTube agrees to pay $24.5 million to settle Trump lawsuit: Court filing - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQTmhhc1ZiRVdPZHEwbVpqalQtcDgxM1hYeU4tUFY1MXI3aTRvaWxMNG5TODRScGQyUjVLTjdIelBUbFg2ZU5UWW1RcnlWaFNjWWlMS1VaX0xydzdVNF9iT2d3T05XajZ5S2dJeDVGVmNTSkFyZ2x6azJYSE4yUkpfbEFFenpXM2FNaFZyT1ZqUnI3NEpMN0tEZGcya1QtbW5DVk8tMtIBqgFBVV95cUxOMmFnUnQwQlp3MDRXS012dzhVanc5S3RFVW9abWVJRjU0WWZQaTYySDF3YkJVaXJ5OUNJZVdTM0hGdUEySFlLVHE1ODhoZ2ZWRkJIczJIN0h0VzRPYlpZdEU4NnVvNlludW8tX1hZT0lJQktVdXlndUhCQ2JGS1NoRDZJVDJBSjZCZDhDNXFFMTE3aHhDM0RCWC1EREE4U191Q19ZV0h2Q3Y4Zw?oc=5) |
 | Michigan Church Attacker Is Said to Have Held a Grudge Against Mormons - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE5VcXlTUlFwTWZBbC1TQXZUNHJCS1JZb3dsLWZFOFIwM2phUzVKY2FSTHIzcWRyZDhQSzJjYUZwTVBpVFItaVg1X19BSFJRd2YxNXF4dU5aXzYwMGlsVzB6aDFHalR2SXl2bWxWUzdRNjJlSTQ?oc=5) |
 | Tropical Storm Imelda: Tracking the storm's path near the Southeast coast - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPVnk1b1pjM2wxRERBTXNXcEU1cDNHSm95R2I3TFY5RnpSVFdhajEyS2N6YzFmSm1qVm1HVm1sR2FsQkk2QXdrMVlvU1Fjb2xYSmFKalg5M2p5X0l3bWdieXExODJjZXVaVUFwUzNlbXlFa3dpS3R0TUctTnpRa2dnV1oxZUZVVzJfdGxJM0VrV2ZXUW9ob3lHTdIBngFBVV95cUxPQVJWdEliOE5udmZVRG83ZW52RjlzRWxfdmNXVU5YWG01dlMwT0xmcU5rdzMzR0Fpb2M5NnNKaEdORjhQNE9TVDN4LTBKUkx2TUoyNXRWUmJYVFM4Z09rNzNEYjBZQ3d6bFc3bVlkYWZ6VXNNcE5VSTZHaHptWnJsMXVCTkFuN3BBMzVXbVJRYXlpNTVOWlBjMkpCb3ZhZw?oc=5) |
