@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 06:37:33（北京时间）**
+🕒 更新时间：**2025年10月01日 06:48:04（北京时间）**
 
 ---
 
@@ -23,15 +23,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Here’s How a Government Shutdown Works - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQbXVBUmVITnA4dV9Fb3pjbmx0NEhLRVJDZ3dUU25NUmNpNGJMR011ZUloZmR0TjVHeHphTnpXWjBmZ0xFZjZuajUtdVhDREliUEVUWjdmUmpaaTNZMEpWWEJiMDRjT29uR0tBY2QycTlqRnZreDF2ZndUQjFtWEcySUZHUlVQcG8?oc=5) |
 | Trump and Hegseth's plan for a MAGA military reset, told in 11 quotes - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBvSF9vT25QNkMxSG5RZGtiZmd6djh2Ym1KTEFRTWNMSFRGNE1iYzRHd29oWHFpaXQtV0FIVFFBbnktSVZpLW0zZnFRV0o0dTNYRDNpZmFHeG9OY1UzaF9kZjlLWDhOcEVDcEl0a1lCa21Ea0VGV0lOdjFpTWppaWs?oc=5) |
+| Trump warns Democrats of 'irreversible' actions in government shutdown - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNdXNiQy1vWWJVRTRYNDVGMThzQ19TTktZbi1tUlZ4S0NjZnFWVDZwbjZNMEFEblhKd0l3VUJjUFVnMk5iWk5lRk5PYU1xQWVOYmtMZC1mZTlQbjR6S0RZNHpyelAwdGZlOHRtc3l2a1VfV2pJQ041dEdYOTdrd2pFcnN0TFBhUGwtZEc5Tl83ZVNBSkZrUDNueG13?oc=5) |
 | Trump announces ‘TrumpRx’ site for discounted drugs and deal with Pfizer to lower prices - CNN | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBHdmZZN25DQkptdXpzNE92Q0s4dzlOTVAzNmlkUEZ5d2JGWWdsTDhmcktsUVVMcTRrQklEV015Szg5eDEzZndTbFJRRDMyUzNNVFZnenEzUC1LUEVxRWx5UnFpMWItSWhtUnkyX3dyOGNUUQ?oc=5) |
 | Trump previews $500 million deal with Harvard on trade schools - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPVDZBUGN2QzByTnE5TkVHa01oS2xhOXFhS2hHZ2tFZ19HdENEbUF2cmoyOXRUeGl5RVNlRmZUWGoyNjAwWmo0SXZfSFo0OFp0WDE3WGJ3MUlrdXZwNkRvU1BrejBuejJQTGd5SUVhUm43QUVYZFoyeGJLblg3MXU2WTRwOTBteXR0ZDk4?oc=5) |
-| HUD website blames looming shutdown on ‘Radical Left’ - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPVlc5a1ZRV0szdHNVc3R5UnlvZU1iLW11azBNcTVkbUlWaS1SUjMwaERLNUlwM3ozMkV0WE03Z1VkalNpNUlZOEtRUEhpRWFUc2IzaXhsTG9tNWh5dS1Vb0Fsc3htZTJaQ1RadnJSUlpzUHNmSllURnI5WXJHM2pDT21KS0FfTkhLM3FJZkhha0VNUl85WWxYYjhLcGhrX2hBUmZ1eTR1bUk2MGctZmVKcQ?oc=5) |
+| Trump administration illegally targeted pro-Palestinian protesters, judge rules - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPdmdtYTFzUEM2SVRVNnB4bUhqZk9HX0xXalVyM0Y3MWVzZUg5cnV0RGJXT0NWNFNxbXhlRmlpQlZWRzJWVTNHWFVjbEFiZkFITXp4dEZSekV2RHYyc0EzWk4xQzJsT0ZZemczbW5wSDQtSU51RzIxY2hOQkhkbmdpcW04ckJxQVNaWDV6aEswbUdCQ3ZkTGFUTHVVdGpsYVhFaElEYWd5VHJZZ0NKejJ4dkhyTDFleDA?oc=5) |
 | Trump peace plan 'ignores interests of Palestinian people', Hamas official tells BBC - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9Fc2dMblpqOTdiVDRpVmQ3S241aUNuVmk3UEN2LWFQQkdwcGtrM3ZzR3ZFVm5MZUUzdGROLU8zVDc4aUhLR0h5bWRpTWJLUldaV3pBVG1jbWpuZ9IBX0FVX3lxTE1kdVhPLUJzdEVUSGZFemFXSmJZVDVqTVRpaVo5aWFGTHhndjN0eW9iS1JrTU1nR2U2cTU3TWNwZ1U1Uk9kUnJvT1U2a2l0YXU3dDV0Sm4wb1Y1bXVxOVRF?oc=5) |
 | Family, friends of Grand Blanc church attack victims launch online fundraisers - The Detroit News | [阅读全文](https://news.google.com/rss/articles/CBMi5wFBVV95cUxPT001VlB6a21XRnpRMW8zWGt3SUU2b1VVTmd2X2dBbmstM01nNm5zM2RGTXBkNnFWQjFNSVo3RVlmdFBiVlVpVmFVdjlGUmtzQy12N01WQ29xTEhQNGRCLVZZd3FUYjU3N2xWNGN1SlR3TWRMUmZZRGxtaUZjY0tObWNKRHZpMlYwUElNakJ1YmFsa1A0ZGpaVnlJZk41UThwU2xRTGZCcUE0TnhGaEhveHdaXzZWa0FjbGFUWWxaSlhoNGl5Q05DMnRyTzBQQmRNWGhtRDJpaG5ZUzdIVmg0ZFJyWnRpclU?oc=5) |
-| The Obamacare subsidy fight is already splitting congressional Republicans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOUHRyRWM2dEFTTVY1Nk9qQ2xJWVZ0ZnlLRGhwb2ZCVTlRcXNLQTlSYS1uMDRzYjQ3NTNfa0JsQlpqX3d4NjJnSUpTRWlxeENzVlhVTnFaeXpLWlNJekM2RkdMWGFNM2RmOV8xOEJOZ0lTOVpyUDVDRnN2eGF5RUltX09rdDFFdmNiU0ZCSlVORDRIQQ?oc=5) |
 | Congressional leaders continue blame game as clock ticks toward shutdown - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPNlpkOV8xaTZnam5heVIyOUhaejhURV9fZ1ZfTGlGN212M1BFVld6bEYtX0lXd0ZwUjZZVHVhWHpXbEtTNE1NS3NzTlZ2c0Nua1lyNzdNV2VPd1RGcjE2LUY4SkEtT1VlYmxwY2xDN1lzODZEZVlmc0taNEFYVl9TSS1wTVVDQ0RJUFFJX3dJb2VsRnR5WDBYYnI0c243ZjhuSHFFZU53aElmNVlfWFhOeGN5UdIBuAFBVV95cUxObVY4SC1LeW1KZDZJWXdtNTZ1ekxfakhfUmZDSnRWeVpsVGgySk9hUTRTX3R3eUFiSGUyekNKazctVGdHREdqTFctQWRVSWFnLU9lamNiSGREQWlPNFVLX3hOQTFqamZ0WEhiMnpUTS1sb1dlUTVaMTZvTWpIY1FaYndvMm9xU2pndE1fbVNRcUh6cWZfNlJhdGROM3N6OHVRU1o1OWdSM0xGUExNbG5EOE9ydkhRR2NP?oc=5) |
+| The Obamacare subsidy fight is already splitting congressional Republicans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOUHRyRWM2dEFTTVY1Nk9qQ2xJWVZ0ZnlLRGhwb2ZCVTlRcXNLQTlSYS1uMDRzYjQ3NTNfa0JsQlpqX3d4NjJnSUpTRWlxeENzVlhVTnFaeXpLWlNJekM2RkdMWGFNM2RmOV8xOEJOZ0lTOVpyUDVDRnN2eGF5RUltX09rdDFFdmNiU0ZCSlVORDRIQQ?oc=5) |
 | Louisiana governor asks for national guard deployment to New Orleans - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOMXFGUVI3XzdhVnZtdlIzWWc3aUk5em1LQWhJb09iY0NqWnFWWmhvQjBaS1IyejU3bDc1VWlYZEdZSDZfZ2pLMEJhNDZEcTAwUWM2WHhqZE1LQjloRHRqMlBoTEF3Q0lNYjNxUkpUMFg0dkYtMjI3LWtocXpqZnMyTW5nT1pNM2RVZ1pDOXE2RTJGdHgzWjRNNUJ3WS0?oc=5) |
 
 ---
