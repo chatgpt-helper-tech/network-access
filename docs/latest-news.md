@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 04:37:30（北京时间）**
+🕒 更新时间：**2025年10月02日 04:49:01（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump to withhold billions of dollars from Gateway tunnel and Second Ave. subway projects - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxNRGkzcENJN2loRnpXOWc4Yk9HWk5BZzY5VzRnS2p0aWFMSXhCS1VNV24wMHpBUzNaSnIwWnVtSlpDUG50dnA3NVhCSFBScmRhdV8wS05KRTVYUGhJQWZhajV1SEhMUlNEVmxDS1JLWGxjV201VUtvS0VjdjBacU1kb25JUzNqa2VkSGEtcXhIcDB2VXJWdEFLczdjYnk0OVRkc0p4YVhKNW5TcW5lYVpGR2hiOEYyMW9HX0xwTms4bnZMaUlPOUJCVzdhWmJYQVlMeUI0YQ?oc=5) |
 | Hakeem Jeffries called Trump’s deepfake post ‘racist.’ JD Vance said it was ‘funny.’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxON2h2NmFkQ3RzbmxOQnhZWHl5azlPd2RMbGxJalVjakh1WnZuRUVsUC0wVnpsNmlybHJ0dl9JcDNWS2NZa3l3VF9nRmZTQWI0b0lXbHh5clpqcjBUSVBjWHhQRlZ1N1A0OUUzc3Bqb3FqODBLTl95QmJoTEZ6QWZFRzNfcVpXZ2hMNGc?oc=5) |
 | Hurricane Imelda tracker: See the projected path as storm forecast to bring 'hurricane-force' winds, waves to Bermuda - Yahoo | [阅读全文](https://news.google.com/rss/articles/CBMihwJBVV95cUxQNGMxSGZnbG13eTlPYW82MUFlVXNpck95LUYyMmNMa295clVUYmdoMklXX1FVMmRiZ1M1dDhPUmFYWmk0TTFZT3BBWVFfNFA0aGlid0plLXVmQk1wTlRUR3BnbnRpS0N0bVdZMTczU1V1b3VnR25va3FZTUhtbmJIUU1admtHRnVIaFZNeXViM2N1NmRyMkxNVXYwMGNycTZSSFBXMHNWcTJmdkJTR1BjTTR6Vk5DUkJpMklYVVF5S0VuOFJoazdVUUNrTFRYQm9xVW9INFg1ZHlqeXEyY29vZGd3M2NGMHBLZl94ampod1h6VllUWHpUZndVYlAzb2xDTnpIYWRpSQ?oc=5) |
-| Part of a high-rise apartment building in New York City collapses, no injuries reported - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxORFIyM0JaeXR1NXBVaDRZMnZ6R09iNzRoOHJiNUszUTVvTGhIZ2F2ek1SdXNMbGlnMHgySC0xMWtCYUQ0bzdVUWNydldJZFpkU3NSQldHSnF6SFVQekdBc2FqOU94SXdyWmVRZzRUZDF4WTc2NDBETnJuYXExT2xQTFFVWHRVZ2NsRTZNMDc3ZE9GMmlCbDRhR9IBngFBVV95cUxONTh4NFhIYUxOTTNYQ2xuRkVjaWJsaFBvSjlaaHFyaDhMWkFfMzdhZmVKdE5MSDM2RXAyUjN1elF6emMxQ3RLcUdkM1p0ZnNFb2RYeS10WWpWRHFBeUNNOHpocFVpZmJEUllLRXlDc1FIY0dmLVJmeTMwXzdCRldYMXhENE0wWGxCamNnYlo2WmJCRFFnS1VMcjZyUmRlZw?oc=5) |
-| Mormons raise $200,000 for family of gunman who attacked their church - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPbmpxcHdhenVUbDdWX3FuMlFQUXplY3poZmxtNk1PQjhTelowX2hQUElMLUs5a3pLNURnX1VnU2FrVFJfeWd1RHUyY1p1dGEzZi10LU5nS05rWElDVEtPeThoNGQ2d0lPOUVDNEJ1QzJiQzh4MTYtNUI4T2F3WjBjTTV3bUExZzdTSEY5bXFLS1FzWloxdlQyOTZ1amhCY0k?oc=5) |
-| In the Philippines, Search Teams Look for Survivors of Deadly Earthquake - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNYUZtYmI0ZmdYZVJ5cm45QVl3V25xV3RWY25rTk9fLTV0U3pnVVp4dkJxNEt3WEpURXg1cElGYnFDMHlyTEMyYlBfdVhjdmhVMS01QW9hV2lkMmN0M0t2akxGcEt0QVh5N0ZkV0p1ekZjYlFQZDllZmRCbWM3Nl9xZzNkX0Q?oc=5) |
+| 20-Story Public Housing Building in the Bronx Partly Collapses - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPdTd2dzY0ODlSMlgtMW9YWEFKZkoxbVp1ampsS2hQbkdMbXZibTVGeF8tZmJ4NmNsS1pOMmxDTjI5MElUZ2xWd2JHa1I3dnBoZ21MWWVrRi1PTW45dDhubGU0T3p6TEhMajdNUUFxLS02RnQzQlJsWXhYMVAyaVVUUks4cjh1clE3ZlE?oc=5) |
+| Health care is key for Democrats in shutdown fight. Here’s what to know. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQRDRyelp0T0JyZTJQSmFBZHFuRzU3Y2NJN0FOYXBUTF9lWWE5ZnJVQ2Ffa2R0R1AwRV8zMjY0LTk3VHA1TlB0ZVk0SVZ3TnVubGV6TjhSbndFNTRJQ3hYcmJrcDBnMGdhMENJUTAtMFQ3NlQ5R2l0WjNzQm5XYmI1NEdHc3ZyZFhZdEZsYmIxYktub2pGMC1NZ0ZMZjBEZkFXN2FWQmQwZ1E?oc=5) |
+| Israeli naval forces board pro-Palestinian flotilla 75 miles from Gaza - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNblVLQ1dSbFRBUUlwbnI4Zkp3ekFMWDJsbWJQdmlNSEcyMG81V1ViajlRQmVCWkhnYldpRGg1elZHVjVTbjVmSDY1Z2xFU2pERE9DcFJPZnA5SUtRdHI3dWZfbU5nVUxGQml0TEI1RUU4XzRJYllvc3RvcHFfRVZKa3dkSVZWUkdRTFg1YXlSWF8xSjF3bTdORTZYS0N0Qk9weGc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
