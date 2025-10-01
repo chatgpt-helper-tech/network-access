@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 19:37:18（北京时间）**
+🕒 更新时间：**2025年10月01日 19:49:38（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | PM tells BBC he wants to change how international law used in asylum cases | [阅读全文](https://www.bbc.com/news/articles/cd72p30v574o?at_medium=RSS&at_campaign=rss) |
 | I went undercover as a cleaner at a failing care home. Here's what I witnessed | [阅读全文](https://www.bbc.com/news/articles/c4g78yj2v2go?at_medium=RSS&at_campaign=rss) |
 | 'Buy one, get one free' deals for unhealthy food banned | [阅读全文](https://www.bbc.com/news/articles/c89d54gv44qo?at_medium=RSS&at_campaign=rss) |
-| Snapchat to start charging for storing old posts | [阅读全文](https://www.bbc.com/news/articles/cz69238p5p8o?at_medium=RSS&at_campaign=rss) |
+| Snapchat to charge users for storing their old photos and videos | [阅读全文](https://www.bbc.com/news/articles/cz69238p5p8o?at_medium=RSS&at_campaign=rss) |
 | Every GP practice now has to offer online booking | [阅读全文](https://www.bbc.com/news/articles/cjed4qvzjeyo?at_medium=RSS&at_campaign=rss) |
 | Storm Amy named with 80mph winds and severe weather warnings for the UK | [阅读全文](https://www.bbc.com/weather/articles/cy042drenj8o?at_medium=RSS&at_campaign=rss) |
 | Energy bills rise by 2% for millions with calls for more support | [阅读全文](https://www.bbc.com/news/articles/cm2zr4nym9zo?at_medium=RSS&at_campaign=rss) |
@@ -30,7 +30,7 @@
 | Trump pulls nomination of E.J. Antoni to lead Bureau of Labor Statistics, AP source says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNcVZQeFItNXN1OUVacFVBVEUyR0dfTTg5WEgtTmFMXzhpSXliSmlVQ3RndXN6STQwbV96eVJUTXlNWUlIUUkxcER6M3oxcXRHSDZWaTYwaGozemNCbkpicmF1X3ZzOWh0bnVDZVN2VEdlQXRqSjNBZGgyaG9IRTYxNFJqbDZCdFR4WEpuTjhJZzAwaVNFdWRsV1lJQThlOTY4ZmJUSQ?oc=5) |
 | Michigan church shooting survivor says she looked gunman who killed her father in the eyes: "I forgave him right there" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBWVk1UWVpjcVMxMDk0bUJrcG5ZSW0wVWVOSExWYjVFVzREX0VqUnpUd3J3dDBrb29fV3lFRVpMRTVuQVJQNFBSNFRuTkhTMEFFMEVWSUxyT0lrNVU3b1N0R001SE1oZXBrME93Y3ZLTGRHdkxOTTVaWlNR0gF_QVVfeXFMTWpoNm5BUTdNZEdQT21tZjJqMGxLeVFUNUVoMVU4SlBSMWw0TlFIR3hBamJNQnY0aTJVNGlEZUNsMXl6WFI1cVVHaFNzMmZKR0VNcVlDbFg0anRPejdxM29MMjVQc2duT2Q5cGtUa3lZUHZaMnYzcHZrTjI4UEtXYw?oc=5) |
 | Trump Claims White House Is Nearing a Deal With Harvard - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5WT0hQMFZRWERQZGRnc0M2dGN1Ynhyc1VtX3JZTEM4aFpScko4Yk93Z25xRnZYcjZ2RUY1dnRCZTl4VW1YUzY4b1J0STd4NUxnd0NRT3c0R3JMWjhpRWtfVW9Ub1lLamUwT2dGeFJXUDN5aHBoenJCdQ?oc=5) |
-| Government website blames shutdown on "radical left." Ethics group calls it a "blatant violation." - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxOYm5ZdjR1RDIyNFJqNmU0UFVIdzR1SkJSc3FMV2pQcDlqbkxDN3ZxMkhrdVZEZ3hZTHVnWUZYeEZCV1RPQW5WcXY4clo4X1dRdUpPZ0lSY2RoN3pub3M4ZUQ0Z1pCNVJYWkt6YXlhWEZhTjBhNmxEY0dUTXJVbXdmT0w3NDhCUU1hUVdnMHJNOWtRc2tYenA5U3pxYkNLRGZ5QTd6U2FNc2FBVW1IbmZZQV9kSkFRMlhiX3d2MGFBajJic2dwN3dMaGtyQjRpWUHSAdQBQVVfeXFMTVJhQVJleHZ4eGlsQVVpTlRVbkpWelNZTGNSRnY5MjV6RmtMMjRteExKSUpoV3pOaGJzb1YzVnlZYUppVm5rSHh5M2JKcTFsRi1RRVR2cE9NLXd6cGlQU0F4YkRuTVVXQ3k0MnhkQjNGclNqQ2pUdDJCRVVHaWxJRWU5bDU3STJ4bzF5WHowRVdlN1ZqOU1USGVwUlBMX0ZDUHFId0pDMl80YjByMmVWMjMzNXpQU0xyQUh5aEtaWWNPSnVtUThtaWhUNVRhRkZMYlFLNzQ?oc=5) |
+| Second detainee dies after shooting at Dallas ICE facility - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNUVZIZ1R1Z19tazBfNG1jUWlkcUNJcUJYRUdvUS01eW1qTllVRDdYRHBGdFhkZHBSSUh3S0t6RXY3LWF3RDFMWlphWnlKbEJfZ3dZWVhXZHl1TWx3Z2h1OHp4VGx2UU9pOFlGZXRtYzA3V2xHMzJHUlFNaXdqSS1Dc3VRQUxoeV8zbUE?oc=5) |
 | Judge Disqualifies Nevada’s Acting U.S. Attorney From Handling Cases - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNUUI1MDNwVVQyTHA0clZKUjVZUGlDVDdJUl9xbVJmejNOVnZZQ2hfNTNkdDJwb3BieFBhX2NSS0Q3NnI1SFZwLU85UXZvZG1SUlltSi1fRHdMcjJWNl82ellVM1VfY003Zm8zdXhNVnZmYkJWaEVlRGFhQzZpVmlSRlg4OVlxaWI5RFJRNXRyNXJnQnM?oc=5) |
 | Qatar, Egypt and Turkey said to urge Hamas to accept Trump’s Gaza ceasefire proposal - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNLU1XbmZNLUl3ZjFzQVBnRFBhR1Fhejlib091Sm9WcFdPbjlaVXFGVFBMaWZIckMyTjhwY19GQW9FeV9WQWpINGtEWXA2ek96TTcxSlFaSmRUVzBIZWNSMWo1VllIUm1BQ19UZFJ3dVZDejh1Ty0zcTF6UlVRTFBRR3VFZkowQUNmMXpPcGE5UDlwZkVvZDgyS2c2TWpGbzZicGdySEVDaU5OclNwRHZPSjFsUdIBuAFBVV95cUxOU3gxbVlNQ1k3TE1vMlplN284U2E5ODNrNXVjY1hvQnJMaUtwTE1mNFZndjV3Wk16VV92Q2YzMWhQRWlFQ2t4dF9HRFBsMjlTTndoRGZDeGdUNENNNGJ4Z2w0Zjd5Z2JFQmgzYnVkeEJqZ0ZUMkFoSHNULUlQSkx1VHB1eUVpa3NSREdYVDV6TlNHUDlrT0d3R1d5SVEzWm1NWXpkOVAyYXUtTW1JLXdzRFNnRTJ4elZu?oc=5) |
 
