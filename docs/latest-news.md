@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 13:24:41（北京时间）**
+🕒 更新时间：**2025年10月01日 13:37:22（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Starmer wants rethink on international law to tackle migration | [阅读全文](https://www.bbc.com/news/articles/cd72p30v574o?at_medium=RSS&at_campaign=rss) |
-| Starmer had to show his critics he can take on Farage | [阅读全文](https://www.bbc.com/news/articles/cpw1jwdlz7lo?at_medium=RSS&at_campaign=rss) |
+| Chris Mason: Starmer had to show his critics he can take on Farage | [阅读全文](https://www.bbc.com/news/articles/cpw1jwdlz7lo?at_medium=RSS&at_campaign=rss) |
 | I went undercover as a cleaner at a failing care home. Here's what I witnessed | [阅读全文](https://www.bbc.com/news/articles/c4g78yj2v2go?at_medium=RSS&at_campaign=rss) |
 | Bowen: Momentum is the strength of Trump's Gaza plan, but lack of detail is its weakness | [阅读全文](https://www.bbc.com/news/articles/cn829deeje3o?at_medium=RSS&at_campaign=rss) |
-| Trump peace plan 'ignores interests of Palestinian people', Hamas official tells BBC | [阅读全文](https://www.bbc.com/news/articles/cx2j97jldkmo?at_medium=RSS&at_campaign=rss) |
 | Anne visits Ukraine to support children 'traumatised' by war | [阅读全文](https://www.bbc.com/news/articles/cgrqlrjgd51o?at_medium=RSS&at_campaign=rss) |
 | Surgeon offered womb removals in 'minutes' without proper examination, women say | [阅读全文](https://www.bbc.com/news/articles/ckgqr7nnzw1o?at_medium=RSS&at_campaign=rss) |
-| Lammy backtracks on Farage Hitler Youth claim | [阅读全文](https://www.bbc.com/news/articles/cn95q9j0yyro?at_medium=RSS&at_campaign=rss) |
 | Half of UK adults now regularly use mobile payments | [阅读全文](https://www.bbc.com/news/articles/c2ejvld0ypyo?at_medium=RSS&at_campaign=rss) |
+| Lammy backtracks on Farage Hitler Youth claim | [阅读全文](https://www.bbc.com/news/articles/cn95q9j0yyro?at_medium=RSS&at_campaign=rss) |
 | European leaders meet in high-security Danish summit after drone disruption | [阅读全文](https://www.bbc.com/news/articles/cp8jdene16ro?at_medium=RSS&at_campaign=rss) |
+| Met police officer faces criminal probe after BBC investigation | [阅读全文](https://www.bbc.com/news/articles/cx2j9vwvz71o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
