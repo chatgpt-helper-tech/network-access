@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 17:48:27（北京时间）**
+🕒 更新时间：**2025年10月01日 18:01:22（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | US government shuts down after Democrats refuse to back Republican funding plan - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1JVkY1bC0wbUZPYTlxcDhhVVNGWURYdHh5enpaOHgyRlJDaGhPckxZM3F4Tm1oLVJjYVFaeDNRSFRhUjE3c1VQMG04LXlZRHR6R3NTSVNBZGxaZmJwZHlXWjhDOF94TVJueVJxdEJCZG50QlVjbm9yS2FackY?oc=5) |
-| San Francisco Officials Respond to Trump Telling US Generals: ‘We're Under Invasion From Within’ - KQED | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxPZ2hfNVc0S0J3ZG83TWdUbVNUSDdVMFVJb2FkS01JMElZS1E3Nl9OM1FkWjZIREhvdmVDdXVTaHFBcWZjVEFZc3NqMnVkX0gtT1Nna1d4c2VLN0UybUlla3IxeXVnRFE2RTFXUktkb2tyazBnZW5fWFc3S0JnQ2pVbTNNX0JwWDZrcHB0Z2hJZk1RWUpUVm95V0JEaVh4dXRQQWdZZEpvb0FxdUtfU1dPR3M3RFI2Z1c1RTBjTmItaS01T21iWFE?oc=5) |
 | Trump announces 'TrumpRx' website for pharmaceutical drugs after Pfizer deal - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxONnhJVDljRC1vaEpGa2RWLVdsOEh6VnRaUE5YdlFkVlFzQ3ZPc0FBYUNST2RwYUFVamtjTDFPQ3NRV3M4REVLRE1HSjJ4MVFwaGhpc2Z0WW1FMHNac2xHNXBQcGVhOWhpdDdlR0lZSTdtUGVFR1dhWVVpbmxHTkRGVExtZEl1dF9OSVB3R05PcnZMRlhpNkpHSzJxcjFrZVNxdG5JRy0zVzhETGxwbXNr0gG0AUFVX3lxTE96ODdJUk9HdHBrRnBxeE54QkVMX1VIeWtuVERvSkFoTHEwbmZwdkp3cWN1V245MWJET180Nm02TzlUY0tqVHFLNGh3QldxNDhmX012OTU5NFJtc2tIYTJZNzhhczEyTkU2TDhQSXVheC1SYk9JY3RabVRFQmtCMUljUXY3aG1sUXJ2NngxTWpXWmxJSFdmSDFPNlIyTDJzWG1MZmJjMkUxMGlULWJ6SVhFaVJFaA?oc=5) |
+| San Francisco Officials Respond to Trump Telling US Generals: ‘We're Under Invasion From Within’ - KQED | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxPZ2hfNVc0S0J3ZG83TWdUbVNUSDdVMFVJb2FkS01JMElZS1E3Nl9OM1FkWjZIREhvdmVDdXVTaHFBcWZjVEFZc3NqMnVkX0gtT1Nna1d4c2VLN0UybUlla3IxeXVnRFE2RTFXUktkb2tyazBnZW5fWFc3S0JnQ2pVbTNNX0JwWDZrcHB0Z2hJZk1RWUpUVm95V0JEaVh4dXRQQWdZZEpvb0FxdUtfU1dPR3M3RFI2Z1c1RTBjTmItaS01T21iWFE?oc=5) |
 | Democratic congresswoman confronts Johnson over Trump AI video: ‘It’s racist. You should call it out’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQNlp2c29wbERCUlRzZGNlS3lHNko2eEhiMUhjcFlOblhNMktGa3Y4VkFGWWJLclBSN0FmNnNlMUloQnpadEJKYzJsZjRrWmpkSWh5UUhKZGJ3MkpLb3J4c0RTeW1hQTk4UDlZU0psd0xiWjRJeHJIWEhuX2tYS0trWFpSdw?oc=5) |
 | Trump pulls nomination of E.J. Antoni to lead Bureau of Labor Statistics, AP source says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNcVZQeFItNXN1OUVacFVBVEUyR0dfTTg5WEgtTmFMXzhpSXliSmlVQ3RndXN6STQwbV96eVJUTXlNWUlIUUkxcER6M3oxcXRHSDZWaTYwaGozemNCbkpicmF1X3ZzOWh0bnVDZVN2VEdlQXRqSjNBZGgyaG9IRTYxNFJqbDZCdFR4WEpuTjhJZzAwaVNFdWRsV1lJQThlOTY4ZmJUSQ?oc=5) |
 | Dozens dead after 6.9-magnitude earthquake strikes Philippines - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBxbG1TeG9mdUpTeEIxX0d6UGFKX0daUVB3UlFOOWZFYWRIZ3phWnVhWFJ5ZElRMDJFOFVvSjA2QkJCQ0MyZU5jV3NhOGVfc09tX3RNZlcwcjNvSXg1V0ZGdlF0aXJmcndnU0ltRGFSb1RaUdIBd0FVX3lxTFBMY1pCQjVHNkhkMEFDUkpYNHhNdm5xOVlFSm0yaHVMclBPRHU5YUljVFp5bG90V2dvdklPSXpnTVMza0stWUpFMnFtNkNMd1lXYkZXUVlaTTdTZEhFbzJKV2tLbXlBXy1EV2tNb083bjRaLUVQMUlZ?oc=5) |
