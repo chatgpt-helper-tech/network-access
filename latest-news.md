@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 21:48:16（北京时间）**
+🕒 更新时间：**2025年10月01日 22:01:34（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Where things stand with Trump’s National Guard deployments - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQVGdZNDlVS01vaFhwNG9KM0JtX2EzR21BcmM0NXY3QnJ1S3V4dUxUREV1dkdXcGViVFdKYi1OS0dPblZOMGg2NnQ2d3BFUjJ0cEo5cUV0ZXRCc0NUeHcxTzUyaXNjaldFbmJkWERzcTZDclV2QkNUVkphYTNXQnRDRHRFOFhiUExfSkJ6d21ZLTdrUFE5?oc=5) |
 | Trump Claims White House Is Nearing a Deal With Harvard - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5WT0hQMFZRWERQZGRnc0M2dGN1Ynhyc1VtX3JZTEM4aFpScko4Yk93Z25xRnZYcjZ2RUY1dnRCZTl4VW1YUzY4b1J0STd4NUxnd0NRT3c0R3JMWjhpRWtfVW9Ub1lLamUwT2dGeFJXUDN5aHBoenJCdQ?oc=5) |
 | Brown bear heavyweight Chunk wins Fat Bear Week despite injury - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBuZVBJdkhvcUNKSzdKblQxNnlvdkhrWGg2RHQyOUhEZHVwa2txZjNKQnhYUzJPOXRPVFhSX0tHSExzRC1ZTHFoUVAyc2dJZ1ZJU2Z0LTZma0VKQQ?oc=5) |
-| Second detainee dies after shooting at Dallas ICE facility - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNUVZIZ1R1Z19tazBfNG1jUWlkcUNJcUJYRUdvUS01eW1qTllVRDdYRHBGdFhkZHBSSUh3S0t6RXY3LWF3RDFMWlphWnlKbEJfZ3dZWVhXZHl1TWx3Z2h1OHp4VGx2UU9pOFlGZXRtYzA3V2xHMzJHUlFNaXdqSS1Dc3VRQUxoeV8zbUE?oc=5) |
+| Second victim in Dallas ICE shooting dies from injuries, LULAC says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPQlF2NlpBTlhkYWJMWXFIVlc0YW1vTXRaZ29ta1BVd3dwbkgtTmhpZTJJTnliTGVwaEh1cV9MNG85SFhFRFZqRHhaUHc2M21iMWdXT3ozQk1yajZSTVBzUkVob0w0SUN0U09aSnBxNmh4ZEotRXFKUlFEYjdRWTc1OUxodFoweE5PdjlYRWJtS21kQVlMSTZDU2pIM1g1OWM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
