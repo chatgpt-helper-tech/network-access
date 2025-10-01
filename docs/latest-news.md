@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 21:37:46（北京时间）**
+🕒 更新时间：**2025年10月01日 21:48:16（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Veterans react to Hegseth’s ‘insulting’ address to generals and admirals - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOYzhkQnBfS3dmblNzRDVIeG9Sa0lwNHIweFFmTFphWTBPWDQzYWZfbWp2V1J0alRJaDlRei13MTUxd3ctVXFxRmpMVW9URnBCd3FRLXdwenpQQ1hycW1hRWhTQW9CLWhGUXVReEtUREpPWW1nYmp6RHV5VGJTdlVxcVhMSV9kRDlXdC1ZbkNNdmNrdGl6S1E?oc=5) |
 | Labor unions sue OMB, OPM for ‘unlawful’ threats of mass layoffs ahead of shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5CS052cDhHMlo2ak56dVh1WEk4OGRoanJaRVp6bHJzODZIcEpZOE9zR0ZiR0NJb2xnWk1aTVFSVm8yaVYweFZRZWZ2ZjBndmVyaWRmTDM4NzBZWFd6MmtlVUZtX3lKbXlRbzJGcjItZnpIdUZxcGFvX0oydkJKUU0?oc=5) |
 | Pfizer's deal ratchets up pressure on other drug companies - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFA2UlR5OW9ISG1mNXo3MktWVWsyQlBjNExoMlhKZ3I5V0tXbnZ6MC03TVZnVzAzTkF6bVVqWm1PVzhYNldWdDJwMlVvSmgtbW1Zb1RBSTQ2R0tUX3ZnN0JhLTFMRnQ4RUxJUi1UR1R4ckcydEE?oc=5) |
-| White House withdraws controversial pick to lead Bureau of Labor Statistics - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQTUZCbXBSVF9heGFvaGRJX3prQWR2M0J4NTVGWWJQd2lzMW1YckRqY3gxbUM4LWIxSUZfNVpTN2dnNnZkTGhaRkI5VDFKYTFGdUlhcUJNOERhUW5FSnJPa3JsOGQ3Q2hVdmJhWHllWTM4YVpjMC04T3gxOU9oM0lNR2xZOFNleDFDeF9GZmEzdUY?oc=5) |
-| Brown bear heavyweight Chunk wins Fat Bear Week despite injury - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBuZVBJdkhvcUNKSzdKblQxNnlvdkhrWGg2RHQyOUhEZHVwa2txZjNKQnhYUzJPOXRPVFhSX0tHSExzRC1ZTHFoUVAyc2dJZ1ZJU2Z0LTZma0VKQdIBX0FVX3lxTE5kcUNPRXVZRzRnRnR1MHNGMWdfaU5CZTdVN0FDakM0b3FNb0RNcUpDLTJfYmtPUjQ2N1hEMUhndVFNd0UtbVVKUnFqeG1mVkdVblN4ZWlTSFo4RjlNQ2RJ?oc=5) |
+| Scoop: How an Israeli attack inadvertently launched Trump's Gaza peace plan - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxORDRBSUNNdldpbjNWVUt2UkN6TjM1cTh1QnkyZGQ2T3ZmbTVxV1BpS1VHWmlNWVhaU1Z4N3RkNVh3MWNpM1c5d25VaW5NbXZuT0tOMzEwbFJrXzZFWEZ1d3ZOcDEyUVUzcFdla0NEWVBkRmlzLUlPc1lvRFhNbEdMYXoyZlpuUXgyVHpyeTU3Z09FbDhYV3dGWGtWd1pzZjl4OEhJdmVMQjhqdw?oc=5) |
+| New York apartment building partly collapses in 'major emergency' - live updates - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE9qM2NoWFJpN0ZiZWpKdGJDcEhIT0UwLVllTGhJTnZsc3NMZlowUE5lckZFNGFldVE2WTFmc3BZZ2NLNnY3TEFib0UxZmdUWHdod21zRg?oc=5) |
 | Where things stand with Trump’s National Guard deployments - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQVGdZNDlVS01vaFhwNG9KM0JtX2EzR21BcmM0NXY3QnJ1S3V4dUxUREV1dkdXcGViVFdKYi1OS0dPblZOMGg2NnQ2d3BFUjJ0cEo5cUV0ZXRCc0NUeHcxTzUyaXNjaldFbmJkWERzcTZDclV2QkNUVkphYTNXQnRDRHRFOFhiUExfSkJ6d21ZLTdrUFE5?oc=5) |
 | Trump Claims White House Is Nearing a Deal With Harvard - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5WT0hQMFZRWERQZGRnc0M2dGN1Ynhyc1VtX3JZTEM4aFpScko4Yk93Z25xRnZYcjZ2RUY1dnRCZTl4VW1YUzY4b1J0STd4NUxnd0NRT3c0R3JMWjhpRWtfVW9Ub1lLamUwT2dGeFJXUDN5aHBoenJCdQ?oc=5) |
+| Brown bear heavyweight Chunk wins Fat Bear Week despite injury - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBuZVBJdkhvcUNKSzdKblQxNnlvdkhrWGg2RHQyOUhEZHVwa2txZjNKQnhYUzJPOXRPVFhSX0tHSExzRC1ZTHFoUVAyc2dJZ1ZJU2Z0LTZma0VKQQ?oc=5) |
 | Government website blames shutdown on "radical left." Ethics group calls it a "blatant violation." - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxOYm5ZdjR1RDIyNFJqNmU0UFVIdzR1SkJSc3FMV2pQcDlqbkxDN3ZxMkhrdVZEZ3hZTHVnWUZYeEZCV1RPQW5WcXY4clo4X1dRdUpPZ0lSY2RoN3pub3M4ZUQ0Z1pCNVJYWkt6YXlhWEZhTjBhNmxEY0dUTXJVbXdmT0w3NDhCUU1hUVdnMHJNOWtRc2tYenA5U3pxYkNLRGZ5QTd6U2FNc2FBVW1IbmZZQV9kSkFRMlhiX3d2MGFBajJic2dwN3dMaGtyQjRpWUHSAdQBQVVfeXFMTVJhQVJleHZ4eGlsQVVpTlRVbkpWelNZTGNSRnY5MjV6RmtMMjRteExKSUpoV3pOaGJzb1YzVnlZYUppVm5rSHh5M2JKcTFsRi1RRVR2cE9NLXd6cGlQU0F4YkRuTVVXQ3k0MnhkQjNGclNqQ2pUdDJCRVVHaWxJRWU5bDU3STJ4bzF5WHowRVdlN1ZqOU1USGVwUlBMX0ZDUHFId0pDMl80YjByMmVWMjMzNXpQU0xyQUh5aEtaWWNPSnVtUThtaWhUNVRhRkZMYlFLNzQ?oc=5) |
-| Second detainee dies after shooting at Dallas ICE facility - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNUVZIZ1R1Z19tazBfNG1jUWlkcUNJcUJYRUdvUS01eW1qTllVRDdYRHBGdFhkZHBSSUh3S0t6RXY3LWF3RDFMWlphWnlKbEJfZ3dZWVhXZHl1TWx3Z2h1OHp4VGx2UU9pOFlGZXRtYzA3V2xHMzJHUlFNaXdqSS1Dc3VRQUxoeV8zbUE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
