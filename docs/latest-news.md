@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 15:00:28（北京时间）**
+🕒 更新时间：**2025年10月01日 15:12:07（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | White House withdraws E.J. Antoni's nomination to run the Bureau of Labor Statistics - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNY0ZSZmRCRlBlUVBlMTVTa185WEtoNHpVZkl6dDFwcVgwM0lubkhjVjhleTMybTlWTHIxZDZWNzNfVlBFa2hZVklwd0xpcUNuY011X3BoOHo4UWdxVEF6SGROLVdfelk0dnVsbnlBWlZDdmdzaXA3VjJDdUFDaF9qd0gxQW9DT0dJRTkyR0JMZHdnSFRDUU9sV3o1dXlZV3J2TDBpTkEwQdIBVkFVX3lxTE4wWjdVcUZEdWRLWkg1REN5bmt3b0tJLXhxSU5fWUxZeXpwNFBFa0lWN09WcXFTTkZPcmtrSUdhZlM4Z3FSM0RFZWtzRkt5amxjSDB2aUtB?oc=5) |
 | Scoop: Schumer rallies Democrats as shutdown deadline looms - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBNU1BZQ1I0c05vUGVjUUdKYVlobkpoWWZpMEw2Ti1SRW9VLU80WHR5QUk0UUE3MDhZZDNSZmhoWG02X3VkWGFJVFA3VHVZbE9aRFZCdTNXRTlPREVkQk1TbmRWV2g1RlFDY21rc1lsX0lKeWhnQmVCMnVUQ2w?oc=5) |
 | Trump Claims White House Has Struck Deal With Harvard - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5WT0hQMFZRWERQZGRnc0M2dGN1Ynhyc1VtX3JZTEM4aFpScko4Yk93Z25xRnZYcjZ2RUY1dnRCZTl4VW1YUzY4b1J0STd4NUxnd0NRT3c0R3JMWjhpRWtfVW9Ub1lLamUwT2dGeFJXUDN5aHBoenJCdQ?oc=5) |
-| Judge Disqualifies Nevada’s Acting U.S. Attorney From Handling Cases - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNUUI1MDNwVVQyTHA0clZKUjVZUGlDVDdJUl9xbVJmejNOVnZZQ2hfNTNkdDJwb3BieFBhX2NSS0Q3NnI1SFZwLU85UXZvZG1SUlltSi1fRHdMcjJWNl82ellVM1VfY003Zm8zdXhNVnZmYkJWaEVlRGFhQzZpVmlSRlg4OVlxaWI5RFJRNXRyNXJnQnM?oc=5) |
+| Judge disqualifies Trump-appointed Nevada prosecutor from some cases after finding she's "not validly serving" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOM0p0LTFvbTFaandQU0VsR09kNzNkckFPcHdCQ1h3dmZkbWNzZ1pZMk1JSWl1OTBkWWhmVHNTc1ZHMGZNazFHOERLMElhZUFCc3dRa2MwejZSUTMtZVV4STh4WEFMZndHbmtPU29iV1Rob0VLMENxakFOS0Z2TTlHd1pMQ1A2d9IBiwFBVV95cUxPcENManQ5UEdJLXR3THdXbV8yRnZYSHBhTFFqZjBXWENQT3Jjb25obkdnS2hBTjVFc1dfWUp3NDFydWV5dDJHM2dacWQxaDV4RjBuYWkwVXZXX0h1ZFU3ZEtsa0tJaUNBU3N0LXh3LWVVRWhfa0Fqd05RaDRtcEFINUlUQUVjS1dNN3Y4?oc=5) |
 | Chunk, a 1,200-pound bear with a broken jaw, wins Alaska’s popular Fat Bear Week contest - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPZ094VXlETTNYWHNwN3lyaWZScnZURG91U3JKeTNxc2tjcUg2OTZ3eklnb0NTb3ZYQkZwSnI0ZjlkRWNIOWhndEg0MUNoQVZPUld3ZUl3OFQ5Vko2STdQT1NPSm5EbHVhY0VjZDNtRkpzZUp0X01rdW9raFpTNmp0T1ZlTWdrMU5PQWJ0RDkyVEFSOGpiYlltZ1hoS1g?oc=5) |
 | 'Sad and troubling end': DMPS board votes to accept resignation of Superintendent Ian Roberts - KCCI | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNMDlKTEh2TWhFNGQ1UDdSOG5WU0ZwcWdZeGVhNWs4bTNQMmNLUXVDbXl2S0t3WnNJNGh6ZFNyWW9ZR0NTSFc4RzlXbHRYZkY1emJsdEtkdnB4bFd1TW9hYzlKcC1GbkF5RlRNNi14VTV3ZzZhQ2N2WWcwWDNUZF9DRVdRTUZGLTg3UWlBVHZPM0ZWNnhvb3RPVTZnWlgtSmVDVFgzd2VQMHhSemVsMkhmX3FBUG8?oc=5) |
 
