@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月03日 07:25:10（北京时间）**
+🕒 更新时间：**2025年10月03日 07:36:37（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Trump asks 9 colleges to commit to his political agenda and get favorable access to federal money - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNV2FMTG5LWmNSaUdTNnNEcFJUSkpySUlDeWczeDBKSzJiOGtWc2Rlb1lYS0dHQW4yclItRDBCRnBFS0xqVnpKUjdxcEk2UG5NN1RUVVd1Ykh3OC1tYnlQcm9WZVN2QTBhanRjRURRU0VsTXhWUEZPN2h1cnIzYlVzTkVTYUJjRFJTLWdsTE1GS2VSTy1ZX3pOSl9JTlIwSmI0djh5aVNlRzQ?oc=5) |
 | Trump making plans to send billions in cash bailouts to farmers with taxpayer money - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNMzNBYXF1LVNtRHlyaUpBc2swTnRISEZRdEJEa2RRN0YwZWNJcjUxbGRDOXc5TjVLQUlWNDNaQUJPT1Y3NXFObXh5MGQzZEd3TUcwM0ZXbkotUTBtd2NSS3lDamdGNFBTb3ZtSVZkZVhfdGFtZHEzQUJYdWE2VzdiWjhMTnNsSnJWc0x1LTJB?oc=5) |
 | Out-of-office messages blaming Democrats for shutdown sent on behalf of some federal workers without their consent - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNR0FfV1gwOERrdWRIYVpUTHZGVUpGMHRYWF9wTzR1em9wYW1ENURyVWJiMTd2ZGVCOE9KbkdOUjFSQkp6aXgxanpwVnViQXg3RHlyQ3FjTUFPX0loSVZZOHZldkh1b1UybEY2dC04emZGczV1cVdCdEU2ZTE5Ri11NjdXOVIyYjlaZ2E2Zk1Lcm1ZcHU3dXc?oc=5) |
-| Donations pour in for family of gunman in Michigan church attack - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5NRU1uUWZsN2o1RlpoTEJUZUxhYVJIRnphdlk2dHAwSm5ObVlhNVJ1ME1Kcm9YTkJHSFZUWjBOdTJNei1IcEZoa25ibEFvaXd1WVVvYk1uNEtvUdIBX0FVX3lxTE0zb05WNEFiQTQxLWVBdzUwbkIzUW1nQXQ0UThOM1Y0M3ZjYlF4cC12Zjhpb0NiaUlkTTdpNllKbnFWbDk0SHNsbHUtamJhSTJ6QmFNRTNzb2tiVkFCUFFn?oc=5) |
 | Former Des Moines superintendent who was detained by ICE federally charged - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNdjRCaDJCZWVKLWZXWGw2TTMtZ0U4U3BNc3hqTmtybWNZTnVBWXo1TGtGYkl3WDFKbnM0MFlFTUZwSUFXUkQ2dHEtSlRRalc0MUdlVmxmVTM2OWc5bGJQLVVBTnNBUUh1UmZ4V2F2QlYxc05EeTBvVEhxWmFyRnBkRERLWEotbHlJUWdwdXpranNIRWp5alNjYzRUYjB4cFhvY3ZuSEtGcmhUMzlQ0gGyAUFVX3lxTFB6c2laS1dRdUtoby1LelhOeUN5VDBvb2swNFNBc3h5NktPSEZjY0FIN1V6dWlhbFU5YkpkVi1jZHFUelljOGVodmpYTmIwZy1sN0xLc2lOY21ibkZGSG10MmNpa2JrX29YazVhb080TGl3ZEp2UDI0Y0pFQl9JUkJqRm5STlBzbm9RR2hUMkJpbkNfdFktbzZ6eEc2NUtSVkdDZVI2UFhjbUZCUTk1UEJURGc?oc=5) |
+| Donations pour in for family of gunman in Michigan church attack - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5NRU1uUWZsN2o1RlpoTEJUZUxhYVJIRnphdlk2dHAwSm5ObVlhNVJ1ME1Kcm9YTkJHSFZUWjBOdTJNei1IcEZoa25ibEFvaXd1WVVvYk1uNEtvUdIBX0FVX3lxTE0zb05WNEFiQTQxLWVBdzUwbkIzUW1nQXQ0UThOM1Y0M3ZjYlF4cC12Zjhpb0NiaUlkTTdpNllKbnFWbDk0SHNsbHUtamJhSTJ6QmFNRTNzb2tiVkFCUFFn?oc=5) |
 | Weekend votes ‘unlikely,’ Thune says, meaning shutdown could push into next week - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOZXZqZFlZSjNPZ2dvakZRb1lqYXMyVFdtdEFLRUNpWnVRUUZoOFhDbDFoa21HXzNkUU9vbnZQc3BaU0VGTlBGakQ1SXpNakN2U1BrNk0wRE9fYW9qdmVIWnZBZW5tYXJ6NVdaUTdjMUFfcy1aTDR6ZjY1dUVldVNOMWJkbkRpVkFtaVFvTjJ4RzhScno1YlZ4Y08zbG4?oc=5) |
 
 ---
