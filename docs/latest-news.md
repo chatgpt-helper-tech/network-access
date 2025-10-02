@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 15:37:30（北京时间）**
+🕒 更新时间：**2025年10月02日 15:49:59（北京时间）**
 
 ---
 
@@ -9,13 +9,13 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Unmasked: Secret BBC filming exposes hidden culture of misogyny and racism inside Met Police | [阅读全文](https://www.bbc.com/news/articles/cvgq06d44jyo?at_medium=RSS&at_campaign=rss) |
-| Hackers delete children's pictures and data after nursery attack backlash | [阅读全文](https://www.bbc.com/news/articles/c8rv83mrlyyo?at_medium=RSS&at_campaign=rss) |
+| Hackers say they have deleted children's pictures and data after nursery attack backlash | [阅读全文](https://www.bbc.com/news/articles/c8rv83mrlyyo?at_medium=RSS&at_campaign=rss) |
 | Israeli naval ships intercept Gaza-bound flotilla | [阅读全文](https://www.bbc.com/news/articles/c0lk292jww4o?at_medium=RSS&at_campaign=rss) |
 | Heart surgeon's failures contributed to multiple deaths | [阅读全文](https://www.bbc.com/news/articles/ce3yz4q9p4po?at_medium=RSS&at_campaign=rss) |
 | Relief and new baby for asylum family of child suffocated in Channel crossing | [阅读全文](https://www.bbc.com/news/articles/c8d7l2pvdrro?at_medium=RSS&at_campaign=rss) |
 | Tories pledge to scrap landmark climate legislation | [阅读全文](https://www.bbc.com/news/articles/czrp2k3m3deo?at_medium=RSS&at_campaign=rss) |
 | Should I use olive oil for frying? How to choose the right cooking oil | [阅读全文](https://www.bbc.com/news/articles/cj3y7j2dz44o?at_medium=RSS&at_campaign=rss) |
-| Dame Jane Goodall remembered as a 'true hero for the planet' | [阅读全文](https://www.bbc.com/news/articles/czrp24myrl7o?at_medium=RSS&at_campaign=rss) |
+| 'African tribe' evicted from Scottish Borders camp | [阅读全文](https://www.bbc.com/news/articles/cj3yp4rvp18o?at_medium=RSS&at_campaign=rss) |
 | White House says layoffs 'imminent' with no end to shutdown in sight | [阅读全文](https://www.bbc.com/news/articles/c8xrwdny8p1o?at_medium=RSS&at_campaign=rss) |
 | Why BBC sent undercover reporter into a busy London police station | [阅读全文](https://www.bbc.com/news/articles/cvgn0rjyn2jo?at_medium=RSS&at_campaign=rss) |
 
