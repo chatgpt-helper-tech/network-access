@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 23:36:38（北京时间）**
+🕒 更新时间：**2025年10月02日 23:48:54（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | After Michigan Church Shooting, One Man Raised $200,000 for the Suspect’s Family - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOQXpLSEQ1YVljdkl0YTQ5eElJa2dKSm84UVdGT0t5SWdvRjRrT3JMODVEWXpIMVFYZEl6WkF5SXpLRElFVnZQNzk0cDJvRFVjWHNlMnBiWGd3VFFlMFdiWm1rbmdEUWgyLWNYSWNuR3ptSnQwT0pKMlZMV29OajF3YWZ1SlNsLWF6V09v?oc=5) |
 | Massive immigration raid on Chicago apartment building leaves residents reeling: 'I feel defeated' - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxOX2VVbl9xRk0yZy1XZGJqN1hIRGdueHZlRGlNMC1oUGZjM2VOeDFYaTl2cUFFdHZ2RmVmY3JvanZMOEk2YVFSTGwwcUM4dnJZWmdPd243azRYTkY1d0FFZnN1MVhYUjA2UDdhRFRxUXVWaWRRZzJ3ZVBVbmhqNkVnZHlrM2I1U01nQnpVcmd4ZzFYN212MGxERXJwRm9xV2dKVFFyWm1KUkZrTUZsSHM2czBKaTNyT0xNTkM5cVoxQzg2bHAyZ1h3QXM1ODlIaG1tWDN1bUFVbTRBQkRtLV9pNA?oc=5) |
 | US Supreme Court expands its 'emergency' docket - and Trump's power too - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOWXE2enJybWk1b19nbHRjLVZkcGlMTElkdjl0a0lYQ0lLSUpqenI2VDAyNmo5OEZTc1BJWGdNT2ViVE9keDdGeW52S0ZfOUZNWndtZjRNNUlEbkdnMkdOckFGMng1Z0ttcmdzQUdhMGZUY1QyTXZiYXpQOHJRSTh1VzNnNlJVR1BkVjhPQ1NpM1ZPaWVnWTJfeklnY1dUeTV6bWtsQUY0THdQa3hkNzNDNnp3a2VFQQ?oc=5) |
-| The facts behind the government shutdown debate over health care and immigrants in the U.S. illegally - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPWHgxUk9SVG02aExXTEUzZ0EwU0hJb1E4TU5QX0Zwalp2RGhYM1ZmWlQzQ3ZIOFl0MlFvM1NNVXhlczhpMjVYbzZfaG13akNPUkNTckdSUk55eDVXVWpKZk44MFhMak1GSEU3MU51UTdPMElrQ1pUeExCSE8tcFJuVWVMZUYwNnduQnN3QXhZaTV5bkhTWUhBZ0RpN1ZXY2hHMkVxLWtaUHdRZDNrUE5OR1U0SlRwWHotdU5DeEJJNkRGT1M50gHKAUFVX3lxTE0wMzRrNjhscDFISUlyY3RLdkNmamJERFd0NmNHMHNNXzl4N2lpTG9jbDZzV0dUUkJQNWJuYmt3Y0NBdTJmMzRRd0JBVGZsTlRSSlZ5bFVYZHB5VnI3QW8yUkhnNXdKRnhyaExHZXY5ZFBwczdJNXBSTWFjQ2VEX3N5WDEtam9BVzNaOEdnYmlKUURXNmg2MGZJR04xNWZpNHFkdWlVUUNhU2hHYU9XMDVxcG5QLUpyS29wZlprNFVzX2RLZFFrWGxUN1E?oc=5) |
+| Capitol agenda: Thune insists there’s only one way out of the shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOeVFSYkVhVnBSV1ZoVlJFcUhXT3A0QTVuQUU1RGdMTy1FakduS3c0em5vZHBQWEJ2Wlk1Z3I1MHNCRVl6QkFzVGl1alUySkNVdDhab243Y2tLLXBwY0VMVEwxTW9hLUtRYWdMLXYxc0JLSDFlUDVNUlJyMDZUNHJlWkFCU282cWV1V0QzelZCQlpCeW15NGpPTzRjQ2x4LXdISkpncjhSNHlJTW83czJoeml5Yw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
