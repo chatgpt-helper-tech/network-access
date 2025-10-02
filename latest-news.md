@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 15:13:33（北京时间）**
+🕒 更新时间：**2025年10月02日 15:25:04（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Female vets fire back at Hegseth over claims of lowered military standards - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPc3g5ZlI4cU53VEJJcld2aTRxSDJvWkE5TXJGTHRRRUo3cVZmYWhvYUdSYm5qVURXR0RweEdueTZUWXVkMkdISzFwV0hqUDc5X3BJWnlpQlY0UWJsVVRSUmNGMlpjVzlRVV81WDUtTDBOamxwN2toVS1YV1B3YTE2Ng?oc=5) |
 | How John Thune sees the shutdown ending - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNRUNDajhpQmZTcmVmVWlEZktKMVFhYkNxUks0Sy02UXh4Mm42dk5MdklpMmRnLTliS19odXdIcWhXeFZtaWJHTzA2NHFTSmFIcVRTa0pSdVFrbE44cTdUbGlITWtxZ1JnWnBVcWtuSmx3V2RTMWp6ZU1IOU13LW9xSzg4bmlmUQ?oc=5) |
 | FBI cuts ties with Anti-Defamation League amid conservative backlash - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQT2dBN2MyNVRQVjBtX2JSS3B6T01FbERmUmF4cGprMjRidC15WktXRXR5X1pwaUg3c3hidW1Zblp2X3VvSEgtNk54U0JvejFwZDlmS0xYQWNXTXNzVXVkc1VTdU9HTWdSMUE0TFgycVBaaW5GT015bzY5UWVJRFBvNXVMbjMwSy1nU1V4SDk2Z1djMFNnZkxlUFVkQ25JU3FxUklHQkpXYmpWN1Z3OHfSAbMBQVVfeXFMUEFjSEY3MF91WkdyeURJaWpuTnQwWEF1cWY1aEFXOXNPdmZLU1FXaFljb2luM2JSUnhjTEZfdGJON2RpM0pZYXduX094X2ZfTkN0WDNnUXl0cUV4VGRrVGdjUU1pWkdIT09FYmw1RXpBT05SbDlGOVoxOC1WM0U3SEdwNVlxT0Rldk1TUndyRHlTTDFhOHRLUHlDcTlUMlUycUZILWczMUdmMkcyZkNMQ1lmMnM?oc=5) |
-| Victims in deadly shooting at North Carolina waterfront bar identified: "She loved others deeply" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9WX2w3MER1MXMzeXJJUldrRXdtc2JWZXA2djN5VkNxLTJCVmQ5Q0VoOXl1UnM5MlF4R3UxeXQ3R1piVWFzU19ublNTalJxNUx1Q0c0bGtESFVnbC1TSDFwWEZpTVhjd3EzMkdwVFBfaG5ULWV1WFVYOGtpS001QdIBgwFBVV95cUxNbUUzaHZRSkhmOHR4bUd0eklHQTVBQjZUdjQyYkd6UDdoWkduRXlYbmtXWnY3MElzcHpfeDVfTmc0VWxLSVpwNkFESGNrbVZtY19XWUxlYkVEc3p4czhSQnZQWnEzZVNYUy1udHUwNVBvU3JJNGRTQ3JibDdkTmFWUmJpWQ?oc=5) |
-| Massive immigration raid on Chicago apartment building leaves residents reeling: 'I feel defeated' - WBEZ Chicago | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxNZEhSblVGQk1sZUVWVjNlTk1UaE84WlJIZmxIN05YUUx5blgyWVVUc004SmV6dE9nRVNsMnJuN29PYVI4dkRfRVFTQUY3b0V4RGNPUlctZ3duX0QxX3dheWtLQUN5RV9vWV9jeFRwa1l5NGZVQkhxVGZMYVVNM1UyZmh1ZWFQVEQxWHhHRU9IY0tuR1pzNzlwSnc5NllCQ3dfSEN4SnFEaG1MNXU5TFJWcEtrcDZsdGJCUlJqVWZuT2RXRkNmLVRtQmY3RG1FRUd5YzJoaS1n?oc=5) |
+| NTSB Faults Philadelphia Transit Agency Over Train Fires - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNUnQzSF9rZzJTMDZmbTl0ZXVEbEVLU2h6QUlaV1ZMN1ZDSVJmTHpYQnhRY09WbDlEQk85Y3FsN1IxVkREa2JKb3l2eTBxNEVFOTlGcDRwbVNPMnZ0SEhpUlR4U0wzSER1REVFRkhJM1lsZThzM2FHMnBGQ25KS2VxcFlKbw?oc=5) |
+| Exclusive ｜ White House Asks Colleges to Sign Sweeping Agreement to Get Funding Advantage - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNMHNYX0ItazR6U1Brb0wycmFRcHFFU2llSkRNZm5SRFhfTlZfQUlYMFV2a3pjSWtlYm4yelJ1MjVGT0Q4cFkwaHpqbUUwX2dqT3RoOWtOeWdxQ29rMEFkNVJ3Y3o4QTJrSkdySE93VnBIeVUtN3VndF8xNHlQN3dpYUtCSm42ZFFsN2hwQzl5V2ZzYU44dk5SZExCXzFQQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
