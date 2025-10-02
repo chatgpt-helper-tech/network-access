@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月03日 00:48:54（北京时间）**
+🕒 更新时间：**2025年10月03日 01:01:54（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | What we know so far | [阅读全文](https://www.bbc.com/news/articles/cd63p1djgd7o?at_medium=RSS&at_campaign=rss) |
 | Watch: 'Get back, he's got a bomb' - armed police at the scene | [阅读全文](https://www.bbc.com/news/videos/cy7p27v3je0o?at_medium=RSS&at_campaign=rss) |
 | 'The man was just running out with a knife' - eyewitnesses describe how attack unfolded | [阅读全文](https://www.bbc.com/news/articles/cn0rp05ykx7o?at_medium=RSS&at_campaign=rss) |
-| Starmer 'appalled' by Manchester attack on Jewish holy day | [阅读全文](https://www.bbc.com/news/articles/czrpxgk6x68o?at_medium=RSS&at_campaign=rss) |
 | I'm not resigning, Met Police chief says after BBC investigation | [阅读全文](https://www.bbc.com/news/articles/c7017p581lro?at_medium=RSS&at_campaign=rss) |
 | Hamas military leader in Gaza objects to ceasefire plan, BBC understands | [阅读全文](https://www.bbc.com/news/articles/c708v2q5r09o?at_medium=RSS&at_campaign=rss) |
 | Mum's anti-chemo views influenced daughter's death, coroner says | [阅读全文](https://www.bbc.com/news/articles/c77dmp3jjepo?at_medium=RSS&at_campaign=rss) |
 | Say sorry to children for Covid errors, ex-children's commissioner tells ministers | [阅读全文](https://www.bbc.com/news/articles/c05928mlz56o?at_medium=RSS&at_campaign=rss) |
 | Watch: Inside the lab analysing the world's oldest ice | [阅读全文](https://www.bbc.com/news/videos/cgl1pl8699ko?at_medium=RSS&at_campaign=rss) |
 | Heart surgeon whose failures contributed to several deaths continues to work for NHS | [阅读全文](https://www.bbc.com/news/articles/ce3yz4q9p4po?at_medium=RSS&at_campaign=rss) |
+| Nirvana baby loses legal case over Nevermind album | [阅读全文](https://www.bbc.com/news/articles/cq8eplxd7yzo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
