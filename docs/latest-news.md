@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月03日 21:37:16（北京时间）**
+🕒 更新时间：**2025年10月03日 21:49:31（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Manchester attack has changed us all forever, synagogue leaders say | [阅读全文](https://www.bbc.com/news/articles/cgj1xzv4z0vo?at_medium=RSS&at_campaign=rss) |
-| Two Jewish men killed in attack named | [阅读全文](https://www.bbc.com/news/articles/cly6eve5p06o?at_medium=RSS&at_campaign=rss) |
+| Tributes paid to two Jewish men killed in attack | [阅读全文](https://www.bbc.com/news/articles/cly6eve5p06o?at_medium=RSS&at_campaign=rss) |
 | Who was the Manchester synagogue attacker? | [阅读全文](https://www.bbc.com/news/articles/c0q7y72kppgo?at_medium=RSS&at_campaign=rss) |
 | Pro-Palestinian protests 'un-British' after Manchester attack, home secretary says | [阅读全文](https://www.bbc.com/news/articles/ckgy8kvvkp3o?at_medium=RSS&at_campaign=rss) |
 | 'Hatred and racism cannot tear us apart,' first woman Archbishop of Canterbury Sarah Mullally says | [阅读全文](https://www.bbc.com/news/articles/c2lxyxqzxkdo?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | Newsom Says California Will Cut Funds For ‘Sell-Out Universities’ Complying With Trump Education Crackdown - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi9AFBVV95cUxQQTExY3l2cm9iakdhT2lsZkp2UEJndGkxdzBTV05oTEFNVURFYkxGODlHVnp0QV8tdS1oUWR1UUhEVmtHQVg5UkE1TnNzR3pzZVBSZGNMU3J0YmxPTHhFcklla0dsM0ZLMkp6T0wtUHI5dnlmV3I0cl9sSV9xOXdOZ1RxdTV2WjRxWHpFVzd5cjU0QzJwYzc0MXNncVhsNkV3RGZIMmplb2dWSWRqUV9QWTB4cGR6V1BEOVVuNklMRWY1ZHZmZ3N4NG5nczZIWkd2cGVZOVB0RTdxaWhtWE90NkJoRzRnT2xnNWZDTnR4dnE4MmhK?oc=5) |
 | Trump Name-Checks Project 2025 as He Threatens to Dismantle Agencies - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPOEFlMzRuNF9VRjFYX294bmQ2Rm1OM3hvTlg1WDV2VFA3SFZNMV9zVTlDVWg2b1JNTC1wZ2VEVlk5TVFTMzhLTk1iWXBnbUNWaEt0czFHcG43dEVPNkI0cGtFbkQ3ZFB6TjR1YWRQVk9XUWQ1UFUtV1plcEF0RmxOX0J2NA?oc=5) |
 | Furloughed federal workers pushed to make partisan out-of-office replies: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNWnpYc0ZGQktKU1lweTNuLTNfbElTZ3lUNjFQbF9QUE5lTjhtNWdheXoxck50OTZjelZUY1ZRSFA2cEF3clpQS3NjS0QtbFhHV2xfbzM4NnNpOWZuMExZY3M5R2JTV2J1ODdFc0ZzRUtuMlRESTYzekduOHhWVWh4N19UYjMzTTVMMDRMSDBnS2pGbVA0RjhzOHI1aVUzUERXenJqMjRUYzB5QlB6NW52QTRENNIBuAFBVV95cUxNT3hFcDhhODRicnhRN1lKRjh5RjdvTXlzZEc5Y3NmS1RCRWFZLWl3a0hFaVFOOVJVeHFpdTAwS0E0OXFHSHFQWEJnRy02YV9DSE5hUVdlWEVLbENMZ1FsY2N2ZmNmNk0yQjN3MlNJT09NbVZlOXlEVHJWLVdJdVhpYkxxbHRzODhMS0ZTMUt6M01ZNFMzbDA1QWFJY1BlU0o2YVkwTFJ2UDN4c2tKZk9QTjc1MjJBdzRj?oc=5) |
-| Former Des Moines Superintendent Ian Roberts charged with possessing guns without legal status - Iowa Public Radio | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQYlBJUkI1SWxOeFRyMFRhd1V3RWdXMjJmTzcyT3otQmU0MmRfSnNINzlvaDRvZV9Fc0NYdW12LVo0RzBvYnhJcFJGTjBJSmo0S1VkNlhNZGFmRmVEbEtPNlZJYlVKRUlwS0tYQjNiRHVHd3h1MzNmUm96VXZvX2otT3JJaGNpUFdzWGk5ajlUZ290WHZIQm5XTllrTER5TlNtbTFSYlJRTQ?oc=5) |
+| Apple removes ICE tracking apps after pressure by Trump administration - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQc0s0ZnFJSl96a2ZqT1U3ZlIxZmRpYmsxb3RIc1BaeDFZXzZveHF1WWFFV294LThHaEVzS1p2a0xZTWFmLXJ4MDJTcnp3VzBMa3pEb0JjcW1GUlhrQjk2UDZEVlVxaVdlVkw5RVNDOEJZQ2FyMXdFT2VYaHNXX1dqZkNoQWRLMVhXS1h2ZmloVGZOOTVWRHdPS1FwQjBxbzEzMUw2cFFEa0tFd1dUcWVHemZCa1RVU04yZFJSbWVkZU03NHl1Wll3cm1TYTJnYV96Vmc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
