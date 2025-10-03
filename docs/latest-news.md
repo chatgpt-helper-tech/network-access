@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月03日 11:12:29（北京时间）**
+🕒 更新时间：**2025年10月03日 11:25:30（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Police name Manchester attacker who killed two at synagogue | [阅读全文](https://www.bbc.com/news/articles/cpd93x0ql0do?at_medium=RSS&at_campaign=rss) |
-| What we know about the attack: Worshippers helped stop suspect entering synagogue | [阅读全文](https://www.bbc.com/news/articles/cd63p1djgd7o?at_medium=RSS&at_campaign=rss) |
-| What footage tells us about attack | [阅读全文](https://www.bbc.com/news/videos/cy4jegwzedxo?at_medium=RSS&at_campaign=rss) |
-| Eyewitness: 'The man was just running out with a knife' | [阅读全文](https://www.bbc.com/news/articles/cn0rp05ykx7o?at_medium=RSS&at_campaign=rss) |
-| Starmer vows to protect Jewish communities | [阅读全文](https://www.bbc.com/news/articles/czrpxgk6x68o?at_medium=RSS&at_campaign=rss) |
 | I'm not resigning, Met Police chief says after BBC investigation | [阅读全文](https://www.bbc.com/news/articles/c7017p581lro?at_medium=RSS&at_campaign=rss) |
 | I'll change the monarchy when I'm king, says Prince William | [阅读全文](https://www.bbc.com/news/articles/c20vyjevxe3o?at_medium=RSS&at_campaign=rss) |
 | Top NHS boss backed surgeon whose failures contributed to deaths | [阅读全文](https://www.bbc.com/news/articles/cn0rpdjd39po?at_medium=RSS&at_campaign=rss) |
 | Does the UK go far enough to protect children from conspiracy theorist parents? | [阅读全文](https://www.bbc.com/news/articles/c749d9557j2o?at_medium=RSS&at_campaign=rss) |
 | Munich airport closes after drones spotted nearby | [阅读全文](https://www.bbc.com/news/articles/cpw1e7j5ew9o?at_medium=RSS&at_campaign=rss) |
+| Baroness Mone accuses chancellor of 'inflammatory' language | [阅读全文](https://www.bbc.com/news/articles/cd9y5nkxpzlo?at_medium=RSS&at_campaign=rss) |
+| Russia targets UK military satellites on weekly basis | [阅读全文](https://www.bbc.com/news/articles/c4gkyl1j6n9o?at_medium=RSS&at_campaign=rss) |
+| TikTok recommends porn to children, says report | [阅读全文](https://www.bbc.com/news/articles/c708v7qkeg1o?at_medium=RSS&at_campaign=rss) |
+| Reform Send system now or face billions in extra costs, ministers warned | [阅读全文](https://www.bbc.com/news/articles/czjv2rk9yjvo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
