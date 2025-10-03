@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月03日 15:48:59（北京时间）**
+🕒 更新时间：**2025年10月03日 16:00:53（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What footage tells us about the synagogue attack | [阅读全文](https://www.bbc.com/news/videos/cy4jegwzedxo?at_medium=RSS&at_campaign=rss) |
+| What footage tells us about the attack | [阅读全文](https://www.bbc.com/news/videos/cy4jegwzedxo?at_medium=RSS&at_campaign=rss) |
+| Rabbi and security staff who blocked attacker 'true heroes', says PM | [阅读全文](https://www.bbc.com/news/articles/ckg3499p18po?at_medium=RSS&at_campaign=rss) |
+| What we know about the attack | [阅读全文](https://www.bbc.com/news/articles/cd63p1djgd7o?at_medium=RSS&at_campaign=rss) |
+| Eyewitness: 'They gave him a couple of warnings, he didn't listen, so they opened fire' | [阅读全文](https://www.bbc.com/news/articles/cn0rp05ykx7o?at_medium=RSS&at_campaign=rss) |
 | Top NHS boss backed surgeon whose failures contributed to deaths | [阅读全文](https://www.bbc.com/news/articles/cn0rpdjd39po?at_medium=RSS&at_campaign=rss) |
 | Taylor Swift: The Life of a Showgirl is a triumphant pop victory lap | [阅读全文](https://www.bbc.com/news/articles/cn4wpe5z52qo?at_medium=RSS&at_campaign=rss) |
 | Former Israeli hostage 'very worried' Trump's peace plan will not happen | [阅读全文](https://www.bbc.com/news/articles/cwyw2pgjg1no?at_medium=RSS&at_campaign=rss) |
 | Why we struggle to protect the young from conspiracy theorist parents | [阅读全文](https://www.bbc.com/news/articles/c749d9557j2o?at_medium=RSS&at_campaign=rss) |
 | I'll change the monarchy when I'm king, says Prince William | [阅读全文](https://www.bbc.com/news/articles/c20vyjevxe3o?at_medium=RSS&at_campaign=rss) |
 | Russia targets UK military satellites on weekly basis | [阅读全文](https://www.bbc.com/news/articles/c4gkyl1j6n9o?at_medium=RSS&at_campaign=rss) |
-| Trump wields axe over 'Democrat Agencies' as shutdown blame game rages | [阅读全文](https://www.bbc.com/news/articles/ckg201rnw2zo?at_medium=RSS&at_campaign=rss) |
-| TikTok recommends porn to children, says report | [阅读全文](https://www.bbc.com/news/articles/c708v7qkeg1o?at_medium=RSS&at_campaign=rss) |
-| Reform Send system now or face billions in extra costs, ministers warned | [阅读全文](https://www.bbc.com/news/articles/czjv2rk9yjvo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
