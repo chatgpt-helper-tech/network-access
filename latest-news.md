@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 02:24:06（北京时间）**
+🕒 更新时间：**2025年10月05日 02:36:59（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| More than 400 arrests at pro-Palestinian protests in London | [阅读全文](https://www.bbc.com/news/articles/ceq2e9x19g8o?at_medium=RSS&at_campaign=rss) |
+| More than 400 arrests at Palestine Action protests in London | [阅读全文](https://www.bbc.com/news/articles/ceq2e9x19g8o?at_medium=RSS&at_campaign=rss) |
 | Shock in Gaza as Trump appears to welcome Hamas response to US peace plan | [阅读全文](https://www.bbc.com/news/articles/c15k199j1x3o?at_medium=RSS&at_campaign=rss) |
 | Damage and disruption as Storm Amy hits UK | [阅读全文](https://www.bbc.com/news/articles/c0lky9nn948o?at_medium=RSS&at_campaign=rss) |
 | The battle is on for the Conservatives to show they matter | [阅读全文](https://www.bbc.com/news/articles/c864dzn827xo?at_medium=RSS&at_campaign=rss) |
@@ -29,10 +29,10 @@
 | Body slamming, teargas and pepper balls: viral videos show Ice using extreme force in Chicago - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxONmtQamJOOEhwZTJURlFRZ3U1ZVdZMzItcUpONUZiWmkwOWFYSWJJcmhydGdENHdSY2gyOVZ0Q3FXaGxGdktQRGduaXAtWGVCQ0R0djFUNmc5UE04MjM2QTRoWDJIeWJhanBFYTY3SzlIMS1nS1VocmxRUnRiQnp6M0ZiMWt2YnVqMUx0UWxoaE5JSm9QQVNjeTA0WTk?oc=5) |
 | Democrats’ defiance on shutdown shows a new, tougher approach to Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeFlIal9SVEw0RzNQY0xUNWRGMW52VUQzNXZsQy1iZFZvclJ0UmxMYy1neVNfX3VTVVdObTNXNTJYX1VuWlRJTEcxaTFBT0ZYcjBYUmJNVWxkSkVmSExfQloxR0lxc0lLcjJuVld4T2Y2SkR6djB0WVJKU2NrWVgzRWgwWlZMaTMwZ2lmdUYwdw?oc=5) |
 | Japan’s ruling party elects Sanae Takaichi as new leader, likely to become first female PM - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQbTlXRkFLT3I5RVBqSmpCWjc4c1oyeTBRSUJOUkI3ODljck52ZWp2SURFZWVRenRkdGtBaldBRTJ0UlRDZ2c1ZmhaOUEyUnpQeVpBcG9GOExDdzBNVEZLVUE0V2tBcU8xb2FNQm1ZZ0FwRGhxLW5WMEw5cFlGNENRV2paYlBZUQ?oc=5) |
-| Democratic candidate’s ‘abhorrent’ texts threaten to shake up bellwether Virginia elections - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOSkJiTW11MVhxak5Gcng5dXRJVHdfX1dfVXpTazQyUnZWdnIzbnk3Mzk0YXhiNGQ1N3d0VElVS0ZSdEVRbHBSUElHUWpTOGNVNmZfQVdBajVUMlRMX0E2cmZ1WW1XUTFGeTRKZU9mbUVWNFY2Si1vbmJPRjhuNE95RDRnT1JKMUdkYnFKVA?oc=5) |
+| Johnson rallies House GOP after he calls off votes amid shutdown fight - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOU0U3d1VFTU1PUzd0SG9zVmZ3VkJmYU9HNWd2R1VXMUV4N2FqcTl4UWxCZ2R6cTFvWGlfWVhfaldoMW5Da1dXYXFzamlma1oxd0JCeXNJUlpuT19PYnYzWHA0VFhaVW1kQmRQWGg2Wjh3Mm1MTUNKZUp3dmhkTF9HcWZMRQ?oc=5) |
+| Virginia attorney general candidate Jay Jones under fire over resurfaced text messages suggesting Republican should get "bullets to the head" - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQa0lHcGtONm1xS0paanF2MV9mV1ZWWTM1OFFBc0FHOW1QdlFEQS1TbHpMZG45eUVmTldDc0ctRzVLTDA1UGFlREZqQnQ5S1I4TUZrM3hCeUJJOVFQMVJDb2x1ZDNlY1BISW8waUNrekdONG1GaHAzaXFiWVVfdGZUaVk1bFpydUxRamcxRXdfQ2x3Rmh3b1I4Y25DYk9FSFc5eHZwMVA3RXBWcHRGcW1RSFZYMGpRRGQtRl9WaW1LcUVrUdIBVkFVX3lxTE1UdkV2dXFaa2w1bjRzX01ISVZCUE1udUt4cTNIWVhFU29SUFZEQm9TWU1qOV9CMWFhQ1Y5UkZ5akExeWNqY2kxZlNIbmJNMDIwTFNXb0x3?oc=5) |
 | How California struck a landmark law to rein in rogue AI - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNZU52dk9vTDExMGxBeG9fTDdwQmhlbU9RQlZtRDI0Xy0xRlIyQldfYldYYndEUHJwam84RHhqQ2NoZE5zclA4UFJTeERVSFJ2VHhYdWl4U3g4VlV4STFnNVNyVWFTQW8xS0U2RGlZVXJscGZSeFlkZWliNjhHTmJYMjUtRUktTlk?oc=5) |
 | Simi Valley resident gets over 8 years in prison for attempt to kill Justice Kavanaugh - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNUUJSVW1kUUFTTW5ydW9DOVYyZV9lSG5UQlllZGJ6cGFjQzdVV2ZTdXNJSVp2cTV0Mko0Vm9LeXVCVDdaaUVNUU5LSVUyNEgwTzVZODFmSW0tRVZQTFppRzRtRzBtVUlxb25JQ3BESlduanFoTUJfZHNuek93ZEVtY2RnM0Y2dkhVR0lDeWhaLW1Rb2V3OEY0dmxkV2Q1VWhWa3h1NWFva0w5WE1IaGp6RzhPc2J4S0dpZkk4WGthU1VzTnVqWHhZUGxrSDhlcTh0MlBMWnNxMnI3WDFKWWVj?oc=5) |
-| Trump administration offering some unaccompanied migrant children $2,500 to self-deport, according to memo - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNMkdjMUxVNGVQWWZ6Y1JEMGhvMXp4cXFlSHRSRUEzMVRyS1FjSUsyZ25NMzh1SVBmQUdCaDVwem9lbjlEYkk0TG9KNDFQaXBuWEV4ZEFuVkc3YnpqX0pwSS1RQ3VOSnVFdGRrYk9HRy11M2hKR2xSWmlMVFJQY2ZpRjRJcXRjNVhvV2FrUlZZNGMtcHlHaFVpQ1F6RFlMTV9iQk5sdjZvbmVZWWlnN2JVdlBseFQzOTlBd3fSAVZBVV95cUxOWWtuT0Y4UW0wU2xKYWlsTUhlSFJNZU5hVC1sdVZkVVNreE0xTUJJUVZnbzRxb1ZRSDg1RjFpYk4tTW5uMjZvT1drMFNGYm53QkZVWWxMZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
