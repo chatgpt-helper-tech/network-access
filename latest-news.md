@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 05:37:42（北京时间）**
+🕒 更新时间：**2025年10月05日 05:49:31（北京时间）**
 
 ---
 
@@ -12,8 +12,8 @@
 | Hundreds arrested at Palestine Action protest in London | [阅读全文](https://www.bbc.com/news/articles/ceq2e9x19g8o?at_medium=RSS&at_campaign=rss) |
 | Tories pledge to remove 750,000 migrants under borders plan | [阅读全文](https://www.bbc.com/news/articles/c708g5x2yqzo?at_medium=RSS&at_campaign=rss) |
 | Damage and disruption as Storm Amy hits UK | [阅读全文](https://www.bbc.com/news/articles/c0lky9nn948o?at_medium=RSS&at_campaign=rss) |
-| Teen jailed in Dubai dies after London police chase | [阅读全文](https://www.bbc.com/news/articles/c3e7yyjw77qo?at_medium=RSS&at_campaign=rss) |
-| Billionaire populist Andrej Babis' party wins Czech parliamentary election | [阅读全文](https://www.bbc.com/news/articles/c62qezmr92lo?at_medium=RSS&at_campaign=rss) |
+| FBI agent suspended over refusal to 'perp walk' former director | [阅读全文](https://www.bbc.com/news/articles/ce8052nz9m7o?at_medium=RSS&at_campaign=rss) |
+| Environment prize nominees 'heroes of our time', says William | [阅读全文](https://www.bbc.com/news/articles/cz08591znr8o?at_medium=RSS&at_campaign=rss) |
 | Hundreds of extra police on streets after synagogue attack | [阅读全文](https://www.bbc.com/news/articles/crkj50gd217o?at_medium=RSS&at_campaign=rss) |
 | Watch: Old Trafford's minute's silence for victims | [阅读全文](https://www.bbc.com/news/videos/c89dnyz95k0o?at_medium=RSS&at_campaign=rss) |
 | What we know about the attack | [阅读全文](https://www.bbc.com/news/articles/cd63p1djgd7o?at_medium=RSS&at_campaign=rss) |
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump urges Hamas to 'move quickly' on Gaza peace plan - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9PWkRZM3Y2bHc4NDZwSkU1MUNpeEo4SmtUcjFEQlZMeTJpX2pvT3VoYTd1amlrTEZTT0dwcXFTamtyWWhqTGNXVWNEblA1MkpTQ1dENFVzN1hYZUs2Y1N6WkpFVGFZYVhfbjdCa2pfanRVYTJtTnRRUDZhclM?oc=5) |
-| Trump to federalize Illinois National Guard, Pritzker says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQNWxPQTBCWjRMSEhTNUtHd3hCV2s0YTBtRXlIVV9Ybzd2bnVmZFVxQzF6VHB5eTBzOE1JaVNVYWxfenlaOU41eldkMzJTUHNyYkpPQ3BpTnRrNDRtMXpPNldOMFlVWjMzYWFqNnlfclJkT2RJMWRRM1c3LVBjRG5QYVFSQ0Z0QQ?oc=5) |
+| Homeland Security requests National Guard to be sent to Chicago despite protests from local leaders - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPMGRHMWoxXzM0TlJFOFpELUF5aVNfWW9GZnNiNE1rQ0NaWXVRbXdnTlF5VlpFQlhIRmdJTUFQOVRBZTBnb2J4eWNlSXZBVTRIN0ZMNDhkWEg1bi1kV1d3a2w5U0VPYVIzSWxIRDdJWEpUeEJiOFhOd3VhSmh3VmhEOTRqcjBWQUthTHh0U25wTktMazFVbHE5MFpwQ1JtVHlFcC16cGV4VG5xVmpDZFpnWg?oc=5) |
 | Federal agents shoot woman in Broadview after allegedly being rammed, boxed in by cars, DHS says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPMUkwT1RCa3hhZnRWYzZSZnkyVFJGY212aWl1dFYwSy1NQ1hyVWNyNDY0OTJvcllvLVl4X1pyd3VKS2VUQ2ZSZ2dBUFBnTGZHam0wMDBIXzJFN3owZVA0NlcxRjRuNXBKT3JhelJST184VU5sdW9mNDYzOG5qZHBmcEpFa29pZTNZcDUxdDN2dG8?oc=5) |
 | Mike Johnson cancels more House votes in escalation of shutdown strategy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQNXk5TFg0ZHhvanZ1WHpiZTFDRnBQLWZFejNsNmEtcU9uUDQyVWw4Rk43UFFRVnlvay1YRWpGQkhobHNyZ3YzWTZ2bmdNMWUyMURmalhvbm5Jakx0bU9TS0ZiRTRibGE2d2xjNEFsdHp3eE5YbkEyWEo1bHhLck9EV2Jlbw?oc=5) |
 | Time is short for an ACA premium fix in the shutdown fight, says GOP insurance leader - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPVnNvczBfUDkxSFRaYU9LVk5ab0lkei1nWC1CZExZUFdNTW9xR2xZdThEOWNHb1ozUUJRYVl6aEU1bVVuX3c0eW0tbi1tVC1kSWxvOWdLVUhwY3hoTjlwZWJsSDJNUHdYaWtSMmpIM2J5bGNJeTlBVzdXVE85cXdQUEZOVGhUYlhYcFU3OFBYS1BMbHVqaG9adzJHNWZaVGh5TWNoN0wwM3M1ZzJPMy1xVXVjZHQ4cTdJaU1mcWNuUQ?oc=5) |
