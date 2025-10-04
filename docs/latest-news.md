@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 05:13:10（北京时间）**
+🕒 更新时间：**2025年10月05日 05:24:04（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | Exclusive — Trump on Gaza deal push: "I said, 'Bibi, this is your chance for victory'" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9UaHdvMXhQcG1IVGtOOUYzYjVpbldKZWhKYnk0M1ZGMkJMQV9WMFdNdHVuaGEyZEkzQ1ZVc2VyX0l3MXZ5RnEzLTNsMkZ6VlBKNHZrYm1zRC1idDdBbDJUSGkxYzRMOTVDeDBPYWwwZFc?oc=5) |
 | Trump to federalize Illinois National Guard, Pritzker says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQNWxPQTBCWjRMSEhTNUtHd3hCV2s0YTBtRXlIVV9Ybzd2bnVmZFVxQzF6VHB5eTBzOE1JaVNVYWxfenlaOU41eldkMzJTUHNyYkpPQ3BpTnRrNDRtMXpPNldOMFlVWjMzYWFqNnlfclJkT2RJMWRRM1c3LVBjRG5QYVFSQ0Z0QQ?oc=5) |
 | Federal agents shoot woman they say 'boxed in' authorities in Brighton Park - WBEZ Chicago | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQeHJFdHkycW90c182UVNTempHWm14UG1NNjU1b2dFaFhuQkhkc1ZqemRrQUlqTzJLUE9QN0tKTzZtS2lhaFlxMGZVUF9QOHhFbEJpYTlEakYzVnluS0xnZzdXZ0x1YTM2Q3ZMdDZOZ0tKR3phRnFMWnIxM3E1TlpFV01QS3AzdU45VDVsdmc0MUpMRGtXY1hLc05HYUhKWFRHNWgwMEd4Yk1nUDFtVUl6VUJPc2dPTWhq?oc=5) |
-| Mike Johnson cancels more House votes in escalation of shutdown strategy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQNXk5TFg0ZHhvanZ1WHpiZTFDRnBQLWZFejNsNmEtcU9uUDQyVWw4Rk43UFFRVnlvay1YRWpGQkhobHNyZ3YzWTZ2bmdNMWUyMURmalhvbm5Jakx0bU9TS0ZiRTRibGE2d2xjNEFsdHp3eE5YbkEyWEo1bHhLck9EV2Jlbw?oc=5) |
+| The GOP says it’s winning the shutdown. Some fear Trump’s cuts may change that - AP News | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxQSTlIeklTRkIzR1RORGhzcU1tMG9xN2g4RmJMdTJtNzdkMVFsLTRHYmFvSHN2Y2NSOWVVay1UakstcnNVV08xd2JTZ0lfTnFnZFAzR1U4NWl1YTAybjNLU3NFMTdrX05tbHpfbVRJN01tRmFWMkR0cWdBVVplSHRqNDZ1OWMyLUxZbHZwNzB5UlViZXl2RFJYN2x0SWdKbnhNdi0xMVhBWk1TNXlObzJ0R2xqdmFTUFh3NzFTUWRValhLM3BMLVE?oc=5) |
 | Time is short for an ACA premium fix in the shutdown fight, says GOP insurance leader - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPVnNvczBfUDkxSFRaYU9LVk5ab0lkei1nWC1CZExZUFdNTW9xR2xZdThEOWNHb1ozUUJRYVl6aEU1bVVuX3c0eW0tbi1tVC1kSWxvOWdLVUhwY3hoTjlwZWJsSDJNUHdYaWtSMmpIM2J5bGNJeTlBVzdXVE85cXdQUEZOVGhUYlhYcFU3OFBYS1BMbHVqaG9adzJHNWZaVGh5TWNoN0wwM3M1ZzJPMy1xVXVjZHQ4cTdJaU1mcWNuUQ?oc=5) |
 | US Border Patrol raid sweeps in citizens, families as Chicago crackdown intensifies - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPckxoUE53Z29JR1JoX3QwN1dvZzNWNER6TVdpY2tLa002NEZ1TjctcGhpOUlKcGVMMi03OXpHNHdRZm1GM3FZaHZaOGdhWTZYdFVpNFFMUFB4WUc0UmtfelJqa2ZLMzM3Q19vSU5UQXhEbzdGNzFiV0dEYVk5b0tObWdsUUI3VUVxZDZEamE0eC14dkdheTkzR0JsbndaVWVmWEhQc2ctWXJPNGtNSC1IamZybk5Cb2ZSdWxCeVhn?oc=5) |
 | More than 300,000 Venezuelans at risk of deportation under new Supreme Court ruling - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQMFZmZ0cwbTNmQ0V1MVRxTW5BUzJZVVBuZ1ZfUThzeV9wWVF5Q3VpeGZVZ2t3QTJzMVpaclB5VUkxcHl3UWhEcEthWUhfcE9tcldtOTBIRzVhV2VjS0ZEa216LWZ1V0ZYMzh5eWY1VlFWUjNhcmItRTlJdVpEX1FDSUFBTU1FVXNEUHc?oc=5) |
