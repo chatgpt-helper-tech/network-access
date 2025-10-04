@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 19:00:30（北京时间）**
+🕒 更新时间：**2025年10月04日 19:12:38（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Shutdown standoff not about whether Democrats or GOP 'win or lose,' says Sen. Warnock - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQWmJrbGFjSjhqc2ZVR1FYOV9faXdTTW9Hck9GTlh4bkJlem1oeVJVVThGd1MwZXZza01PVkVHN0JRaU9kOXozdDR3Y1dkZEtaMFRHTEUyaUZocHQxVUJlQV81MlpNay1uLUdTR1pvUklPbS1rWFVGMTV2ZTFsaTRMcXRHSXpKYWg0VEM5ZkJHOU5HUnRNVDRYUlQ3M1ZSSHc?oc=5) |
 | More than 300,000 Venezuelans at risk of deportation under new Supreme Court ruling - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQMFZmZ0cwbTNmQ0V1MVRxTW5BUzJZVVBuZ1ZfUThzeV9wWVF5Q3VpeGZVZ2t3QTJzMVpaclB5VUkxcHl3UWhEcEthWUhfcE9tcldtOTBIRzVhV2VjS0ZEa216LWZ1V0ZYMzh5eWY1VlFWUjNhcmItRTlJdVpEX1FDSUFBTU1FVXNEUHc?oc=5) |
 | Exclusive: Trump is sending California National Guard troops to Portland, Newsom says - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNdWNFcnhER3BvbC1vM0Y4VnRUTTFhTktlWUxNQ1pmLVpUOUNVSUw5VTN1cnJiWU9mOFJma3ZDY3lYbV90LU5GcFVGcjBpcFQwb3JVamlicHptZG5kc1poNW9vbFZGWkFHZDRQZ2RvemdqdUVlMUpkM2xheXgwU0d5WWEzb05SUkV1bnFKckF0c3M4bFBkaGZ3UXpTNmJleG8?oc=5) |
+| North Carolina governor signs criminal justice bill into law after Ukrainian refugee’s death - CNN | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNWWR2R2d2RjRaWDB4QnQzT2ExUFpVNHpXaDZ0aEhBMklDYlUwTUs4ejF0YTN1dzRJemlSSS1COU56Z0xRNXBFTnhWS25INFZTeG1Pem5mZUc4Qk9hOXozSEt5cmMzWk5jdzR0bHA5MzZhZnpUZ1FfdnRNeGN5ZFVfc3M1cHVXRy1IYlN4ZDhkbDVrbExvaGlLUTVuS3RTdWs?oc=5) |
 | L.A. City Hall evacuated after vehicle crashes near steps; driver in custody following standoff - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPeEdpWTM4VVJka1l0WUpQOUwyekdpVGM1em9mcTkxOEFCNFpmQWNxcF9qVU13T2s2eFpNdFpQaXlfb1h3cnBVeEdtMzZXT01jVEM0TTAxRlJrc3hNNnBnNWxFTXdVNWtUSWhmQ0ZyeVF4RDhPSElqWnhGMFdFandXWGNZQnIyMTRMQjloOEUtNEkzc0pqV2lhYnZlZHM1Qk1YaGJkWXlqbUktY0FkSWtVTE1RODY1QVdZZzZybjBfTGc0UU9yNHc2T2s0WjJScjBzZ2c?oc=5) |
-| North Carolina governor signs criminal justice bill into law after Ukrainian refugee’s death - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOS0Z3cUF1TzUtSDZRVUdrTGR4MkM3bHNlLVk4ZDFzNjR6RWtNamV4V3g3Z0lFUUFkUlppZWdvR3BWbGlnVm1FV1dpVWxrZVFBazdSUl9mTnU5dHF2ZVhEX1FtWGl4b3ROWkN2WjhoWHdVVmZjZXUtbFV0S0VpOVVrQmtCQ08wcXpGWGNNNEczVmFGQlJ3VVJkRlBreVp0c3RfQmVVTUhqNzZPbFNjUER3?oc=5) |
 | Trump undoes $187 million cut to NY security funds after GOP outcry - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPN1FaZ0h3bVI3MVdrOTBYQkNiS3F1Rkh2ek1sT0pwN3FtUXViNjlEWThiVWpYTk9NcmVVSDYyeHFsdWV0T3Zwc3Fac1RENUFucnE5RnJrcTh4aGpRVXJYRGV6U1V3NVBfZjRzMElNNUZQTnRkTkFxd3NQYkRsMVlKOThDVU5IMDhRUXN4eQ?oc=5) |
 
 ---
