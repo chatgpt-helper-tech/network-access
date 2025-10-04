@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 12:01:46（北京时间）**
+🕒 更新时间：**2025年10月04日 12:13:06（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | Karoline Leavitt says White House must cut spending due to shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQUFYyb2xiek93ZHFsc3htNG5pVnAwS2VfSXh0LWFZQndpRWlOOHhselBXMmVleE9OSXVPNnFzZURuWFp6c09vRDFPSmZLdmNMcUlpeUlpNFJzdWI5YWxvWEQ1MUhYcTAyTlVnbWUycW9wNHJCOXRYOGhhU2xLQUVlVlA1WHdIRXhnUDZ6eUp3aGs5eDlZYXRPOQ?oc=5) |
 | House GOP cancels more votes in escalation of shutdown strategy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQNXk5TFg0ZHhvanZ1WHpiZTFDRnBQLWZFejNsNmEtcU9uUDQyVWw4Rk43UFFRVnlvay1YRWpGQkhobHNyZ3YzWTZ2bmdNMWUyMURmalhvbm5Jakx0bU9TS0ZiRTRibGE2d2xjNEFsdHp3eE5YbkEyWEo1bHhLck9EV2Jlbw?oc=5) |
 | US carries out new strike against alleged drug vessel near Venezuela - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOc1ROZzA1QVJ4ejJGdXlWcHZtcHo2YjhiQlFFMXFkOUg4U2xOTEtsLUJ1NHh0b0pqSVYxNDJGZV92ZFNlOVY0ZXVONkdPY1B1UFUtWEw2X3VoU2RVREFWanhtTzJ1V0hfZmsydnlZUWlzSHNCeGRraHZmaWlfRmhtZGE2a3JwUE5KVFpWVzAtRVAtRS1Wa3JOaklaX0h4alN6WFFXeGVWUEJuUWNHejBCajdyZFpfM2pRUE5z?oc=5) |
-| Trump called for troops in Portland. Here’s why Oregon’s governor was ready - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPUV9zNWt5ejlIcUFubVFrdGFacjJFVlc1emFpLWgtV1lJS2tKdWNMX09Xa0RzaWxjSlducUp0Qi1ZR01NbFZRTGY4dHpkZDB6ZnlrbE02N1ZnaHRvckVET3Z3UmxXSzVPbTdkUk1sZVZtb2x4UmVwVkxVSEtBVzdMNFlaaDZRUVV0c29TLVA5b0h1c0lKVnJQYmhIUjl2ejJIRUxOU0FIdUFZaDhZZVB5T0E3eTZzcWFtVmwzdnFR?oc=5) |
+| Federal judge weighs starkly different views of Portland protests in hearing on National Guard - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNNl85dEl5STZmSWlVMzRKaWhPckxSRGJRY3BqN2owaFNad3ozMUVXbFR5aEJ3eVFWYjdUcjlqSkt0ZWMtMENRTDZmQWc4dFE4cE1ZNFlnTWFVYUFMUzlCdnhlTFlJY1BidV8yTXcxZy1oX0l6MWRxTnpzampWaWRYdnFWNjhWeThXUGdPSXh4Z2wzZm5EY21WNlZOU3dvSlhQ?oc=5) |
 | Justice Kavanaugh’s Would-Be Assassin Sentenced to 8 Years in Prison - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPT3lVQnlGSkFmb3R4X2RKd0RIS2h6UVFkZllkQk9hQXIzcjhRWnd3TFNCQkhnOXQ5emF6QmYzRUxNMDlGY3dwV01RY19OOGxEcjllRnU4cnpScS1nRXJoN3RoT1ZQNjBHZmkxN05nTjBQQ1k2UlkxajJjMG9KemJHVFp3LV9SMkJVUnhQYUFVU1NyWjg?oc=5) |
 | Newsom threatens state funding for California universities that agree to Trump demands - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPTFgxaVJzdGx4LUZEWUNzMDNJRkc3UFUwODJiSGxZU0NESi1ZUENkQ2ZLaWUzTUN2bjJ6SWRCWEhhR0pqcVAyY0FCQzVYYm1Kc2x5TldIRC1JazVsWmJHTDZ5b0N5OEhUQjNoQVBZbmlxam1WSEVFV3d4eXRPMmRlV2ZpSWs2R29oU1pQLTBMSll3Zw?oc=5) |
 | Trump undoes $187 million cut to NY security funds after GOP outcry - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPN1FaZ0h3bVI3MVdrOTBYQkNiS3F1Rkh2ek1sT0pwN3FtUXViNjlEWThiVWpYTk9NcmVVSDYyeHFsdWV0T3Zwc3Fac1RENUFucnE5RnJrcTh4aGpRVXJYRGV6U1V3NVBfZjRzMElNNUZQTnRkTkFxd3NQYkRsMVlKOThDVU5IMDhRUXN4eQ?oc=5) |
