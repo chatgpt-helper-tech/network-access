@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 23:13:45（北京时间）**
+🕒 更新时间：**2025年10月04日 23:26:00（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump tells Israel to stop bombing Gaza after Hamas responds to peace plan - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1vUzN3NUNhdW5KdGZNLW0tdndmRk0tU3p3aDhxMkdHLW84YVJCTGR0RnFvTl8zVHNLU090NTBfMEpzN3JFbUQ1VERoV1phR1RRX1g0QXhnWmk3ektQTFdNZFBDcm8ydERPWVI3U01vaGZfMHR5cy1jTm5qV1NYLVE?oc=5) |
-| Sanae Takaichi is set to become Japan’s first female prime minister - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPcGZDeVZMM0NSc2JuejhGY3VQOHk0bFhrR3daZFdubXVKa2ZRMnN2OVhzZGEzZE52Um5mWFJtamRpa180b28xRlRVa2VueXBwU0ZKYS1jMGRKN01lN01KQnlLcVpGR3VxbnpMN2xub05TRExhbHB4WmpEREw3aHBGRC11Z25aRkF5OGpwbw?oc=5) |
+| Japan’s ruling party elects Sanae Takaichi as leader, likely to become first female PM - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNaDZBOGt6YlJaMEhQWTkzbF8zX3ktbGVBbDhiaTJPZ0JFMTJsWUxRajk2M3ZNWVoyV2hiWGY2R2h2YWRjY2l0RE5lOWJpbWM4d1ZTWkhqN1ctenppdnFSRllZbHdWbFVJcFNIMDdSdzl2THB1dHoyTHNheEw5VHhVZk5ZU3gyUnYtUHdwR3VVMXZYdGNIdGh0M3laNkg?oc=5) |
 | Israel halts strikes in Gaza after Trump's call to stop the fighting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOV0l0eW1melhVdVBTd3BVdGpMeXFIWkpYY0h3a19KWVFYY0tjblFidFA5T3UtLXR4SEVZMTZLT2RFdDdXaTR3Qm9sNllIcHVXYmh2emVSNHFDSW1vX3QxdjRLWnNyTmtnM1NDc3RzSi10YjFVRUFzMmxhTm5yQ3ctQzJR?oc=5) |
 | Colorado company may close after Trump administration cuts funding for nearly 3 dozen energy projects in the state - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQMHA0SGZ6OVppSzJTQnlTT1I1RFktMUZmWk9oZGhDT2FvLVZ6eG5lNmNxb1ViTmd2a3ZLYm1RSDFLQk5lS2tiWDFKNl9UcHduLV8wVXZVY3BJamprQjFPeDZkU0RmeHFYUGZoVTYtRkNEc0lwRUdFQUpnQTBxa3o4NVdUcVJsb21haGc?oc=5) |
 | Apple removes ICEBlock app after criticism from Trump administration - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPMUJGMzAxaVVYS1hxMVpwWUZ1cHdXOExrbk5IUlgwLWUxdWwzcDZnTW56dWZTY0JSdXZsQ3JSUmJSRjVHRWdOb3c3WEx4cUxFeUdYblRZNjZBVXBxMjhWcGc1Zm4wQTl1WnY0WF9VbXlzR1NuUkFuNzVRVnJPdGh3eEpDSUFQN193aG5fdFRpT3VUYU1BdUYwaVd1U2pnMFhpTEFDOWpPd27SAVZBVV95cUxOSmxCalFMcjg5SnBFRDBfcXU5aGNmMFdyalAwckQ0ZzIxSHdFZjUyQ2FrRzhuWlo5elo4LW5VSFgzMjJnY2VreFZLdDl6X1Y2eFJoRkl3dw?oc=5) |
