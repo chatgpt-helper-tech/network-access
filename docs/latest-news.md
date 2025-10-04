@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 14:13:29（北京时间）**
+🕒 更新时间：**2025年10月04日 14:24:18（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | US Military Strikes Another Suspected Drug Boat, Killing Four - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQM0tTU2dmUWt3OFdSWWRrbkk2aWozYTFIUlNiVkVWVUpoVTNiVDRmdUxWMDdVbFV5NzBtWFpWZDdBNkRfaDZ3dV9saFAtWUdBSndYLTdRUnd2YTNTUlcxdmRnUDdTR2ZCSGhUXy02YXlKWGY3aGtmNTh2Z01zdFdIOWNidXBManhvTENTaElvYUxsOV9jbjZwbExpUV93YW8taDFXUFpRMm9IekZuVjg2Zw?oc=5) |
 | House will stay out of session next week as Senate works to solve shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOQnR3Q1k5OWRkWTZsRTBYTW5CM0xBdWxEUkpxUm5jN19kWHBZTWdWUWVUOXd5WWF2RjJLa3lFTzU5aElrVVFPMVhUUmdfbXNLLVJMQnNMTG1BWklOazU4VFZpcHRYaURqNTE5ZlRjR0psRmh2Z2NBaTFxcVJYbFBwNXNPdHNXS1hiWjNfLXEyam1xcDZIbENPbUl0ZEhoUQ?oc=5) |
 | Federal judge weighs starkly different views of Portland protests in hearing on National Guard - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNNl85dEl5STZmSWlVMzRKaWhPckxSRGJRY3BqN2owaFNad3ozMUVXbFR5aEJ3eVFWYjdUcjlqSkt0ZWMtMENRTDZmQWc4dFE4cE1ZNFlnTWFVYUFMUzlCdnhlTFlJY1BidV8yTXcxZy1oX0l6MWRxTnpzampWaWRYdnFWNjhWeThXUGdPSXh4Z2wzZm5EY21WNlZOU3dvSlhQ?oc=5) |
-| Driver crashes into LA City Hall steps and barricades himself in car, police say - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1qXzhzMEEyRF9VejAtdzVHWnJWTTdmX1VNVVh0R2taMm1YcHUxSFdoV2Y1ZTZLbzhrYWViV0xqa3ZkZWtfVDFVb2xqOVhuQ21MVGNRdW1lV0lyR3lHSHdaeUFSazIya0k5QTFmRVZ3X3VxTWwt?oc=5) |
+| L.A. City Hall evacuated after vehicle crashes near steps; driver in custody following standoff - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPeEdpWTM4VVJka1l0WUpQOUwyekdpVGM1em9mcTkxOEFCNFpmQWNxcF9qVU13T2s2eFpNdFpQaXlfb1h3cnBVeEdtMzZXT01jVEM0TTAxRlJrc3hNNnBnNWxFTXdVNWtUSWhmQ0ZyeVF4RDhPSElqWnhGMFdFandXWGNZQnIyMTRMQjloOEUtNEkzc0pqV2lhYnZlZHM1Qk1YaGJkWXlqbUktY0FkSWtVTE1RODY1QVdZZzZybjBfTGc0UU9yNHc2T2s0WjJScjBzZ2c?oc=5) |
 | Trump undoes $187 million cut to NY security funds after GOP outcry - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPN1FaZ0h3bVI3MVdrOTBYQkNiS3F1Rkh2ek1sT0pwN3FtUXViNjlEWThiVWpYTk9NcmVVSDYyeHFsdWV0T3Zwc3Fac1RENUFucnE5RnJrcTh4aGpRVXJYRGV6U1V3NVBfZjRzMElNNUZQTnRkTkFxd3NQYkRsMVlKOThDVU5IMDhRUXN4eQ?oc=5) |
 | Supreme Court will let Trump end protected status for Venezuelans for now - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOT2pRRVgzdXAyZFU5bVZHYUtDRkNkRDZEWFdPN2NZR3M3NnVhUXhlQ2ZLU0tzV2pxaUNHUGlSUXRGWXlwQVdtYlRwREZ4LTRBamZVdW1NeV9sLUQxd1V5NWhWTUxfZmtPMi1QU1VwUUxlR2RBQ0ExR2pvbVhsNmFwemM0Z0VnT2dOYzRsanZpWUhuWWlnZWVB?oc=5) |
 

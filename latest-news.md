@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 14:13:29（北京时间）**
+🕒 更新时间：**2025年10月04日 14:24:18（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Karoline Leavitt says White House must cut spending due to shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQUFYyb2xiek93ZHFsc3htNG5pVnAwS2VfSXh0LWFZQndpRWlOOHhselBXMmVleE9OSXVPNnFzZURuWFp6c09vRDFPSmZLdmNMcUlpeUlpNFJzdWI5YWxvWEQ1MUhYcTAyTlVnbWUycW9wNHJCOXRYOGhhU2xLQUVlVlA1WHdIRXhnUDZ6eUp3aGs5eDlZYXRPOQ?oc=5) |
 | US Military Strikes Another Suspected Drug Boat, Killing Four - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQM0tTU2dmUWt3OFdSWWRrbkk2aWozYTFIUlNiVkVWVUpoVTNiVDRmdUxWMDdVbFV5NzBtWFpWZDdBNkRfaDZ3dV9saFAtWUdBSndYLTdRUnd2YTNTUlcxdmRnUDdTR2ZCSGhUXy02YXlKWGY3aGtmNTh2Z01zdFdIOWNidXBManhvTENTaElvYUxsOV9jbjZwbExpUV93YW8taDFXUFpRMm9IekZuVjg2Zw?oc=5) |
 | Federal judge weighs starkly different views of Portland protests in hearing on National Guard - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNNl85dEl5STZmSWlVMzRKaWhPckxSRGJRY3BqN2owaFNad3ozMUVXbFR5aEJ3eVFWYjdUcjlqSkt0ZWMtMENRTDZmQWc4dFE4cE1ZNFlnTWFVYUFMUzlCdnhlTFlJY1BidV8yTXcxZy1oX0l6MWRxTnpzampWaWRYdnFWNjhWeThXUGdPSXh4Z2wzZm5EY21WNlZOU3dvSlhQ?oc=5) |
+| L.A. City Hall evacuated after vehicle crashes near steps; driver in custody following standoff - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPeEdpWTM4VVJka1l0WUpQOUwyekdpVGM1em9mcTkxOEFCNFpmQWNxcF9qVU13T2s2eFpNdFpQaXlfb1h3cnBVeEdtMzZXT01jVEM0TTAxRlJrc3hNNnBnNWxFTXdVNWtUSWhmQ0ZyeVF4RDhPSElqWnhGMFdFandXWGNZQnIyMTRMQjloOEUtNEkzc0pqV2lhYnZlZHM1Qk1YaGJkWXlqbUktY0FkSWtVTE1RODY1QVdZZzZybjBfTGc0UU9yNHc2T2s0WjJScjBzZ2c?oc=5) |
 | Trump undoes $187 million cut to NY security funds after GOP outcry - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPN1FaZ0h3bVI3MVdrOTBYQkNiS3F1Rkh2ek1sT0pwN3FtUXViNjlEWThiVWpYTk9NcmVVSDYyeHFsdWV0T3Zwc3Fac1RENUFucnE5RnJrcTh4aGpRVXJYRGV6U1V3NVBfZjRzMElNNUZQTnRkTkFxd3NQYkRsMVlKOThDVU5IMDhRUXN4eQ?oc=5) |
 | Supreme Court will let Trump end protected status for Venezuelans for now - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOT2pRRVgzdXAyZFU5bVZHYUtDRkNkRDZEWFdPN2NZR3M3NnVhUXhlQ2ZLU0tzV2pxaUNHUGlSUXRGWXlwQVdtYlRwREZ4LTRBamZVdW1NeV9sLUQxd1V5NWhWTUxfZmtPMi1QU1VwUUxlR2RBQ0ExR2pvbVhsNmFwemM0Z0VnT2dOYzRsanZpWUhuWWlnZWVB?oc=5) |
-| Hegseth fires top Navy official - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE4yMTNtaGV1dmU5TGlES0xUWmxDSDlLeEt5dlpYN0liSzhOUTFsUkJRek5WVnd2Q0tlSjF1M215UE9jTkZXSWxtQVB0dkVxT3ZpSVUzMDBpV1gxVnQtSlM3NEw4N0xmODRNbzhISWlPdkE2QXRfX3dxdXEtck0tZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
