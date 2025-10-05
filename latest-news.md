@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 11:36:33（北京时间）**
+🕒 更新时间：**2025年10月05日 11:48:49（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Trump to federalize Illinois National Guard, Pritzker says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQNWxPQTBCWjRMSEhTNUtHd3hCV2s0YTBtRXlIVV9Ybzd2bnVmZFVxQzF6VHB5eTBzOE1JaVNVYWxfenlaOU41eldkMzJTUHNyYkpPQ3BpTnRrNDRtMXpPNldOMFlVWjMzYWFqNnlfclJkT2RJMWRRM1c3LVBjRG5QYVFSQ0Z0QQ?oc=5) |
 | Johnson rallies House GOP after he calls off votes amid shutdown fight - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOU0U3d1VFTU1PUzd0SG9zVmZ3VkJmYU9HNWd2R1VXMUV4N2FqcTl4UWxCZ2R6cTFvWGlfWVhfaldoMW5Da1dXYXFzamlma1oxd0JCeXNJUlpuT19PYnYzWHA0VFhaVW1kQmRQWGg2Wjh3Mm1MTUNKZUp3dmhkTF9HcWZMRQ?oc=5) |
-| Trump urges Hamas to 'move quickly' on Gaza peace plan - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9PWkRZM3Y2bHc4NDZwSkU1MUNpeEo4SmtUcjFEQlZMeTJpX2pvT3VoYTd1amlrTEZTT0dwcXFTamtyWWhqTGNXVWNEblA1MkpTQ1dENFVzN1hYZUs2Y1N6WkpFVGFZYVhfbjdCa2pfanRVYTJtTnRRUDZhclM?oc=5) |
+| Israel halts strikes in Gaza after Trump's call to stop the fighting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOV0l0eW1melhVdVBTd3BVdGpMeXFIWkpYY0h3a19KWVFYY0tjblFidFA5T3UtLXR4SEVZMTZLT2RFdDdXaTR3Qm9sNllIcHVXYmh2emVSNHFDSW1vX3QxdjRLWnNyTmtnM1NDc3RzSi10YjFVRUFzMmxhTm5yQ3ctQzJR?oc=5) |
 | Who is Japan's 'Iron Lady' Sanae Takaichi? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FdThQa3dyZ194azJIWC1SOENyRXA4ZUJyQ3BiNURIZkFiQ2c0TmRvQlgxZDNoTXVaRms2QTF4aXUySTNPS1dSOFRsaTNXTXJNMWs5NGJhUEtZUdIBX0FVX3lxTE5QRVhvd2NhRUNZVy1aZnRPa2RPNzlnZi1KNDZ5cnJubjc2Y01IdnY2bzEwbzM4SEZFN0NPQTQyN0JZekVMUmxEUko2WGFyckM2cVRIWjJSZWhWUGpjQUw4?oc=5) |
 | Federal judge temporarily blocks Trump's attempt to deploy Oregon National Guard to Portland - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQWkdmcnVWTEdTZ0hvX041Y1ZfMm5EdUwxV3BtV1p4anZSRkVTdml0M3hPekZkOUlISHRrMGxtVDNYMUk0bmVzQzc1X2dQUWtaNURaSGUzc2NCYnBIRkE2bS1SSFFnSlgzRnpBbGRHc0RvYk9rS1U0TDdOcExUX1VUd1k3Q1hwZG9HaVhNQjdQZkpyUWVNUDQ3OXBBZ0NyaE5QbzdhZzkyUUUwd9IBrwFBVV95cUxNWVBHT01HZTlwaVhtOUdnc1RlR2hBdkJvakMwaFJldmhFeWRjTDVFNVNidlBBUEphQWcybzljekhCazFOOWVaTF9XNHFEZVdlV01IVjBmQVRjTm9neXc5cGpLMWU5RHBpM2NLTklRNUp3aEMwbFUwSE1IMWJ4MWFBTEdvYnFWWlEwVWtEZmQ1eDJKSW5WYTluaEhqV3lVNElFYndTdDZ0cExWTVpEdVpz?oc=5) |
 | Trump to Send Witkoff, Kushner to Middle East to Seal Hostage Release Deal - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQeGVnVDN1TGNOei1vZlhqNnlpeTRpNGtfSktfOE4xbC1LT0RCbmpyejlycC1XZVZTWXFtVVcxa2lzTzhGdWJIUGM4X2R5NTZxa2ppcGpzYjgtd2dTRGJycXprLVAzQW9CNWtHQ0JPXy1FbmR1NW9qNF9UcW9iNEZ5T3pyUWJiZDQ0aUNINllKaWNKUEN0YW5kRndrRi1aNl9GTHRkdmZ3?oc=5) |
