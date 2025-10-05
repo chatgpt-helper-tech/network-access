@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 17:01:15（北京时间）**
+🕒 更新时间：**2025年10月05日 17:12:16（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump authorizes 300 National Guard members to Illinois to assist with deportations over JB Pritzker’s objections - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOblpaSjhGSU5NUTRwLUgweklEYllXY0dmdWc5VFhIMzlLQVcxQkkyTm1jVDF0WnJoNzhSUGtXZVRXbzdlOXF2RkVvZEVxV2xpdDZwdm1BWWIxT3dNMlppeU84Z0NiX3VvTGJqUE9vYVhENFBENjRoYVpVaG9ndFJsYUhsMkJ3Zw?oc=5) |
-| Exclusive — Trump on Gaza deal push: "I said, 'Bibi, this is your chance for victory'" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9UaHdvMXhQcG1IVGtOOUYzYjVpbldKZWhKYnk0M1ZGMkJMQV9WMFdNdHVuaGEyZEkzQ1ZVc2VyX0l3MXZ5RnEzLTNsMkZ6VlBKNHZrYm1zRC1idDdBbDJUSGkxYzRMOTVDeDBPYWwwZFc?oc=5) |
+| How a Missile Strike Unlocked a Deal for Peace in Gaza - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxORi00OUx6M0ltUk1TckdrM0ZWRzAtX1FFMmtPVXVHMnBOUnhmcWQ4YVpsbmMwUEhEU2l2WTlINmpQdVJQYUozMkZQQXg5ODVtZHFYWk9WekxZak1idEM0c3BkV25zcHMzTGRQNW1ySWhiZlduVDBod0hPZHU3VXlETnRKUlhmeXJmb3ZZb2ZjZVlNSVY0SXMtUzREa3hZVWdNdEZJ?oc=5) |
 | Who is Japan's 'Iron Lady' Sanae Takaichi? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FdThQa3dyZ194azJIWC1SOENyRXA4ZUJyQ3BiNURIZkFiQ2c0TmRvQlgxZDNoTXVaRms2QTF4aXUySTNPS1dSOFRsaTNXTXJNMWs5NGJhUEtZUdIBX0FVX3lxTE5QRVhvd2NhRUNZVy1aZnRPa2RPNzlnZi1KNDZ5cnJubjc2Y01IdnY2bzEwbzM4SEZFN0NPQTQyN0JZekVMUmxEUko2WGFyckM2cVRIWjJSZWhWUGpjQUw4?oc=5) |
 | Judge temporarily blocks Trump administration from deploying troops in Portland, Oregon - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNTVhjSkJOdUpJYlMwTmVBRE9Ha18tR2ZJcnRWcjdKbVZuNFliemhCMmgzcGNQMUpmblFjVWgzOXhoZy1WT0lCV3BnZ2VmMGxiam9nbTB1UTJnZF81U1dWR1NRbkFXczBKMWhhSGVBZGZCYy1pR1lZa3RQZjJYYkYyUWNiV2cwNC10U2dOMTZpNDlyaHNValVya3FPX0cyNXZHUW82SFNSRlViZUtu?oc=5) |
 | Israel Eases Gaza Strikes as Trump Hails Hamas Hostage Offer - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPbTJEaFpRWGFERHNJLVR5RGtLYjZTbmc3Q3g0QnFzN1VTSGN2d1lqNnlzV0JjUXJmRFRVS3pnb3cyUDVKR0JCUkMyRlptUnZOQW5xOWcyWWQ2R1lnTi04dHJaLUFlT3h4ekxQWnQxVEI3SnNaTnBaaXRJaVo1WXZjZDFsTE0yVHB1YnhoU3ZObzR3T0tlMUNWVVczWVVxN0NkQWNuclhSUVlrUkxFVjhUX0NFcmZCMUNlRm05djVteE5yY2s?oc=5) |
