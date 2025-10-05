@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 01:49:58（北京时间）**
+🕒 更新时间：**2025年10月06日 02:01:12（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Scoop — Trump to Netanyahu on Gaza talks: "You're always so f***ing negative" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPVkZkNmRjYUdwWGVaWUxLc0pvM0w3WHdrSTByN243UWhwamh0bE9KcjF4QzRtS3diRFVJU1pMVGUxSElLVGFwbWZPSHNkOUdnbnBYVXBvUHQ3UEM2NS0yUzcyM3Uxel9TN3NIWjAwWGhLdUlMd2dRZ0o4WV9VRzJNTw?oc=5) |
-| US Supreme Court girds for culture wars with LGBT, guns and race cases - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOT0ZLWENyQl9vX3BpUWd0a2JhWGY1SHBYLWg2RjltNDVJQTdIS2xxeW5uaG82RlBzc3FnNENSR1pRY1RxTkN6MENPWUFQMnlZckJBc2tYTGlhaXU1OVRMa1Y3SjYyWG9oNTZGZl9ubzJjQlFWd2Q1THF3N3VFRTFUdERITDVKZHdMLUxMMVlrQnZFcE5IaFFrLWY5ZjlSVlVlNDFxTlBZZXgwdw?oc=5) |
 | Judge Blocks Trump’s Deployment of National Guard in Portland, Ore. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNZTVjaGVVRUtkZmZLNHZISThVRk11Z1lWQ0o4VDJZTFE5YmNHR09HRTFXanNqeno2S0E4eXZCQXo5X1VNY0RDdW9rQ2p2VkhFVjZnM25pelRNc1ZiTUNMWWpKbjM2WlBiMWMzWkFCOXBFUF9PQzJGdHNIRmZheWhDR19CeFJ4LWE4NExxMFRTd01Vdw?oc=5) |
+| US Supreme Court girds for culture wars with LGBT, guns and race cases - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOT0ZLWENyQl9vX3BpUWd0a2JhWGY1SHBYLWg2RjltNDVJQTdIS2xxeW5uaG82RlBzc3FnNENSR1pRY1RxTkN6MENPWUFQMnlZckJBc2tYTGlhaXU1OVRMa1Y3SjYyWG9oNTZGZl9ubzJjQlFWd2Q1THF3N3VFRTFUdERITDVKZHdMLUxMMVlrQnZFcE5IaFFrLWY5ZjlSVlVlNDFxTlBZZXgwdw?oc=5) |
 | Hamas delegation heads to Egypt for hostage deal talks - The Jerusalem Post | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBhQ0tKXzFvU1hrLW5MQUhWOXBCbWNVdHIwSWltUjlXYkR3dUdzQmdIbDFZNUU1SHVXdXFxRGRBbHN0My1EUkNkV1UtMDZvR20wLUR3VlFRZ3hVZkxKSnNMSU1VRlNiWU9DU2FyUU93?oc=5) |
 | Five killed, energy infrastructure damaged in Russian air attack on Ukraine - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNYjhRdHhuZS12UnViYWliU3A4ZjlITXVKQWs4OVRvWE1CTWRnVDdHVFBqNWNRS09HdnZyNHpTY3JzMFpxZEs0SXBrR0JmV2JWZWhwbmpWdldSTm9pV0JsUEpjUHotTVhOcTY2OWozOEJkODdYN3hzVTdVVDJmT25SeWtsLXAxU0RZS2FpaHlMQmxPZHZWRUxseU1vTk5WM25JVlNVU2VMVmVER3Y3VDdPSzlUcjRMQldUdHVyUGlONXE5YXJU?oc=5) |
 | Trump plan would limit disability benefits for older Americans - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPQm5sc1JxXzl0enRCdklfWXhCbE9USld0WGl4cTBoWVhnR0xsUnBYcTdSa2VYMWZzUmRYdWZlUUZ6Sm5lMk1VWUM0N055b2tOXzVzTXZWZHVtUWlWSGlNLVJDa1BOZ0tVRTF0SnhMTkhMcHJmUkpqMktCWVdzM09BbEVBSzFmMDJVOFNnV1RPLUFoc00tQ3c?oc=5) |
