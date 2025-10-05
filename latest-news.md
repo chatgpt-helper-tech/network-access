@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 16:13:48（北京时间）**
+🕒 更新时间：**2025年10月05日 16:24:32（北京时间）**
 
 ---
 
@@ -8,9 +8,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Police to get broader powers to restrict repeated protests | [阅读全文](https://www.bbc.com/news/articles/c24rmdngrrjo?at_medium=RSS&at_campaign=rss) |
+| Home secretary wants police to get more powers to restrict repeated protests | [阅读全文](https://www.bbc.com/news/articles/c24rmdngrrjo?at_medium=RSS&at_campaign=rss) |
 | Netanyahu says he hopes to announce hostage release in the 'coming days' | [阅读全文](https://www.bbc.com/news/articles/c5yqv4lz0geo?at_medium=RSS&at_campaign=rss) |
-| Shock in Gaza as Trump appears to welcome Hamas response to US peace plan | [阅读全文](https://www.bbc.com/news/articles/c15k199j1x3o?at_medium=RSS&at_campaign=rss) |
+| Hope and fear for hostage families after Hamas response to Gaza peace plan | [阅读全文](https://www.bbc.com/news/articles/cly9e6mnve9o?at_medium=RSS&at_campaign=rss) |
 | Poland scrambles jets as Russia strikes western Ukraine | [阅读全文](https://www.bbc.com/news/articles/czjvlgzmp4wo?at_medium=RSS&at_campaign=rss) |
 | 'I have your nudes and everything to ruin your life': The cyber-scammers targeting teenagers | [阅读全文](https://www.bbc.com/news/articles/czrpedexleno?at_medium=RSS&at_campaign=rss) |
 | Meghan makes surprise appearance at Paris Fashion Week | [阅读全文](https://www.bbc.com/news/articles/c1471r6e27jo?at_medium=RSS&at_campaign=rss) |
