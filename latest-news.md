@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 06:12:52（北京时间）**
+🕒 更新时间：**2025年10月06日 06:24:49（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Live Updates: California National Guard Sent to Oregon, Newsom Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTFBBUkJMdWRYd1gxUkVtWVdKdVkxUVNsb3VBQ3lRZDZzb2szMGFpOXo4TllhdHg4dDlYSGFLUWdSV1pITWt1dkE5NzNFMVNaT2pxQWtPNk9HR3VzRDZzOV9YV0doYw?oc=5) |
+| Trump Sends California National Guard Troops to Portland, Ore. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPUHFqb3FUWi1NZ19ESVhrVDFWYVdGLWNDcmNyYmxUNldyME9tcEN2eEJMa0xvRGcxX1BqbmFYbVZfM2RET1NwRWhFM2Nva3hsZ1BrWk5jUUZxQmlZLUJ2U3E3UG54OEtvNmZMZ3F5dkNRTXFUcXp4dUZGZVEzWjhpc2w0SjJINzFYZjdjY0pvZkRWUQ?oc=5) |
 | Trump authorizes National Guard in Chicago as judge temporarily blocks his plan to deploy federal troops in Portland - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQT0JTS2MyX01xaEJsVmViVlRZeThsMDFKQVV3bGtMWWxNUWs0M1o1UDNQaEVleGZTV1B2cjYyRFBNeTJ5eUxjUXlhY1kxbWpIMFdfdHZrWEFzTXhZdENXY3JVT0tFN1pZSWUxVXFnQUhRc1BIX05vSTk0enFzSTlvT1d4dk9seGNza1djN1FSd3I?oc=5) |
 | Trump says he thinks Gaza hostages will be freed 'very soon' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBmMXJtSVpIYU1OS3Atc2lnT0lUSm83UFRTMDdwQ3pFWmxyZkhiMGRGRFBFQUEyeTI4WnQ2TEUxeURLeVhTV1NydXJnSWU3NENxdi1mMEFLU2VSZ9IBX0FVX3lxTE5MeUk0cXd4X3J4TWtZbk90Z2RUenFIc19jS1ZzeWJZV2stODRKV2xDMXZiUFZYM3B4dWNYaTdwdmFtbGdxMWk3alVJYjRHYjd1TlgwZ21LZExTSEZOdy1N?oc=5) |
 | White House: Mass layoffs will start if shutdown talks 'going nowhere' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOdVdrTlJRT0ZjVk42NEtlTWdVSmk0WV9JMnFKbVBEMTdvRkV0bnE3SHhNZUtOb1Z5Tl9qcFFzOUpVVUFKQk0wMEhMUDRhM2I2U0owaXBWMVdYNTBobFkySWloT2o2akc4dnNoWk1BZmJ1QlFuNENMamd2MW5CM3lfaDhWbndfRGJwenZjZnFSZGJqdG9XeVNOamdIMXk5UUxvMV80VEg1QWZERHNtYkZQcl9hRjZhdFZzdW9UWHRxdDY?oc=5) |
