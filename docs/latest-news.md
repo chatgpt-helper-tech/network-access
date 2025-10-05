@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 07:36:51（北京时间）**
+🕒 更新时间：**2025年10月06日 07:49:44（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Trump says he thinks Gaza hostages will be freed 'very soon' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBmMXJtSVpIYU1OS3Atc2lnT0lUSm83UFRTMDdwQ3pFWmxyZkhiMGRGRFBFQUEyeTI4WnQ2TEUxeURLeVhTV1NydXJnSWU3NENxdi1mMEFLU2VSZ9IBX0FVX3lxTE5MeUk0cXd4X3J4TWtZbk90Z2RUenFIc19jS1ZzeWJZV2stODRKV2xDMXZiUFZYM3B4dWNYaTdwdmFtbGdxMWk3alVJYjRHYjd1TlgwZ21LZExTSEZOdy1N?oc=5) |
 | 2 killed, 12 injured, as gunfire erupts on the streets of Alabama's state capital - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOTDg3c2ctcU14QnVvcFNiWEtzVWhfSFAza2wyd0ZlZVl3LVNxWXM5M0ladFZ3RzFCb2RWd0F2cmNWUmlVcE1OWGctN252T2Rxc0JrdERTQWxXekppVXo5Wmhvel9iRGQ1dGZ4ZnFHbWhha3ZoWlVlaFZlLTVPU1ZMaTF0Y1RZYzZZTXFsUkRiZXByVkRTd2NveFVVdUnSAaIBQVVfeXFMUERxYlEzbjZzVzVSX09CTFNHWmZ2WE9HMmd4VW14SjlWUm83eXlxSXE2eXprTll3ejZfZGVjYzducHlLWHFZeUpOdFhwODZ6cDBHLWM2TDhvTm96dlY2VldnN1ZkYllQU3BydzRVcC1HdWVxMlpQUXhaa3JIM0o3dlptaXdIX181ckp4Tkd0UTFhYTRnYWNoOUxrME9FT01SVktR?oc=5) |
 | Josh Shapiro is dominating the race for governor of … New Jersey - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQSC1Bb0lNRXp0cS1EWnVtLUczbHRTUGhkQ0Zib2gxU2tRR0NER2pCWjBQaHFjd05vbFMtNlJrZkkwY2Y1dFo4dV81T2U0RjlqcmkyeUdzRzl0aENFRDVJa09hVERfX1hGU1FqVXJVb3o1SVJsS2piUFJDT1BRbXRVZC1FWkd0ZXJDUkE?oc=5) |
-| Animal welfare is now part of RFK Jr.’s MAHA agenda - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNTUZYMEwwcUhrZXk4ck1IZ29sWFU5enJLZzJtMm4tbWl0dzY0X3J4dWt5cFExUkVua3ljaWtsYjJ5UV9fRGUyN2J4V01Wb1VuT2lYZTU0Z196UWUyOVk3S1BKQ0stVmhIRzBTT0N4aFlNX2NNUW5Qd245dUtOOE5zSjh2UUl2NmdxdGpNSUkxZk00MlhZ?oc=5) |
 | Using helicopters and chemical agents, immigration agents become increasingly aggressive in Chicago - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQYmtIeGI5c2NBTWE1U3BJdDFUV1JicEtyVm9PSmpuSHVYNksyNjcxc0psRE9WR0txSmhOSHhpRzRhdkVnLWRNV3ZkdFV6VDdBMU1RVDhQVUNqLU80SkhabjlhS1hOWUoxeUtyQWZSRzZNOHlnTUtxdjBXWV9LcFBDcm9mRWJLRWtjT01ySHNLS1dQMDlHYTNqaktoYUdPNExuNWJaWDJUTlF4c1pDcV92MUp1Q3AxR1E?oc=5) |
+| Animal welfare is now part of RFK Jr.’s MAHA agenda - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNTUZYMEwwcUhrZXk4ck1IZ29sWFU5enJLZzJtMm4tbWl0dzY0X3J4dWt5cFExUkVua3ljaWtsYjJ5UV9fRGUyN2J4V01Wb1VuT2lYZTU0Z196UWUyOVk3S1BKQ0stVmhIRzBTT0N4aFlNX2NNUW5Qd245dUtOOE5zSjh2UUl2NmdxdGpNSUkxZk00MlhZ?oc=5) |
 | Trump doesn't let shutdown interfere with celebrating Navy's 250th anniversary at rally-like event - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQa1NqOFNHc1EtZUxFY2loUDVDb21lVGxUbXFLRzBZRTJMLUF2Vzd6ZGtwVDN5d2RycTJaeGtuTXN2UWttTjJjeGFzenlyTjdsa2hjQXZFUmVScWw3TUtUX205SXYtWjNEdEc0RUEwLVRrQU52QW9UeWpLTmxveHVsN281a2JQcjBvaElJYjJYLVo3ZzFlQTB0N3ZBUTB5SktRMkpHTC1MOXQ?oc=5) |
 
 ---
