@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 05:13:17（北京时间）**
+🕒 更新时间：**2025年10月06日 05:25:27（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | 'There will start to be layoffs' if Trump decides shutdown talks have stalled, Hassett says - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOa04yb19aMGpJbmxkc2lpenFjZmdMNTlmekVpblJGSjdPMmJaREtfYTNQLWlaaFRlbHY2cGpnck81SDBiZllXakhMVUt5UzZkVjRfbGxkdjFZcXI5YjZ0aUZ1cURfODZUazgwVFppTGhOX2VuQjNmRXU5eGV6bVhBUmszRnR0ZVJLc1UyMVVR0gGTAUFVX3lxTE1Ea2g1bDdtbDZZb21vOWduVU4wYU9qS2ZobzZjU1BmLTF2TVJLUUR6RWdxWVlEZ200NWdCR1gyb2Z0RUJyOXZRanY2VklHRFB6SHlub0Fabk8zUGFvSDRKeUw3X0IyejhoejJsS3ZvZEtxSm5jME1ITmY3ZWZkZC1YNnJ0RWs4RFhtTU1uZ2NGTHFWZw?oc=5) |
 | 2 killed, 12 injured, as gunfire erupts on the streets of Alabama's state capital - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOTDg3c2ctcU14QnVvcFNiWEtzVWhfSFAza2wyd0ZlZVl3LVNxWXM5M0ladFZ3RzFCb2RWd0F2cmNWUmlVcE1OWGctN252T2Rxc0JrdERTQWxXekppVXo5Wmhvel9iRGQ1dGZ4ZnFHbWhha3ZoWlVlaFZlLTVPU1ZMaTF0Y1RZYzZZTXFsUkRiZXByVkRTd2NveFVVdUnSAaIBQVVfeXFMUERxYlEzbjZzVzVSX09CTFNHWmZ2WE9HMmd4VW14SjlWUm83eXlxSXE2eXprTll3ejZfZGVjYzducHlLWHFZeUpOdFhwODZ6cDBHLWM2TDhvTm96dlY2VldnN1ZkYllQU3BydzRVcC1HdWVxMlpQUXhaa3JIM0o3dlptaXdIX181ckp4Tkd0UTFhYTRnYWNoOUxrME9FT01SVktR?oc=5) |
 | National parks caught in the crosshairs of government shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQTm0yQWhFVFVsT3dtWHpNU1Qtem5BTXhOekxISlRDbkRrU3RXRFVRWEo0OWRJcnVKeGNkYVRrNGw0ZFFod3BTZjhSdk45Zy1vMDEtVDN0ODBvY3BiSG14cWUwNTN1ZHpUZEtNZVMtZ29ZRGNNQjVVSUdoR2Y2bXc0ZWcyMndVQQ?oc=5) |
+| Feds charge woman shot by Border Patrol on Southwest Side - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNajhmaUpPellhWGpwMHA0Qmt2V0Q4ME9wWFk5NTlfc3hZYWM1SEpZWHp0V3oya0JsVFVWNDF4WDE2U1o3eC1YMjV3ekdLNEhUSGdxWENOZHRWekVGZXY5c3pDc2k2c1hVaW1CeVZlc3BfWWU1SG1aVGU1dzFDQlRQTWZZVVNOcDdjcWhJWDRfM1ZHRFRyLU5nMm0yU0l6a2dyXzdSUVU0WnQ?oc=5) |
 | Federal tactics on Portland protesters escalate, hours after judge rules against Trump - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQVzl3VjRqdFBNMlN5bWpxdTJncEhaaEpjbERYVlFkQzVsc2E2Ukt1SW1tT0p3YnJCcnBZLWtjTXNFVnN5Q21mSlZtNFBJbU5kdkNpS1J1NHpFUUh3enF3cUJZTGhHRXdjMFB5U2pxdFhOcXVuVDZpSWdzQUFISWVlM19TVFV3Zk5UdWx1VjhIM0djakRQenFmN1U2WjZVTkVVMy0tTnY0UmcwU2stUmNyTk5HM0wxUG5q?oc=5) |
-| US Border Patrol raid sweeps in citizens, families as Chicago crackdown intensifies - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPckxoUE53Z29JR1JoX3QwN1dvZzNWNER6TVdpY2tLa002NEZ1TjctcGhpOUlKcGVMMi03OXpHNHdRZm1GM3FZaHZaOGdhWTZYdFVpNFFMUFB4WUc0UmtfelJqa2ZLMzM3Q19vSU5UQXhEbzdGNzFiV0dEYVk5b0tObWdsUUI3VUVxZDZEamE0eC14dkdheTkzR0JsbndaVWVmWEhQc2ctWXJPNGtNSC1IamZybk5Cb2ZSdWxCeVhn?oc=5) |
-| Russian air attack across Ukraine damages energy networks, kills five - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNQlJKNF9LWElGOV9jcVMzOGZNQWVJai1CWktXWDIyNWxkTVp0Sklkc0c3LU5DeV9CaXB5OXhuWW9QYWtlZ0xKeXFvb1hqRHcwZ2FXSEhETWJXV2tvT1plT1dzaHhUWU5KV184c19kWFJUS042SjBFa3N3dmRlbUEtZXRPRQ?oc=5) |
+| Rubio Says Ending Gaza War Will Take Time - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPdnJGME5saUZIQjJ1SHdNWERnMkEwZFlodjJ3bC1iMFpLWk5qdXFFNklIZmlKYkdZUDZERnUyS3Fnam90TXhjbGFLNGRkNXVzMWZTcXFLeWlYOU5ZelNtRHlrclpXRVgzbGdjVjhsd3VGWWFUbnBTaVJxdk1UY2RXYWU3ek9HWkUxT280eWZvaFRxMzViWkdGbzE0RDZ5TWdjWEJiTXZpNXlNQ28?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
