@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 00:25:42（北京时间）**
+🕒 更新时间：**2025年10月06日 00:37:39（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Home secretary wants police to get more powers to restrict repeated protests | [阅读全文](https://www.bbc.com/news/articles/c24rmdngrrjo?at_medium=RSS&at_campaign=rss) |
+| Trump says he thinks Gaza hostages will be freed 'very soon' | [阅读全文](https://www.bbc.com/news/articles/cj3y6g43248o?at_medium=RSS&at_campaign=rss) |
 | My approach will pay off eventually, says Tory leader Kemi Badenoch | [阅读全文](https://www.bbc.com/news/articles/c1l81766g2qo?at_medium=RSS&at_campaign=rss) |
-| Overnight strikes hit Gaza ahead of crucial peace talks | [阅读全文](https://www.bbc.com/news/articles/cj3y6g43248o?at_medium=RSS&at_campaign=rss) |
 | First funeral held for synagogue attack victim | [阅读全文](https://www.bbc.com/news/articles/cx2r51x17jpo?at_medium=RSS&at_campaign=rss) |
+| Nearly 1,000 people trapped on Mount Everest slopes | [阅读全文](https://www.bbc.com/news/articles/cj4ykkgxqwko?at_medium=RSS&at_campaign=rss) |
 | Five killed in large Russian missile and drone attack, Zelensky says | [阅读全文](https://www.bbc.com/news/articles/czjvlgzmp4wo?at_medium=RSS&at_campaign=rss) |
-| 'I have everything to ruin you' - BBC tracks down sextortion scammer targeting teenage boys | [阅读全文](https://www.bbc.com/news/articles/czrpedexleno?at_medium=RSS&at_campaign=rss) |
+| Police release photos of mosque arson suspects | [阅读全文](https://www.bbc.com/news/articles/cm2dglp43xmo?at_medium=RSS&at_campaign=rss) |
 | How the US got left behind in the global electric car race | [阅读全文](https://www.bbc.com/news/articles/c8ex2l58en4o?at_medium=RSS&at_campaign=rss) |
-| What exactly is freshers' flu - and why do so many get it? | [阅读全文](https://www.bbc.com/news/articles/c147218x7rgo?at_medium=RSS&at_campaign=rss) |
-| Why HIV cases soared by more than 1,000% in this tiny Pacific country | [阅读全文](https://www.bbc.com/news/articles/c0m42dwvlk8o?at_medium=RSS&at_campaign=rss) |
-| Before and after images show glaciers vanishing before our eyes | [阅读全文](https://www.bbc.com/news/articles/ce32ezzq6zlo?at_medium=RSS&at_campaign=rss) |
+| EuroMillions £26m win claimed by UK ticket-holder | [阅读全文](https://www.bbc.com/news/articles/cx2xdk15xk0o?at_medium=RSS&at_campaign=rss) |
+| Georgia protesters try to storm Tbilisi presidential palace | [阅读全文](https://www.bbc.com/news/articles/ce86kgnj7zro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -26,12 +26,12 @@
 | Scoop — Trump to Netanyahu on Gaza talks: "You're always so f***ing negative" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPVkZkNmRjYUdwWGVaWUxLc0pvM0w3WHdrSTByN243UWhwamh0bE9KcjF4QzRtS3diRFVJU1pMVGUxSElLVGFwbWZPSHNkOUdnbnBYVXBvUHQ3UEM2NS0yUzcyM3Uxel9TN3NIWjAwWGhLdUlMd2dRZ0o4WV9VRzJNTw?oc=5) |
 | Judge Blocks Trump’s Deployment of National Guard in Portland, Ore. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNZTVjaGVVRUtkZmZLNHZISThVRk11Z1lWQ0o4VDJZTFE5YmNHR09HRTFXanNqeno2S0E4eXZCQXo5X1VNY0RDdW9rQ2p2VkhFVjZnM25pelRNc1ZiTUNMWWpKbjM2WlBiMWMzWkFCOXBFUF9PQzJGdHNIRmZheWhDR19CeFJ4LWE4NExxMFRTd01Vdw?oc=5) |
 | Hamas delegation heads to Egypt for hostage deal talks - The Jerusalem Post | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBhQ0tKXzFvU1hrLW5MQUhWOXBCbWNVdHIwSWltUjlXYkR3dUdzQmdIbDFZNUU1SHVXdXFxRGRBbHN0My1EUkNkV1UtMDZvR20wLUR3VlFRZ3hVZkxKSnNMSU1VRlNiWU9DU2FyUU93?oc=5) |
-| 14 shot, 2 killed in downtown mass shooting - WSFA | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5pNHAzQk9WYjM2ZFlfWGZOUVhlcjJJdWdYSDlGWHdoVGZ0T0YyWGE4MXdPWGFqeEVJd1hGVVJrUUVIRk1Va3lPMzhyMS1idkZVR2R1Qi1MQ0ZWWFFhejFvUG5yN05acEYwVDcycGxpNGNWcVhFSEphR24tUzM?oc=5) |
-| Trump Interrupts ‘SNL’ Cold Open to Threaten Show Not to ‘Do Anything Too Mean’ or He’ll Have FCC Attack: ‘Daddy’s Watching’ - Variety | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQNHBvSmtUZjFuVEZaN1BGVFpEa1kwQUxxRUVjTmRJZHpDUDU2VmF4OE16VHBqam1FeWpkUkxvejZWWXhDem5VcHRVVkdsVklDVC16d2Vhbzc5SGxxZm15cXZ5Zi1WMzVyekptdm1tekFMOVdlUzZPSHZuSVJROHdaOA?oc=5) |
+| Gazans long for end to war, Rubio says not yet - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNdU9ZdWxjNHZkNWJib3Y4YTdGN2xzVDh6Q21LTmRVOFFCNjFDVGtqLTV4OXdsbEVRVm9SNUtITFAyTlZMdmc0Y0wyZ1c2MG5XM2hYZXZFTmxkVS1jdENCa29vMGY2dDlNSnkzdk4xS015enV2bHdvWDFJT0pKc1BSVVk2ZHVycGU5NncweG8wcFB2SFF1MVRldnp5ai1vU3JpUVNuU1hORU9vb3A5R0w0bjdsUQ?oc=5) |
 | Five killed, energy infrastructure damaged in Russian air attack on Ukraine - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNYjhRdHhuZS12UnViYWliU3A4ZjlITXVKQWs4OVRvWE1CTWRnVDdHVFBqNWNRS09HdnZyNHpTY3JzMFpxZEs0SXBrR0JmV2JWZWhwbmpWdldSTm9pV0JsUEpjUHotTVhOcTY2OWozOEJkODdYN3hzVTdVVDJmT25SeWtsLXAxU0RZS2FpaHlMQmxPZHZWRUxseU1vTk5WM25JVlNVU2VMVmVER3Y3VDdPSzlUcjRMQldUdHVyUGlONXE5YXJU?oc=5) |
+| Vehicles Again Used as Weapon in Attack against DHS Law Enforcement, Officers Forced to Fire Weapon on Armed Woman in Chicago - Homeland Security (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNMkpmOHZVNHVIWGhidS1PendnQXFmaGR5cWhacF9WZE5KV0czWmdUdmFYb19lSW5fYkVDOTdUbWJHRU5rVVRGbEZuMzZDdXhVeU5XajBjSlpvR08zZEtxQ1ZLN1dqYkxIc2RYQ3liRHFsek5GY0x1bmNUb0pGRnAzUnU0ejlSS2tocmQ3RXlPcEpOMGNCZVVTMDZPSXJIeEt6SjhNdS10X0c3OFZzQVgzUERKdXEwMlFiT1E?oc=5) |
+| Montgomery mass shooting leaves 2 dead, 12 others injured - WSFA | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5pNHAzQk9WYjM2ZFlfWGZOUVhlcjJJdWdYSDlGWHdoVGZ0T0YyWGE4MXdPWGFqeEVJd1hGVVJrUUVIRk1Va3lPMzhyMS1idkZVR2R1Qi1MQ0ZWWFFhejFvUG5yN05acEYwVDcycGxpNGNWcVhFSEphR24tUzM?oc=5) |
 | Not All National Parks Remain Open in the Shutdown. Here’s What to Know. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5pSEx2bzhaNUpYS1VnU0plem1IRlFWdnh1UEJvMmxhbXNaRXhILVpmU09rR0NDcjE3ajh3QnU3bXFmVUNHMUszc3NoZzM1aHA2N19ZRUpSNlpiaEFsRlVaZV9zbmIxVWxUUElnUGFfUHd5X3Zt?oc=5) |
 | Hegseth fires Navy chief of staff - Military Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPdlpSOW9abTAwS3cyQ0JMNXN0S0lpNmVySXE4S0U3VlNFMDdxeW1UOF8wWlc4Rm1vbW5hWFZhUGtJUENINEJjRDFNRE0tYURsUF9EY1BscHBNSDRGT1dkMVAyX3ZzaHRJWTNiaFEtdWFuTExwSF9CZmJJRlVPeGRaaWttYVRRYlFiT3Y1WnlKa3dfOUE1Q0pBQ3Zn?oc=5) |
-| Border Patrol shoots woman on Southwest Side; agents, protesters battle for hours - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNNXQydmNhM3Bua2VyRldUREs3SzlhaHEtWWJJWkdRYTFrRjRLZi1WbXhydEhQR2JmMkJMWkFIWVJCWURYTFk2dnlFMVMzSHJoOGtwV1ZJWl9pcFVaMFk5YmNwYjV2ZGJBTS1JSFVOUE1LdVlfY056TUpTdTZWTnRRQkY1bDZXb2w1dEhLNElVTjI1dWU3aEVSNlFyeVM5OXlTTG5oY1oyai1xc0ktZFloUTVxVUtXQQ?oc=5) |
 | Federal agents use tear gas, make arrests as Portland ICE protest swells into the hundreds - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOM3VoZmQzYlMwNE1JRGJaNV9LdUFiUTlqdDZhMkgxdzFTS0tDdmpEVW1Cd0hZek10RTZCOGlyblI2c3FRSGZKUmJVUUMtY0EwSWNVZWpxbUNEU1gxREdjOTRFelp2cGhVazZ6NzFCWkVadGNNUjduLVk1NHBwM3hfT3FYSFhkenNhd1JZdFBFUU9JeVhXRWhzd2h2Q2tPMEFjdjk0djduX2N4U2gtajZwNmJ30gHGAUFVX3lxTE9VSnQxU202d0E1N1Q2TmgzVWpwTjZwMTRpUVN2U2ZBSlFFUFMwLTAxbGU3ck9HTlZZNXZJV0lldV9sRm5yTDlKdmhyVkN5STNKdG1DTzUwSFc2ZmIzR3g1aWw0TDJENnhoSHlsNlpxRjVyM3hkRnVMaHp6engtZVdzMnhlOURSc1pzZktpeF82RVdzV0FYS3IwX2p6R3AwU0s0UFhCZXh4VURGc3F6NEh1M19jVV8teHE2RDZQRW85ZWFWVTdwQQ?oc=5) |
 
 ---
