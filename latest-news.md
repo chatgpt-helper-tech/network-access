@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 14:25:55（北京时间）**
+🕒 更新时间：**2025年10月05日 14:36:13（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Tories pledge to remove 750,000 migrants under borders plan | [阅读全文](https://www.bbc.com/news/articles/c708g5x2yqzo?at_medium=RSS&at_campaign=rss) |
 | Trump authorises deployment of 300 National Guard troops to Chicago | [阅读全文](https://www.bbc.com/news/articles/c2dnk0ee6pyo?at_medium=RSS&at_campaign=rss) |
 | Syria holds first elections since Assad, but not in all provinces | [阅读全文](https://www.bbc.com/news/articles/czrpx1vvr45o?at_medium=RSS&at_campaign=rss) |
-| Environment prize nominees 'heroes of our time', says William | [阅读全文](https://www.bbc.com/news/articles/cz08591znr8o?at_medium=RSS&at_campaign=rss) |
+| Meghan makes surprise appearance at Paris Fashion Week | [阅读全文](https://www.bbc.com/news/articles/c1471r6e27jo?at_medium=RSS&at_campaign=rss) |
 | Hundreds of extra police on streets after synagogue attack | [阅读全文](https://www.bbc.com/news/articles/crkj50gd217o?at_medium=RSS&at_campaign=rss) |
 | Watch: Old Trafford's minute's silence for victims | [阅读全文](https://www.bbc.com/news/videos/c89dnyz95k0o?at_medium=RSS&at_campaign=rss) |
 | What we know about the attack | [阅读全文](https://www.bbc.com/news/articles/cd63p1djgd7o?at_medium=RSS&at_campaign=rss) |
