@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 13:37:00（北京时间）**
+🕒 更新时间：**2025年10月05日 13:48:10（北京时间）**
 
 ---
 
@@ -27,7 +27,7 @@
 | Judge Blocks Trump’s Deployment of National Guard in Portland, Ore. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNZTVjaGVVRUtkZmZLNHZISThVRk11Z1lWQ0o4VDJZTFE5YmNHR09HRTFXanNqeno2S0E4eXZCQXo5X1VNY0RDdW9rQ2p2VkhFVjZnM25pelRNc1ZiTUNMWWpKbjM2WlBiMWMzWkFCOXBFUF9PQzJGdHNIRmZheWhDR19CeFJ4LWE4NExxMFRTd01Vdw?oc=5) |
 | Who is Japan's 'Iron Lady' Sanae Takaichi? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FdThQa3dyZ194azJIWC1SOENyRXA4ZUJyQ3BiNURIZkFiQ2c0TmRvQlgxZDNoTXVaRms2QTF4aXUySTNPS1dSOFRsaTNXTXJNMWs5NGJhUEtZUdIBX0FVX3lxTE5QRVhvd2NhRUNZVy1aZnRPa2RPNzlnZi1KNDZ5cnJubjc2Y01IdnY2bzEwbzM4SEZFN0NPQTQyN0JZekVMUmxEUko2WGFyckM2cVRIWjJSZWhWUGpjQUw4?oc=5) |
 | Trump to Send Witkoff, Kushner to Middle East to Seal Hostage Release Deal - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQeGVnVDN1TGNOei1vZlhqNnlpeTRpNGtfSktfOE4xbC1LT0RCbmpyejlycC1XZVZTWXFtVVcxa2lzTzhGdWJIUGM4X2R5NTZxa2ppcGpzYjgtd2dTRGJycXprLVAzQW9CNWtHQ0JPXy1FbmR1NW9qNF9UcW9iNEZ5T3pyUWJiZDQ0aUNINllKaWNKUEN0YW5kRndrRi1aNl9GTHRkdmZ3?oc=5) |
-| Exclusive — Trump on Gaza deal push: "I said, 'Bibi, this is your chance for victory'" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9UaHdvMXhQcG1IVGtOOUYzYjVpbldKZWhKYnk0M1ZGMkJMQV9WMFdNdHVuaGEyZEkzQ1ZVc2VyX0l3MXZ5RnEzLTNsMkZ6VlBKNHZrYm1zRC1idDdBbDJUSGkxYzRMOTVDeDBPYWwwZFc?oc=5) |
+| Trump urges Hamas to 'move quickly' on Gaza peace plan - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9PWkRZM3Y2bHc4NDZwSkU1MUNpeEo4SmtUcjFEQlZMeTJpX2pvT3VoYTd1amlrTEZTT0dwcXFTamtyWWhqTGNXVWNEblA1MkpTQ1dENFVzN1hYZUs2Y1N6WkpFVGFZYVhfbjdCa2pfanRVYTJtTnRRUDZhclM?oc=5) |
 | Federal officers fire tear gas, make multiple arrests during protest outside Portland ICE facility - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFB5eFpib0JSeHJRSFJ2SGdnMlN6RnFsU1RKSmx2Q1d5SXJsOE5acEc2Y1dRdWFRQm1EWFRlNmZWWFo3VzhDMFpzM2ZBdlBOTXJsRlA5VGxWSWREeVV6VWZOUlYwVmNJcktMZjc4WHdZUXoxb0ZvWG5wWA?oc=5) |
 | Security video helps lead Oregon detectives to a masked killer who tried to hide the crime - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxONGRsYnBIY2N5N3RZT0Vjbm52aHNidm9YQ3R1Q3ZnTDhwcldZZGF6NFB1TVVEVEw1MExfYWhsZkhmVFpVZkhGZVFIck1CVEd6MmhLZXF1VlR3cEVaRjNPU1FGX2pDOGxLeUN2WHNZU3FKZVZyMHdxZDhaZy1oaWZCMXpIRDlrb3JRU0hmSGl6d2JNbjF1R3hXZGhaOVo2ejNWYk9GdTNiTE04U1FVbnNub2hyV29aajjSAbwBQVVfeXFMT2k1VTZMSTNWdVVCTGVOX3R5YlNud2FhMVFQNzh3bm84ZnFHWTdZR1JJYVk2QzNRem5adjZsQm1odjFRa0dBZUdqOTdVNmFCUTZCYi1iV1ZSeS0zZFR6anA4TUY0b1lPOUlrSXpiWTJ0X1Zpam5oSVd6SUhkUFlVYXVlRDJzNlFFMDhENEZUT3d4SGJWOEFTa1JzaWF2UE9JeGxMckppTjhIZUJWZjJPdnhoNElpeEx5RF9kVi0?oc=5) |
 | Democrat in Virginia attorney general race apologizes for 2022 texts depicting political violence - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOaWMwa09LSzN0R3BHQkVuVVJCSS1NQlNvejJBSEtfdGJqNnd0XzNGMHVpME9BV2pJZHFhb2VXbVAwMV9DTDlOXzJ3LWJQd09GZkZVUGhBbWpZSUZuUEJPMGZlUlZleEVCQmNTNXVNeVJOWVlmTEwwTTlVQXBJUU9RemFlRmR2RVBBUVQtb0tlN3hmSjFl?oc=5) |
