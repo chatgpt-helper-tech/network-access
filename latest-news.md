@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 05:00:29（北京时间）**
+🕒 更新时间：**2025年10月06日 05:13:17（北京时间）**
 
 ---
 
@@ -15,8 +15,8 @@
 | Survivor describes moment 'monster' attacked synagogue | [阅读全文](https://www.bbc.com/news/articles/cly05lekyrvo?at_medium=RSS&at_campaign=rss) |
 | Rangers sack head coach Russell Martin after 17 games | [阅读全文](https://www.bbc.com/sport/football/articles/c4gwrplwyz8o?at_medium=RSS&at_campaign=rss) |
 | First celebrity leaves Strictly after dance-off | [阅读全文](https://www.bbc.com/news/articles/c20zeyynnrgo?at_medium=RSS&at_campaign=rss) |
-| Five killed in large Russian missile and drone attack, Zelensky says | [阅读全文](https://www.bbc.com/news/articles/czjvlgzmp4wo?at_medium=RSS&at_campaign=rss) |
 | Cavers safe after 30-hour rescue during Storm Amy | [阅读全文](https://www.bbc.com/news/articles/cly6x3xvyy0o?at_medium=RSS&at_campaign=rss) |
+| Five killed in large Russian missile and drone attack, Zelensky says | [阅读全文](https://www.bbc.com/news/articles/czjvlgzmp4wo?at_medium=RSS&at_campaign=rss) |
 | Trump says he thinks Gaza hostages will be freed 'very soon' | [阅读全文](https://www.bbc.com/news/articles/cj3y6g43248o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -28,10 +28,10 @@
 | Pritzker Says Federal Agents Are Trying to Make Chicago a ‘War Zone’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRVJvY3p4eFpvYnJ0SFU4R09IZkktLVRVVEszUEZXSW1vZXFwWlFTZVcxYlNRb2MwU0Y4NFFTZ0N0RVVrU3hBRDJjUWUyanVndGFtLVowSDFoSkRGaWZMY3A2aXNCNWZNN0xoZHFUNm5MakphelI0TUJhdjlab1JRSjNGclk0cFU?oc=5) |
 | What to watch as a never-ending Supreme Court term begins again - CNN | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQcWJ0UG1ycml4QjhnWGpBMHNnbU16SHhhV2s1ckV6YmV5cFAyLXBqVF9EYjJpaE9SZWxzSmxnaW90S3M5Zm5wRkNVTXpJRnVBa0ZfQTk4cHlSRHdfcmY5czNhZmZyRmcxWGVqUWk5ZWdLdFg4bjJFdzhlWWlnUGhLYXhCS1g4MEFOOHh4UmRqRTRGOHU2YVdUSk5mZkhldVBJdDVla0tR?oc=5) |
 | 'There will start to be layoffs' if Trump decides shutdown talks have stalled, Hassett says - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOa04yb19aMGpJbmxkc2lpenFjZmdMNTlmekVpblJGSjdPMmJaREtfYTNQLWlaaFRlbHY2cGpnck81SDBiZllXakhMVUt5UzZkVjRfbGxkdjFZcXI5YjZ0aUZ1cURfODZUazgwVFppTGhOX2VuQjNmRXU5eGV6bVhBUmszRnR0ZVJLc1UyMVVR0gGTAUFVX3lxTE1Ea2g1bDdtbDZZb21vOWduVU4wYU9qS2ZobzZjU1BmLTF2TVJLUUR6RWdxWVlEZ200NWdCR1gyb2Z0RUJyOXZRanY2VklHRFB6SHlub0Fabk8zUGFvSDRKeUw3X0IyejhoejJsS3ZvZEtxSm5jME1ITmY3ZWZkZC1YNnJ0RWs4RFhtTU1uZ2NGTHFWZw?oc=5) |
-| Montgomery shooting leaves 14 injured, at least two dead downtown - Montgomery Advertiser | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQQkNmbktWamRLS3ZlMjVHQktDZFpJUjFIZ09ZU296VWxRNldncEJsTmM0NWtWZk5ZWEIwdndQRXc4SWZkLUlUNlpQaXRnR1hzamxoQ3QzTXdicTd3S3VrVXlUU2g4WnZxazQyOGEzSlhyNDFFRm56RVhCWEhWYW4wY3VsLWU2VHdLTXdsNTRqSDFxM3Y3dUtna2RuQ3JSclFVa0NuQmFkUm5OMWlzQUhaTEhHZmRqZi0yVXVwS0Q4RlloN19JUndxRHRQTUhWSmlo?oc=5) |
+| 2 killed, 12 injured, as gunfire erupts on the streets of Alabama's state capital - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOTDg3c2ctcU14QnVvcFNiWEtzVWhfSFAza2wyd0ZlZVl3LVNxWXM5M0ladFZ3RzFCb2RWd0F2cmNWUmlVcE1OWGctN252T2Rxc0JrdERTQWxXekppVXo5Wmhvel9iRGQ1dGZ4ZnFHbWhha3ZoWlVlaFZlLTVPU1ZMaTF0Y1RZYzZZTXFsUkRiZXByVkRTd2NveFVVdUnSAaIBQVVfeXFMUERxYlEzbjZzVzVSX09CTFNHWmZ2WE9HMmd4VW14SjlWUm83eXlxSXE2eXprTll3ejZfZGVjYzducHlLWHFZeUpOdFhwODZ6cDBHLWM2TDhvTm96dlY2VldnN1ZkYllQU3BydzRVcC1HdWVxMlpQUXhaa3JIM0o3dlptaXdIX181ckp4Tkd0UTFhYTRnYWNoOUxrME9FT01SVktR?oc=5) |
 | National parks caught in the crosshairs of government shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQTm0yQWhFVFVsT3dtWHpNU1Qtem5BTXhOekxISlRDbkRrU3RXRFVRWEo0OWRJcnVKeGNkYVRrNGw0ZFFod3BTZjhSdk45Zy1vMDEtVDN0ODBvY3BiSG14cWUwNTN1ZHpUZEtNZVMtZ29ZRGNNQjVVSUdoR2Y2bXc0ZWcyMndVQQ?oc=5) |
-| Rubio Says Ending Gaza War Will Take Time - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPdnJGME5saUZIQjJ1SHdNWERnMkEwZFlodjJ3bC1iMFpLWk5qdXFFNklIZmlKYkdZUDZERnUyS3Fnam90TXhjbGFLNGRkNXVzMWZTcXFLeWlYOU5ZelNtRHlrclpXRVgzbGdjVjhsd3VGWWFUbnBTaVJxdk1UY2RXYWU3ek9HWkUxT280eWZvaFRxMzViWkdGbzE0RDZ5TWdjWEJiTXZpNXlNQ28?oc=5) |
 | Federal tactics on Portland protesters escalate, hours after judge rules against Trump - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQVzl3VjRqdFBNMlN5bWpxdTJncEhaaEpjbERYVlFkQzVsc2E2Ukt1SW1tT0p3YnJCcnBZLWtjTXNFVnN5Q21mSlZtNFBJbU5kdkNpS1J1NHpFUUh3enF3cUJZTGhHRXdjMFB5U2pxdFhOcXVuVDZpSWdzQUFISWVlM19TVFV3Zk5UdWx1VjhIM0djakRQenFmN1U2WjZVTkVVMy0tTnY0UmcwU2stUmNyTk5HM0wxUG5q?oc=5) |
+| US Border Patrol raid sweeps in citizens, families as Chicago crackdown intensifies - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPckxoUE53Z29JR1JoX3QwN1dvZzNWNER6TVdpY2tLa002NEZ1TjctcGhpOUlKcGVMMi03OXpHNHdRZm1GM3FZaHZaOGdhWTZYdFVpNFFMUFB4WUc0UmtfelJqa2ZLMzM3Q19vSU5UQXhEbzdGNzFiV0dEYVk5b0tObWdsUUI3VUVxZDZEamE0eC14dkdheTkzR0JsbndaVWVmWEhQc2ctWXJPNGtNSC1IamZybk5Cb2ZSdWxCeVhn?oc=5) |
 | Russian air attack across Ukraine damages energy networks, kills five - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNQlJKNF9LWElGOV9jcVMzOGZNQWVJai1CWktXWDIyNWxkTVp0Sklkc0c3LU5DeV9CaXB5OXhuWW9QYWtlZ0xKeXFvb1hqRHcwZ2FXSEhETWJXV2tvT1plT1dzaHhUWU5KV184c19kWFJUS042SjBFa3N3dmRlbUEtZXRPRQ?oc=5) |
 
 ---
