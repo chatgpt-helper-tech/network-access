@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 11:13:55（北京时间）**
+🕒 更新时间：**2025年10月06日 11:25:56（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | What to watch as a never-ending Supreme Court term begins again - CNN | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQcWJ0UG1ycml4QjhnWGpBMHNnbU16SHhhV2s1ckV6YmV5cFAyLXBqVF9EYjJpaE9SZWxzSmxnaW90S3M5Zm5wRkNVTXpJRnVBa0ZfQTk4cHlSRHdfcmY5czNhZmZyRmcxWGVqUWk5ZWdLdFg4bjJFdzhlWWlnUGhLYXhCS1g4MEFOOHh4UmRqRTRGOHU2YVdUSk5mZkhldVBJdDVla0tR?oc=5) |
 | Montgomery mass shooting kills teen and woman; 12 others injured: ‘This is not who we are’ - AL.com | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNbEIzc2tqQnF0WXpQM205V3J6THJENXhKQ240dWVydGNEMWZCbFNiZFhmZ2NRb1RlQ0F1UGg1bS04eWFHWktFUGgyclNySTJmdHJ3d0N3YWg4Z0hpbHlXcFR1UDhEMUlGaFJSbzhwcFFCdXVRMXRWQzFRUUd4eEJDOUMxc09ObkdIbXFxS3hfZGlWWmYtNy1R0gGrAUFVX3lxTE82S193UnhqZXBCTFlkVzZ5NVBBRldHWVpkeElFdENtV3ljR0JxM2Z0N2kyWkFTWmRXN2FIXzkyRHcyNW8tdmtZUDEtQ0FYRWl3b3ZwYXNrY1lmd2tNcnlLLXBLQ2pjbEJPeUlCNWFqSWhSNGhnMExFVHZqSGRCT3RrQnNUaFhnZkxtQjJUNlhORk5lZ2t4RmtWODFWUnBIUkt2YXZSNUhNSmxFRQ?oc=5) |
 | Using helicopters and chemical agents, immigration agents become increasingly aggressive in Chicago - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQYmtIeGI5c2NBTWE1U3BJdDFUV1JicEtyVm9PSmpuSHVYNksyNjcxc0psRE9WR0txSmhOSHhpRzRhdkVnLWRNV3ZkdFV6VDdBMU1RVDhQVUNqLU80SkhabjlhS1hOWUoxeUtyQWZSRzZNOHlnTUtxdjBXWV9LcFBDcm9mRWJLRWtjT01ySHNLS1dQMDlHYTNqaktoYUdPNExuNWJaWDJUTlF4c1pDcV92MUp1Q3AxR1E?oc=5) |
+| Gov. JB Pritzker says Texas National Guard expected to join troops from Illinois as deportations escalate - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxOMWJhYVNHVi1CV2dJVEtIZV8zVWhmQ3k3OWN3UW5qNjRIZEpob1NqalRCU212eVVPcUV3a21iWlRjeWozTGkwdDBEa29MYjlvRWdnNDVuZWlhR3lJNWlTMGJVR2VrVDFBeGRoeE5YM01RaUVOVGhuVnFjNEJNN21QakVwRWFOTjFXZzBuOHRYSjNSM3VoR29jZXk4UENJTWFCZ19hSkpkc0pFem0zMExONUxtZGhWc0UyVVVIeklMSmRYM012cWdpblV4T1NXNHVNREdEYTJESXdvb1J5cnE0?oc=5) |
 | No new temples announced during October General Conference - KSL TV 5 | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPNV9Cc05tcFZoamNaRW01dm1OTUxTQ29ySTNXQndKdzNxZl9CckR4TXRRbG9FMXlMdmhvN1p4NlBtcVFXZkJ6MUYxZkxhVHl0N0REenJEb2wzb0d0UWJHbFdSbFlwd3AxZmpqeU5fYTBEUG15UGVyWlFISUZueURzX25nUng?oc=5) |
-| Man arrested and charged with possessing explosives ahead of church service marking start of Supreme Court term - CNN | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNaFE1cDNqekZVX2Y2OHNBQ2hPZHBGY0NTSDRfX1ltX3RLR0Ffdlc4OHdHWHZWYjVZeEItUEgyT1BPYUxSc2QtQVc5NkJwUWhIdGtFMm5KNktkOEVRZmtCSXRqVm41ZHVyYVFJLXVfSW9KbzNzSmwyRVFSSDgtMGVtdWlUTXkwTUIwOVJaeXhEYThWUzU3TnZCU2I4RzJKdjNJUTZEb3VB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
