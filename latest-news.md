@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 21:25:23（北京时间）**
+🕒 更新时间：**2025年10月06日 21:37:12（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Judge blocks Trump from sending National Guard from California to Portland - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5IelhDOEpVcDBkN05DdHNHRWlnSXM2Q0VYbEs1cm95UkxSWVZzOWM1ekx2REx3dDFxRDRLTE9tTktjUU55X0lhb2h1c0JZNHFMcWVjemZad0dQUdIBX0FVX3lxTE9KUS1DSmktaENiUkdYWV93ZzZnWkVvR19IX3pkN1RJMzNrR2JqckRkeWFXd1FqNXlUWHFCRnp3djdXVUk2WTkyZTdGRFVjbkstTFZUTmpXbFpVM21yWFp3?oc=5) |
+| Gaza Peace Talks Are Set to Take Place in Egypt - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPQjdQUl8wS1hyakZtVFV5RWZCNkxCNEJTVDRadGphLTdncVpPYUx0MzdVUm5LU2g3eFFiN212alRXanA1eUtPSWtaMk1rR1gzUlZmNGhyRnhyc1hRVGlsal9FWEJjMEJPSmgxZ1ByWHNPa0JYTVQxaU4zOWNNOUNDQjJVMWtKbGtBaGdTT0tiNA?oc=5) |
+| US Futures Gain on Earnings Outlook; Dollar Rises: Markets Wrap - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOMmhfYWNNQ2Nyci1oNHUtWFZ3TEw1T0EtSUpKcm82dHlPVzhDbFZ3ekdFWWN4d25idkRhWm5DNWcwcnl0aEZyM2FNazJJenZKTDVqamk0d3AwRzZMWXVBYlZzbmQzRUh6N2dBRlBxalNLNDJVU2tweDZJUHFxeVlVTXNLWmstVmtCS0FVa25TTU81T1BWXzBPUmxValpRSy1XQUxubmRvQmlhUUF3VDdPQ0JEdw?oc=5) |
 | Supreme Court term will tackle executive power, executive power and executive power - NPR | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE41QnJscVBPNFBMM1BMVllWX3RPQjd6YkctdGNiN1dqcklsZlpvVmxTWks1bUZ1VmFYX1Y0ZnZ0ZVNYQ0VEay1OemM0dXBhUjE3TjFWTWhhZXFSOTZiUGlfUGl1T2RFcmxkTUxiYnFVS3IzLTB5bmdNY2VMYw?oc=5) |
-| French Prime Minister Sébastien Lecornu Resigns - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOcnl2YklVM2JoNFlzN3pTdUJVMW9zYXk5TW8yZ1E5V1V5cjBVT1Z1aVlRZEVfY08wWGxKOC1EejBrSkZoSGdKQmpMNHk5dV81NUlkRGQtbFMwVDJIT2M0WVBUekNOcUdYekhRNW92bXgzN2ZyZ3g5bVR6cDVfUmZuVEdEOGtsVHBRbVE?oc=5) |
-| Trump pushing Israel and Hamas for Gaza deal within days - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFBHbTNmV0JObVdmbm5ycjhQajE2QTJXN055T1FMU1FlaUVuWkVqMWh6eTVyclctdGJ1T3R4SGd3V1kwbk9lODJwU3RSUDNsVEVBWVRId2F2S3gwYTdUYWdmVkMyaFduVGYzWjRYR193eldzbllw?oc=5) |
 | White House: Mass layoffs will start if shutdown talks 'going nowhere' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOdVdrTlJRT0ZjVk42NEtlTWdVSmk0WV9JMnFKbVBEMTdvRkV0bnE3SHhNZUtOb1Z5Tl9qcFFzOUpVVUFKQk0wMEhMUDRhM2I2U0owaXBWMVdYNTBobFkySWloT2o2akc4dnNoWk1BZmJ1QlFuNENMamd2MW5CM3lfaDhWbndfRGJwenZjZnFSZGJqdG9XeVNOamdIMXk5UUxvMV80VEg1QWZERHNtYkZQcl9hRjZhdFZzdW9UWHRxdDY?oc=5) |
 | Bari Weiss joins CBS with a mandate for 'balanced and fact-based' news - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPTFhVLWwzOWk4Wm03cFRkcmEzMmdObEl0WjNqbUM0SlJ0MURwdUJTUG83XzJfSEFhVHBndDhybmtmUVFDeTdXeXNTbl9UOE1rNmlRcloxa0JkZzhSNmZfRXdvdDZUUDNjUnFZQS1EZGhYelFBMTloVXFBcms0SjRUdEx1TTM4UQ?oc=5) |
 | Nobel Prize for immune system stops destructive rampage - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1TZTVOdkdFcXJvU19YQ1Z5Szl3aDZjUHlXbzRZOXdZR3BvMHFHcTJKODhGRjhoa0d2RTFreUlBT3k0VjJ6UUhHeTdSNEJ5RDFtTnNHM21ubXFtZ9IBX0FVX3lxTFA3UVY2NDJiNWZtY1lNU0JuWE9SZGJHMEJnejBCTnp3MGhSQzI5NFlfQTRfdWJIMHVBUE43QjN1dkRwMEUyVlMweHhlVWhreUc2X0NiVEpFZzF5M2hQeWUw?oc=5) |
