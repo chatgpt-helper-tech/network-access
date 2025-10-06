@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 18:01:18（北京时间）**
+🕒 更新时间：**2025年10月06日 18:13:04（北京时间）**
 
 ---
 
@@ -13,10 +13,10 @@
 | French Prime Minister Sébastien Lecornu resigns after less than a month | [阅读全文](https://www.bbc.com/news/articles/cewn9k0w9rxo?at_medium=RSS&at_campaign=rss) |
 | Nottingham attacks victim awarded George Medal for protecting friend from killer | [阅读全文](https://www.bbc.com/news/articles/cjr5xyn421yo?at_medium=RSS&at_campaign=rss) |
 | Conservatives pledge £5,000 tax rebate for young home buyers | [阅读全文](https://www.bbc.com/news/articles/c4gzv9j78dyo?at_medium=RSS&at_campaign=rss) |
-| The true cost of cyber attacks on UK business is greater than it seems | [阅读全文](https://www.bbc.com/news/articles/c5ye8zj5l4jo?at_medium=RSS&at_campaign=rss) |
-| EastEnders' Kellie Bright on the challenges of being a Send parent | [阅读全文](https://www.bbc.com/news/articles/c0jqy8pn275o?at_medium=RSS&at_campaign=rss) |
+| The true cost of cyber attacks - and the business weak spots that allow them to happen | [阅读全文](https://www.bbc.com/news/articles/c5ye8zj5l4jo?at_medium=RSS&at_campaign=rss) |
+| EastEnders' Kellie Bright on the challenges of being parent of an austistic child | [阅读全文](https://www.bbc.com/news/articles/c0jqy8pn275o?at_medium=RSS&at_campaign=rss) |
 | Australian prosecutors appeal mushroom murderer's 'inadequate' sentence | [阅读全文](https://www.bbc.com/news/articles/c07vlzn587lo?at_medium=RSS&at_campaign=rss) |
-| Does your relationship have a swag gap, and is that always a bad thing? | [阅读全文](https://www.bbc.com/news/articles/cr4qp4nlppko?at_medium=RSS&at_campaign=rss) |
+| When fashion becomes friction: the relationship 'swag gap' debate | [阅读全文](https://www.bbc.com/news/articles/cr4qp4nlppko?at_medium=RSS&at_campaign=rss) |
 | Why time matters for Tory MPs deciding Kemi Badenoch's future | [阅读全文](https://www.bbc.com/news/articles/cn0rnj6504yo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
