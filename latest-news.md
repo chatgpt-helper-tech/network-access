@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 08:25:39（北京时间）**
+🕒 更新时间：**2025年10月06日 08:36:34（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | As Gisèle Pelicot faces one of her rapists in court, what has changed in France? | [阅读全文](https://www.bbc.com/news/articles/cdx2d9lynk1o?at_medium=RSS&at_campaign=rss) |
 | Survivor describes moment 'monster' attacked synagogue | [阅读全文](https://www.bbc.com/news/articles/cly05lekyrvo?at_medium=RSS&at_campaign=rss) |
 | Rangers sack head coach Russell Martin after 17 games | [阅读全文](https://www.bbc.com/sport/football/articles/c4gwrplwyz8o?at_medium=RSS&at_campaign=rss) |
-| Jim Gavin exits Irish presidential race 'with immediate effect' | [阅读全文](https://www.bbc.com/news/articles/cz6946ez6dqo?at_medium=RSS&at_campaign=rss) |
+| Watch: Will President Trump get a Nobel Peace Prize? | [阅读全文](https://www.bbc.com/news/videos/cj6xwz5x8exo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
