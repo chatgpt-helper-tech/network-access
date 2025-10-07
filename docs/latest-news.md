@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 23:13:03（北京时间）**
+🕒 更新时间：**2025年10月07日 23:25:18（北京时间）**
 
 ---
 
@@ -9,11 +9,11 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Jenrick defends comments on not seeing 'another white face' in area of Birmingham | [阅读全文](https://www.bbc.com/news/articles/cy85zlpwne6o?at_medium=RSS&at_campaign=rss) |
-| Physics Nobel awarded to three scientists for work on quantum computing | [阅读全文](https://www.bbc.com/news/articles/c98d00nq47jo?at_medium=RSS&at_campaign=rss) |
-| One iPhone led police to gang suspected of sending up to 40,000 stolen UK phones to China | [阅读全文](https://www.bbc.com/news/articles/c20vlpwrzwdo?at_medium=RSS&at_campaign=rss) |
-| Man guilty of stalking TV presenter Myleene Klass | [阅读全文](https://www.bbc.com/news/articles/cj0766g9edyo?at_medium=RSS&at_campaign=rss) |
-| Macron should step down early, says his first PM | [阅读全文](https://www.bbc.com/news/articles/cn0rjn3l8w2o?at_medium=RSS&at_campaign=rss) |
 | Stephen Lawrence killer admits role but refuses to name accomplices | [阅读全文](https://www.bbc.com/news/articles/cewn99k9l7zo?at_medium=RSS&at_campaign=rss) |
+| Physics Nobel awarded to three scientists for work on quantum computing | [阅读全文](https://www.bbc.com/news/articles/c98d00nq47jo?at_medium=RSS&at_campaign=rss) |
+| Macron should step down early, says his first PM | [阅读全文](https://www.bbc.com/news/articles/cn0rjn3l8w2o?at_medium=RSS&at_campaign=rss) |
+| Man guilty of stalking TV presenter Myleene Klass | [阅读全文](https://www.bbc.com/news/articles/cj0766g9edyo?at_medium=RSS&at_campaign=rss) |
+| One iPhone led police to gang suspected of sending up to 40,000 stolen UK phones to China | [阅读全文](https://www.bbc.com/news/articles/c20vlpwrzwdo?at_medium=RSS&at_campaign=rss) |
 | More holidaymakers using AI to plan trips | [阅读全文](https://www.bbc.com/news/articles/czdjzm2gv7qo?at_medium=RSS&at_campaign=rss) |
 | North Korean hackers increasingly targeting wealthy crypto holders | [阅读全文](https://www.bbc.com/news/articles/cwy8z7wxe03o?at_medium=RSS&at_campaign=rss) |
 | Dwayne Johnson is philosophical over his film flop The Smashing Machine | [阅读全文](https://www.bbc.com/news/articles/c78400jpd40o?at_medium=RSS&at_campaign=rss) |
