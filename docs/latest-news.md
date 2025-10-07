@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 19:13:29（北京时间）**
+🕒 更新时间：**2025年10月07日 19:25:54（北京时间）**
 
 ---
 
@@ -17,22 +17,22 @@
 | Stephen Lawrence murderer must name other killers, father says | [阅读全文](https://www.bbc.com/news/articles/c89djd0yn1wo?at_medium=RSS&at_campaign=rss) |
 | Jenrick defends calling Birmingham area one of 'worst-integrated places' | [阅读全文](https://www.bbc.com/news/articles/cy85zlpwne6o?at_medium=RSS&at_campaign=rss) |
 | Thieves snatch Bronze Age gold in four-minute museum heist | [阅读全文](https://www.bbc.com/news/articles/cj9zxdpwn73o?at_medium=RSS&at_campaign=rss) |
-| Snapchat users share fury at upcoming fees for storing old photos and videos | [阅读全文](https://www.bbc.com/news/articles/c4g5ypl6nkzo?at_medium=RSS&at_campaign=rss) |
+| Raducanu retires ill in Wuhan Open first round | [阅读全文](https://www.bbc.com/sport/tennis/articles/cn82mk4m39po?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Hamas celebrates two years since October 7, calls terror attack a ‘glorious day’ - The Jerusalem Post | [阅读全文](https://news.google.com/rss/articles/CBMiXEFVX3lxTE9TcDlGVHY3QVlkR3dNZHJURGl6VktXazVQV1U5QlZyX3MtRHB0ZEp0eDNWODJlVXZfRzB4RkhvWkktMjIzVXJwTnM1SzN0QnJVWkVnbU1senR0Q2lV?oc=5) |
+| How two years of war in Gaza have changed the Middle East forever - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPd3Y5VC1xNDZfUVRJWERCZ0FhWkhvOGJZVXJ6Ul9feGdLakl1QXhxOXZHdWRISlNNaDRfYlk4QmZVNFUzTTl1eGQwUTYyVzRrMkwwQ2h5d1VzX0RZNGo0TFQyLVJna0haY09DWnJ0UGVzUk5mV1FWNkFxZURYbTQtcw?oc=5) |
 | Government shutdown hits air travel, closing a control tower and causing delays across the country - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9BOVlYVUJQbVdWdUpwZk9qb203dHBBQ2J1cDNvZi03TFI0dm4zTWxMc2FzOS1aMmhCam5zTTJfRWhoSG1RWWxoeWlfQjlkakg4SEM1ZEl3UTRyeldsY0MxWjZTTlBjOTVHVTQ5QTNncWpXTDVGT0Ew?oc=5) |
-| Illinois sues Trump over National Guard deployment to Chicago - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPUVhfLTJLLVpld2FXbFlueVlESHZzUGpmNkt4SXlCaHJ4cFFXZTVpWE54d3FwdVBEaG50eFB1TTZEamh5MFozUS15VFBWa2xoR0d3NG54TzZnS3VvYVFTck9xRVVJMmNVTi05Rl9kOUpRQ1NXU1BoTWF2THZ1VVRvNElfc0VkcFM3?oc=5) |
+| NPR obtains memo about deploying Illinois Guard in Chicago - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTnpZejdQSzlQUHU3V014Tl92VTY4ZmtXOXFZSDMyVkdzUXRlOW9vSUJsMTd4TWY3N051RXZDNDdfT05FMWktU0tHekNtSk9FVE9OMGhSUVlsbTQwQUJYV2NfZ3BsWTVNMU5SczluTTYyLWk2VGV2UVVMMmlKTW9yMVhwUHhvR3JiWjJoMlkyUUFZTW1tUkllNUlqRDA4UU1TdkZWYjlabm1TLVk?oc=5) |
 | French farce: Macron accepts PM’s resignation, then tasks him with emergency talks - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNYkVrdG5JMU15YXhCQjVEVGxockJtZFVYRExhSF9PdGNxbTFmeXRKQXZjSURGY2hZMm5YaXppZUZMd0RQVG1BZXpNWWZrM2plMVF4OUxNX0lTaWE2QnR1Zm1GRmJ0bEg0Tk5yeGM4bnhaRDRDcFBTVFhlcHBZM1RueU5HajBaaDBUbXFuRW1TT05pYkZOYllFM1lwNkZxNlljVENyWXNJOVExemxpRlMwMWlIVVZnWmxFX09F?oc=5) |
+| Why some federal workers aren't scared by the threat of shutdown layoffs - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQSTRTRzRSVzJsWlp6dnFGTlpudkJ1a2RpQ3NKQ3FjbXhhYVdzSjZmYzJYTnZYa0lWUjdYMWRxMERDcTNxQlptZWxRaFhFUHRUWGlFaXNGRW1VdEdiTlFoN3lpSkwtQUtVMkFNeEx5eklidVBYRmRqYUNaNHRrS1dRQTlXQ1FFbm1tby1fRmZTc2dEQmNpRUV2OA?oc=5) |
 | Schumer denies bipartisan health care talks after Trump’s Oval Office claim - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOU1V6dlh3RHJzNll6bkZ0T0w5c3V1NEhxWmdZaEozOFJuQkdIN0xrSEpIV3NqdkF4WUNsbWNBOFhkRDBiMjY3bmloTHVzU1dVNnFTNU45bExJSmptTDhIY0lmeFhzNjl6Z0xsbjBHSVF4ZzVTWkxMS0pZQXA1ZlM5QmZOeDRGNzA1MEg0bGgxdXBtRDZ4dVZWbHh5cG42am5o?oc=5) |
-| Donald Trump threatens to invoke 200-year-old Insurrection Act to deploy troops - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9vWjRLZUMzejQ4VDdONEpYa0NnbWptcmJ2WTVWR1J3U2pHT3RkOVJNMWxCUG96d2Q3M2pkWVQ3MlRoUWNJcEVTWTBCSkxZQWZ6eU9ZcFFBTGhvNDlXWDJmUjVrYW13bkNVTXNyejZLN2Y?oc=5) |
 | South Carolina’s top law official says no arson evidence so far in fire that destroyed judge’s home - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxNeGptSkw4bmpDYUpfTnFRQmw2TU9aSk1WUVhEdDEwUnJVTVZOZ3dVSlgyZU0wYXUtMnhRQ2dnSGJjREl5WkN0a3cxREdIZ3U2Y2hMYnkyV2R0V3pNQ0tFTmV4eXp3Z2JlNy1XcUNCYVdsaWxrZ0doU1RmVGRJTGtIOHZ4enQ2c3QxYmZKVEZDYjVXelNyQ2ZYU2VwemR6M0hSeUpJNnVMcFdhMnlUNDlzSTlDUkx5eHQ3RHBINDFSeFItYm1zYnF5Q1BSSVBlelotUFFhMHZWMzFibDkxX1dHYw?oc=5) |
+| Trump floats Insurrection Act use amid National Guard standoff with states - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPaTloMElYeEl6RXlMdEtxOGNKMVJzNWdqczg1bWdTcFpaZFZNTmZEeEV3Y3JEYkd5VTF0Wm5yZUNHR3Q2bDRiY2lFdU1Cbl9IZWd5OGxUQTRtaGtOZTZ3RXFNN3NxdEkwRm95THVyNHBVQkFxVUFESzFOdU44VE02R3BiOWpxdTBDLUxuZGU3QWNXUQ?oc=5) |
+| Cities nationwide back Oregon in National Guard deployment dispute with Trump - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOMEpSbjN1dEtXYTM3VGJRS2dkSXJpc1pYTjdLTFVzR081TjFSMTV4T3IyOWFjdmFyV0NabzcwQjhtSGo2Ym00WDhLUW9GczBhZU9JMzYweG51MDJBTXI3N0lzZlBUUjRJM1RMUjdHVURyQkRPSTVLSVNMcEY3M1dMUnlld2t5ZjJOYllDNlJrLU1DMFZTRk52VkZlYU51OUZKaW1ib3RWZkJfaUJKT3pQTUZxcHhaWTZBTG93Z1VaREzSAdQBQVVfeXFMT1hSeVFTZ0ZTeWhTbE5rZFlxVzNJZGFYbS1MTXpaWGRMd0xCMDlLSm9OaE92U2V1bERuTGVzWERLSllEOHk1LWlpMDl5M1dIYXVsRUl6ckJUNXB4T2h4S0I0VnRMUFo3NTh4RGlnWjJ2bkFuaGFHRTg0TEpDOHdKX0txZV9XX3h5R0lQVG1QMGZTbEJuVEhxVlI4NDQ3MHNlZU85bHJJQ1pwdmQ1M3g4Wms1QW5CUVZyelZZQXgydVVYLU9vVjQyM3hHU284aWFRaUtEcmw?oc=5) |
 | What to Know About the 2025 Nobel Prizes - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9wVllRMnJWUjVjV1pRU2gwQXdoeXpVYUpMTXpFR3FVMmpCa0FzN3BTZVNKUmFxMThkOVotQkV4V3AwNVFxaUNPVGpEMl9Zb21nd1AtZVR3ZU9KSVotZ0V0Z2VUR3NHdGYtMS1lWjJjcnl0dw?oc=5) |
-| Helicopter crashes on Sacramento freeway; 3 critically injured, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNcjdYQlQzU2E5dmNFQ2tiNUZGaGpBUktaRDl5RThoRlUzVWJZUzZCanBobG54bkhQXzk0bTluRXBmZklOWHVYbTJGZkJxekZPeG9QQ29Mck4tUzc2QkJZRGFzYXAtYmNBVUFZYVdFb3JUUExYa0xQT2pMamNKLTZ3cW16RVlNdw?oc=5) |
-| GOP Rep. Wesley Hunt announces run for U.S. Senate, joining Cornyn, Paxton in primary - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOUzRON19jSGFIR1JIOXgybE56aFB0c213OHZ5UFBPdVhJMTdEMl9RZkJJWEtVTHpLTkliU25FQjZ5djRWR1p5Y0NzX3I5MV9YMHprWTBtaS1Hb2N6X3NCSllhcnpBMmVDdVpGR0F5NUxxUjlsamhuY0RrU2NPNkEwUXJjaGhzNjdORlQxMURQOWpkQUJtenNjZFRXa05nMFVEcTRKSnhR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
