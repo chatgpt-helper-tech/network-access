@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月08日 18:49:09（北京时间）**
+🕒 更新时间：**2025年10月08日 19:00:17（北京时间）**
 
 ---
 
@@ -12,9 +12,9 @@
 | Chemistry Nobel awarded to three scientists for work on metal-organic frameworks | [阅读全文](https://www.bbc.com/news/articles/c0r0l742kpjo?at_medium=RSS&at_campaign=rss) |
 | Key US and regional mediators join talks to end Gaza war | [阅读全文](https://www.bbc.com/news/articles/cdjzvlxp8mjo?at_medium=RSS&at_campaign=rss) |
 | Thousands join biggest-ever UK environmental lawsuit over river pollution | [阅读全文](https://www.bbc.com/news/articles/crrj4qqqy7po?at_medium=RSS&at_campaign=rss) |
-| Two teenagers arrested over cyber-attack on nursery chain | [阅读全文](https://www.bbc.com/news/articles/cpvlgzk0xvpo?at_medium=RSS&at_campaign=rss) |
 | Dog attacks are still rising - even after the XL bully ban | [阅读全文](https://www.bbc.com/news/articles/cvgvy2yyv8mo?at_medium=RSS&at_campaign=rss) |
-| UK won't relax visa rules for India, Starmer says | [阅读全文](https://www.bbc.com/news/articles/c9wdzryk477o?at_medium=RSS&at_campaign=rss) |
+| It was a normal Saturday night in my pub - then Justin Bieber waltzed in | [阅读全文](https://www.bbc.com/news/articles/cjw7554z85eo?at_medium=RSS&at_campaign=rss) |
+| Scammers using AI to lure shoppers to fake businesses | [阅读全文](https://www.bbc.com/news/articles/ced5wvn48q5o?at_medium=RSS&at_campaign=rss) |
 | Chad cuts ties with wildlife charity linked to Prince Harry | [阅读全文](https://www.bbc.com/news/articles/c07v3kgy2lko?at_medium=RSS&at_campaign=rss) |
 | Dolly Parton's sister 'didn't mean to scare anyone' with call for prayers for singer | [阅读全文](https://www.bbc.com/news/articles/cjd1m3y00dxo?at_medium=RSS&at_campaign=rss) |
 | How Stacey Solomon decluttered our homes back from the brink | [阅读全文](https://www.bbc.com/news/articles/cp8jzdzmqgro?at_medium=RSS&at_campaign=rss) |
