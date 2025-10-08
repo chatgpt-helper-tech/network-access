@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月08日 15:00:39（北京时间）**
+🕒 更新时间：**2025年10月08日 15:12:17（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Spy case collapse blamed on failure to label China a security threat | [阅读全文](https://www.bbc.com/news/articles/cy8rl7e7xp3o?at_medium=RSS&at_campaign=rss) |
+| Spy case collapse blamed on failure to label China a threat | [阅读全文](https://www.bbc.com/news/articles/cy8rl7e7xp3o?at_medium=RSS&at_campaign=rss) |
 | Badenoch to set out new rule to cut borrowing and taxes | [阅读全文](https://www.bbc.com/news/articles/c39r8k27rm9o?at_medium=RSS&at_campaign=rss) |
 | UK won't relax visa rules for India, Starmer says | [阅读全文](https://www.bbc.com/news/articles/c9wdzryk477o?at_medium=RSS&at_campaign=rss) |
 | Dog attacks are still rising - even after the XL bully ban | [阅读全文](https://www.bbc.com/news/articles/cvgvy2yyv8mo?at_medium=RSS&at_campaign=rss) |
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Texas national guard troops arrive in Chicago amid Trump’s crackdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPRUt0b0hrRTQwcHYxeEp3VFlkTENuUWVVeUN0dk1vN1NXcDV3RW9yVldmTndQWGI4REU5dXRld1VJa0RfTmJ3WW1OYmRERmppMkszel95a0dHS2VsTU41WHNsQ0VfUzJLeDl5cmdNc0tBa3VEOERlcEJhU0xIZ0pPUFRXNnJuMGVIRVZqSVJHMTZlaVk?oc=5) |
 | US airports continue to see delays as shutdown hits air travel - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBuWnVpMVFyTURzR09xRHBsakVIdUpEZThzQkliSkhUc1BGczJwQmlCVlktYjhKV05MM0FVSUF3RDA5VUh3TXpQX2FaTC1EUF9yUHQ3RmpfbnU0UdIBX0FVX3lxTFBTWkRETlRsejBUVHFyM3UySWFzUndENjFtQnJVZ09jX2V3bnlZX0xQMjVDVThDZFU0X2pFYTdUZzRCbTc4ZkhkdmZCQktZRUNTZVBPTnktV0R3Q0oySGhV?oc=5) |
-| Bondi tells Schiff he should ‘apologize’ for impeaching Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOLS0ybTVGQVJncG53b0NtVGlnTDlWYUNsNWIzWWczSk9aa3FVOXV1dnhlbmtlblVvTnhSdFhxTXhBUWQ2c01KeFYzSC1iSWZENEZwSHNhTmlIaERZQzNlVW5OUUVQVEVxR2l1MDAyNHF0eVJYd0V6UDg4WlJoVjlUNUExRVc1VWRBUGkya0c1Zk4yR0Nk?oc=5) |
+| "I'm not going to discuss that": Bondi clashes with senators over Comey, Epstein and Trump - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNUjN2Z09QZ2x4TDBHQWJuOVhWWGhHTUgyall3Z3VBTlB3UDd3aDhqeG8zRW1xOVJMcXc5WXpjRnNmUjEwR1ZBeTN5ZVp5aTlxNmZRc2hvTFlqMlBMdEZVUmFIVm01dTcyM2N0Y3NwZ3pRUmFlcVZvVGFxWW1mWlNiU1U4NkRTZ0NiSlZUUTFZVnBIQ2s3?oc=5) |
 | Government shutdown impasse continues as dispute emerges over back pay for furloughed workers - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNMTQtMEFxRS1MaW9FMUxRdlhqRlBJMmx1Y2RwempQRkQ3Y0xJd2hic2hja05ZY3ZfeFR1M1N3eDk3WXRQTDJ1dFdDUWZJOGlfLS1WTG9vcTdOVmNwX1diY29WY19VTFhKeW0zWFJSaE9COXlBU0dtUDNlV0VwVmJrZ2tWUlFBdURrdE1NWU9OcGlDQVRKZTVVQThfeVFTb3MwV0FZN3JaMldrZ9IBrwFBVV95cUxQY2Ftak03UnhZN3hvMHhnZEgwREh6VXd2YnZmZ1doYlk3S01YOUF5d3paZzBMWklGalk2U0F0S0F3VDNCQXBmS01raVhZRzRUanRlb0dGbDk5ZzhzRExvSFl4NnlKZzRkbzdnOHRURjNLamg5OUZpT1UyaFp4TlpCOXBIU2NyYUlKN3RWNE1tcXBBU19DbV9EUDZLTWRhUXRIOHRacVkzVnlfanZWbEow?oc=5) |
 | The costs of Israel’s longest war, for Israelis - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQcUpSRkt6OHp6Sk9HSVFPTHlEQS1iZEpNSDBkQXpaWU9jX2ROVXdJMGFJNFZ5UFRiQS1meF81VkJFaHkzM04zNFhaVVZydU5ONHlxcGNzODFMRXM1YnBTc2xwcHZlZ3B3VWhadFF6V0ZQdy1MUEhhR25TVVJmaVZfcnB0bkh0SUxGSDJseURqdFVGcFFsNkRr?oc=5) |
 | Israeli military intercepts Gaza Freedom Flotilla vessels - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNcTJHNG5UdjBHZzROVlNLWFprSnlGLVhMUC1Wdk5kN0dzTE5GYndLQ3RNckNWaV96SVpJNnRWa1lndHhxYnFiVDJ4dzN2aTk2UnBua2VrYWdOcDBvYnFLblI0azZOQ3pVeVBjbVh6Ukl1ZS0xX1RlemdsbDFCSTRwNXk4REEya3hFd1ZuYmtMdmViM3dCUUhFM3FHTFdDNzBuRGtaNTR0SkHSAa4BQVVfeXFMUEM0U1N6NFRFd1FBLTBPaVA2LTM3MXNQR2RobkFsZW5iNEpucTQ3UGJGaWNfLVdIaUU0dGs3SjNHVHlNZi1PZjc1WGVUdjFYVTdMMUQ4Y2c0N09hRlRnVGRjWFdMNDZ4WjV3QTdPektOaUJWSi0xWDVWaURrLWo0UHhIOHduNUh1djcwMVlJYmctMThOTThoSTBlTXQ0VENVZmVvQVQyeFpMWTRCUFZn?oc=5) |
