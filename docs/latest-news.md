@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月08日 14:02:02（北京时间）**
+🕒 更新时间：**2025年10月08日 14:12:16（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | The costs of Israel’s longest war, for Israelis - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQcUpSRkt6OHp6Sk9HSVFPTHlEQS1iZEpNSDBkQXpaWU9jX2ROVXdJMGFJNFZ5UFRiQS1meF81VkJFaHkzM04zNFhaVVZydU5ONHlxcGNzODFMRXM1YnBTc2xwcHZlZ3B3VWhadFF6V0ZQdy1MUEhhR25TVVJmaVZfcnB0bkh0SUxGSDJseURqdFVGcFFsNkRr?oc=5) |
 | Supreme Court Hearing on Colorado's Conversion Therapy Ban: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNWldnNFpFQUhIamNVbWxTQXBHb0RXRC1teFh6OWx2U0RhTW53VlFLWG5BS09hSjJWSTJyblFTQ2QxNzgySS1sXzlXRDd6NWFXWFo3cU45UHd6Ny1wZDk5Sno2dTQ3bGZTVFg4eXRkMmkxc3FPRDI2R1RhN3d6Wk9NMA?oc=5) |
 | Trump-endorsed Matt Van Epps wins GOP primary for vacant House seat in Tennessee - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPeVVnekI4bjJkRm1uR3JRV19vMFhnM3dKVmZhN3VxZXBhdEdGVEh0V1BXNXlFdGFyR1hqeXpCWHFWeDNOSFVJRl9EWFpCUXdkY0pWaDNWaHZmUFZCaDFSMnMzNTNzRWdHTy1HRmxQTEdBbUdCWDBtZGJhTVJVLU9OUlRMZVVJV29YZjVjakdMdWgxOUFDZE81OC1zUVRVNVRYNXFta1ZhZkZFRzFRZ1ZmM1ZsMVQ4OGtxQm5Pc2gySXpYQdIBVkFVX3lxTE9mZU82Q3JfMHdWNkdJdGdrc0M0YU9hb0ZhLTd5M1RyaDhQTjhzSFJFZkxWYlRLb2N0Y05PTENscGNjdDNHV25DMW0tWkhaM3dRdDhtQWpR?oc=5) |
-| Federal government shutdown grinds into a second week, but quiet talks emerging - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOaEdtTFlRTjJwMnBWZjBNM3VkR090c24yU2E3R0pneDJWNl9xcmpHb0dWaVJVMEVENGJ5b1ZNWWpUQVhuNkdZWWdqRzhrY1JkUmpEOXJqYWNaak9pTXJ6bWgzNDhlSkViYTN1eHI3U2hOdEZIbUZDTnVZVFRLYWVKVVBIYzdTa29xdzNYZEVveUlvNkd4V0JTQ19lcE9MZ0k5WDJjMnRmbFFNUQ?oc=5) |
+| Government shutdown drags on as health care compromise remains elusive - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQQVVnUElNbFE5R2dCMjFBdHRrMmNoSFlOMlZxWXNSMkR2UjN6TlZoYWF6ZGN4SjlLYkM3ZGVhSnpDS1N4Vzc1Q3FNSVdWYXB3RWNuSVFvVThRWEk0dlNDUTRGalUxRFFaa2p1elBFXzdQVkp1YUxQclM5VmE0Zi1WTlRUY1pBNUZXQlVlVG1KSjlBT0JDTGU5ZkxLcnFqWDFYSWhWNmIybHEtcWhYcXc?oc=5) |
 | Portland leaders seek dialogue, while Kristi Noem slams local electeds as ‘pansies’ - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPMUhOeGJLUUh3b19oNkhoNHkxcDlhRkxfc2lhNFcxVV90REtvRHlXUzNDRkpKVHpOd3NodGswMHljeEdmQ1pPOFZjMmNKR2E3Ui1Gci1COFIwdTNpM0E1R3JDb3kzc3pUWjZFcHhqb3RXWk9VM3JiU1FzSWhCY2VsSmpNeUNQSll2a1ZSUEx3UHk4dTdzQzJqUnRGSHB2akJGTF9OV2hCMjUtY2pTVEV0VFVRcXJIX1lzTmMwTjFWb3VaNmJ4UlRiMNIB3AFBVV95cUxPYlZYVHhQUzY4aWNScklTcDBRMnJwdUl0MWFxcE5JSHBBNWtpR2tGRTM1OFBpMUR5MHhiVlh0VEJQQ2tSbllQUFN4UjRsY0c3MmZUNUo5QXA4WUQybENEdzMwTl9oNnVoTTlDdlF1eEhOb0xxRFh2T09lR0x4SWdINUJPTTJvXzdkYXZmSDcwaUZyeTdzQkhxUDZucjE3UF8tU2t2RDRiUnZJSXlENEt6ZXkwUGx2cHBEelR4eWh0azIxbWN4UjdkUXBnR0RSY3gzX1ltc2N6OExPR1Zx?oc=5) |
 | Mayor Brandon Johnson says federal agents who break city law should be charged with crime - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPYXU0MC1oSWFGQ1BoQWhoNGJnVWRJeDFEcm1GeE1YUk1SdHlUdXQ5REFUd1g5Z0hwYU8wNTh4Wm1qTUU5RDZqeTVoM2JGWDFXa29fSDdPSDA1VkxlOGNidFM4d1ZzM3JxV29yR3paUVhYY3BYUWJwOHdIWmotb3pwTXNfdUE3TGx2eXNXWUkzTVRHLXZlYVBCV3FQMDd5UmFPMklCVi1lQTFtQm9u?oc=5) |
 
