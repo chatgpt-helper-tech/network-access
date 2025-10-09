@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 19:01:45（北京时间）**
+🕒 更新时间：**2025年10月09日 19:12:06（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Ceasefire deal a major breakthrough, but war not over yet | [阅读全文](https://www.bbc.com/news/articles/c99gzzd9yvzo?at_medium=RSS&at_campaign=rss) |
 | Water bills to rise further for millions after regulator backs extra price increases | [阅读全文](https://www.bbc.com/news/articles/cvg4jkexgl1o?at_medium=RSS&at_campaign=rss) |
 | America's top banker sounds warning on US stock market fall | [阅读全文](https://www.bbc.com/news/articles/cg5ej03p604o?at_medium=RSS&at_campaign=rss) |
+| Pubs could stay open longer and host more live music under licensing reforms | [阅读全文](https://www.bbc.com/news/articles/c1l830m55dno?at_medium=RSS&at_campaign=rss) |
+| Hungarian author Laszlo Krasznahorkai wins Nobel Literature Prize | [阅读全文](https://www.bbc.com/news/articles/c5y810rlmd8o?at_medium=RSS&at_campaign=rss) |
 | Hate crime in England and Wales rises for first time in three years | [阅读全文](https://www.bbc.com/news/articles/cp3vg33nje4o?at_medium=RSS&at_campaign=rss) |
 | Kate warns too much screen time damages family life | [阅读全文](https://www.bbc.com/news/articles/ckgek62l6pzo?at_medium=RSS&at_campaign=rss) |
-| Pubs could stay open longer and host more live music under licensing reforms | [阅读全文](https://www.bbc.com/news/articles/c1l830m55dno?at_medium=RSS&at_campaign=rss) |
-| Children as young as four taking knives into school, BBC finds | [阅读全文](https://www.bbc.com/news/articles/c77d06vde4po?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
