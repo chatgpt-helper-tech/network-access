@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 10:00:59（北京时间）**
+🕒 更新时间：**2025年10月09日 10:13:13（北京时间）**
 
 ---
 
@@ -27,7 +27,7 @@
 | Comey’s Two Legal Challenges to His Indictment, Explained - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOeXNYTWFKQ0ppZDBuandadkhHYVhHT2Y1MmNrM05VX3hDdlo1d0lBSjdadThkWElxUWRzMnZEczZPSHRTTUlpNG95dUlOQjdPZmdwQWp2eVZSNUlZeFQ3U01xMm1hYUx1M0sxN1hFT1NONzU3SjlRQlNiU1BlTlNFYVhTc0JhY2hLYnlQVg?oc=5) |
 | Son of missionaries accused of setting destructive Palisades fire - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOY2hiSWFDM1QxVTdUZzdSdzJrOVhlU3NlQnlMLVNvcC1XWVlQc1hzVHQyUVVlR2VhS1hIRXU4ckFMakdFVXd4ZnpXWXM1NzYzR1VzaUdoaDVqYVllNGNtVExZbTNfX2hPRjdWcHZWRmxUZFplNEZqSUREVzN6dDdOZXZ1cDZKQlB2bXRLMmZLblptS0Y0NmlVZHgtbl93Qi16?oc=5) |
 | IRS tells employees furlough backpay guaranteed, while WH counters in memo - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxORFJlWnRJak04LUFhZW5jcG1DWnhEeFp5UExaLWVEVWRYdXA5X2FlVFhtZXh3LUdlZEljbmlvZ2FTa2lIZmZ5dS1Canp1RTJoczJ4SDc5V1dXb21YcVl2Rlg2anc4S3Q4aXpSS2ZXOTVuVmFhQTNCbGlBUnBFOFBJcEhXbGxyenc?oc=5) |
-| Macron will nominate new French prime minister in 48 hours - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5idkhSSWMyN1NTdWh1cWdtLWdjd3dlbE1raEpvSWc0eElKa1NQaEdOcmFORldtRFViUlJWdDZZcFdTakdYcFNOYWdhUkR3aVZrcElPTTRQcHVzQdIBX0FVX3lxTE1uOW1mc01jY0xLWVZ0RjBLMzdSNUwxOXZ0VzlCZ3BRT19qODJNTXhSWGk4ek5WUWtzY1loTC00Ujh2OU04blNmV0hsS1ZoNzFzZVNtTVNGbXdVRmc2bnpR?oc=5) |
+| What is antifa, the ‘terrorist’ group targeted by Donald Trump? - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9zWVVuT2xHdWFvSVJ5X3VvamJGNFR3bkFnSWI4T2RuYy1wVXdvYUFWVmJCNnVxaGE3b0lSek9McU01eUJyUFZ4M2l3TW8wTnBFOUF0TGRYWnd2UmcyTTlMVkc2YS1xTlVmZDFjVmhjOFE?oc=5) |
 | President Trump posts on Truth Social that Chicago Mayor Johnson, Gov. Pritzker "should be in jail" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNOFZCNml0MTY2a2R3eGpmcy1zUzZwZzVSYTRTYkRDRHRBbmFXVUlGczBMdmFFanZyeXBEYmZVYm9RbktEX1JteUxaZjF3Ti0xSTZzWFc1OFliNE5XRVV0ZFhDVmNuLTNlcVJKUnB2ckZwWWNIMWZMWmNGczhndUQwSlRQcFl5Vjg4?oc=5) |
 | Katie Porter’s viral videos plunge campaign into ‘disaster’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPOVcxSGtoYUVUckRuMGJ3YVNfY2syX1A1ZXRxV3Y2ZVJiR0ZpcHRyaEUwZ2VJcW1CdTAyZUVvOXJqTHB2b0p3M0ZjSTFCMV90SDlPQkZSS2VtcUN2MFd6SzRvQWZTU2JTQU1sODIzM21LTW9QUWl3YU1xREM4YTRwdTltSXA3Z0V1dGhsVno0cUVoblAxOUJ2dQ?oc=5) |
 | Pope Leo urges U.S. bishops to speak about Trump's immigration crackdown after being shown migrants' letters - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOb1FVM2NpY1ZXZ3J0Y29BYllqbl9ORkRHQ3JwbzVrNDUtX3JBaTB2eUF4dmZKeDNheHVFaUhORmZZaUcwUUFUcmRxWi1ELURJLUxnRmJfaHJTSEl0RkFXYWRrVnZkQlpuNi1OdC13US13Zk5RVE9VNTlSZzhROFJBNUpXUTk3U2NhaEHSAY8BQVVfeXFMTlNPOTFjODZKNi1oOXZqcTZWb2F4YXh0Rk1aRE5IbGZ2U0tkZDloTFByYUpYR1FnX0dlVVBWYmRhdDc2bWpvLTJzNU5jWjdRblA3cWZFUnFFSFhLcEZTdkk4bzM4Tzl6WjVKN1dvUHM3VUdaMU5jTVlWbVRHVEhGeDg0RXBDdDFaUmdzOGQzT2M?oc=5) |
