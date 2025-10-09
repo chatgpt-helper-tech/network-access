@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 03:13:11（北京时间）**
+🕒 更新时间：**2025年10月10日 03:24:58（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Live updates: Israel and Hamas sign first phase of Gaza ceasefire deal that would release hostages - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNZ0thZzJMSDRQMUtNRXUzMVJvLXQ3UVRnVVYwdUNnRXZ4ek5JMzlBVjB1RV9QbkFPc2Vsb0Y4cDNCT2pxV3ctcEtQdXRrWGJVM2VMZXl3S2F5LUZSOHRkQjN3dkVncGtZWjlUV1diaEJYd1c0SmJnVTVjYjg3clhEVWswZ1gzNmJZMS0tbTZZTQ?oc=5) |
+| Live updates: Israel and Hamas agree to first phase of Gaza ceasefire plan - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPQzRQZWQyYzktTThQSkc5a2JkLWJVbGNBaFl5TmQxWmxFZ0RkaW5wb2twY1ZVMUQtV3kxSl80ZmhxYjNieEhBWkNBZXZNNUhJOWlyRHgxSk42QnV3aVZjQndiR0E3b2kyN2lpUlNOUEdtYWpZc3lVb1RmMzNaTWZHMjQzMUZfZXhmdWc?oc=5) |
 | Norway braces for Trump’s reaction if he does not win Nobel peace prize - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNTXRGOGlHNXUzdXhDSnhESkEyclRYVmZJVEJEaXFVeGl1eUppdmlyam5LdzJIRjBCQmVJc3A3bFhwYUNnZFhvaHcwYmJRQWhVQzVPTWJWNW1YWldRRXhDemt1d1Z1NnBhTDJHbk1xRnoyZ01hV1VVWnNpc0I5eFJ2S1ByZVNhcVVRZk41QjZSS2tsZXFJbFEtS0hJWEkxNFZMblczNjU4ektramNOSEtIX1lneWhUd1k?oc=5) |
 | White House slams Schumer's 'disgusting' statement on shutdown as political standoff continues - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNSzc3Z0NiemdtRkJmMktiUm0yLWtQYVlsTGZsLTRnZ3hNc3RNeFNQUFlJcEkyeEFqb2JUUXZRU3RCYlh4am9DZVY1MDNaX3ZoYnktaVluVjFUV3RSZGZ6cVNTR2tYUzlJa2NlMmtmZDZ6Zzl3aXNmMjRwc1BwN0lNQllBQ3ZFLUIzYmtmdFBEWjU4NWtsUENJQkFMcHk4U1pmU01LTENWN1pKUWlXQm9TcklITHJtNUdkTFE?oc=5) |
 | Federal court to weigh Trump’s deployment of National Guard troops in Chicago area - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPSTdYR2tyRldtR3ZIeENJTmtuQkJuWngxZkhuZzBySmpGS3RQbU1fMWxUOGVKaU5zYkphMTJNdkk0bzhyVlJBaFdGcFk3U2o3cUtCanBrTy1hTDFkVGo0amRRWGEwXzY2cmhINlMyeU44bVVnNmVkNXloblNxWHZqSTk1aTVWWndqX0JCb2VsUnJTWTBFTzVuX1JSblNfMUZyMU9UUTdR?oc=5) |
