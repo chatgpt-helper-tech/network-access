@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 14:25:11（北京时间）**
+🕒 更新时间：**2025年10月09日 14:36:37（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Watch: Trump handed note mid-meeting and says Middle East deal 'very close' | [阅读全文](https://www.bbc.com/news/videos/c5yvn8wdg0lo?at_medium=RSS&at_campaign=rss) |
 | Young children taking knives to school, BBC finds | [阅读全文](https://www.bbc.com/news/articles/c77d06vde4po?at_medium=RSS&at_campaign=rss) |
 | America's top banker sounds warning on US stock market fall | [阅读全文](https://www.bbc.com/news/articles/cg5ej03p604o?at_medium=RSS&at_campaign=rss) |
+| Starmer meets Modi on his first visit to India | [阅读全文](https://www.bbc.com/news/articles/czdj66llg9go?at_medium=RSS&at_campaign=rss) |
 | Water bills to rise further for millions after appeal | [阅读全文](https://www.bbc.com/news/articles/cvg4jkexgl1o?at_medium=RSS&at_campaign=rss) |
 | How Britain's membership of the ECHR became a political hot potato | [阅读全文](https://www.bbc.com/news/articles/cm283eqje03o?at_medium=RSS&at_campaign=rss) |
 | Stars, secrets and slip-ups: Celebrity Traitors is off to a cracking start | [阅读全文](https://www.bbc.com/news/articles/c2038w7lgx1o?at_medium=RSS&at_campaign=rss) |
-| Have Russians set up a military base in my childhood home? | [阅读全文](https://www.bbc.com/news/articles/c4gj7p96nd0o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
