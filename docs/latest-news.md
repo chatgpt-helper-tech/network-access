@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 17:48:58（北京时间）**
+🕒 更新时间：**2025年10月09日 18:01:25（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Children as young as four taking knives into school, BBC finds | [阅读全文](https://www.bbc.com/news/articles/c77d06vde4po?at_medium=RSS&at_campaign=rss) |
 | Kate warns too much screen time damages family life | [阅读全文](https://www.bbc.com/news/articles/ckgek62l6pzo?at_medium=RSS&at_campaign=rss) |
 | Pubs could stay open longer and host more live music under licensing reforms | [阅读全文](https://www.bbc.com/news/articles/c1l830m55dno?at_medium=RSS&at_campaign=rss) |
-| How Britain's membership of the ECHR became a political hot potato | [阅读全文](https://www.bbc.com/news/articles/cm283eqje03o?at_medium=RSS&at_campaign=rss) |
 | Stars, secrets and slip-ups: Celebrity Traitors is off to a cracking start | [阅读全文](https://www.bbc.com/news/articles/c2038w7lgx1o?at_medium=RSS&at_campaign=rss) |
+| How Britain's membership of the ECHR became a political hot potato | [阅读全文](https://www.bbc.com/news/articles/cm283eqje03o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
