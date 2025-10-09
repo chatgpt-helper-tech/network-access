@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 13:48:44（北京时间）**
+🕒 更新时间：**2025年10月09日 14:01:46（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 'Momentous opportunity': World reacts to first stage of Gaza peace deal | [阅读全文](https://www.bbc.com/news/articles/c8rvzzjnxe1o?at_medium=RSS&at_campaign=rss) |
-| 'Half my mind is still in Gaza': Evacuated teacher begins studies in UK | [阅读全文](https://www.bbc.com/news/articles/cx25qy1804ro?at_medium=RSS&at_campaign=rss) |
+| What we know about the 'first phase' of the Gaza peace deal | [阅读全文](https://www.bbc.com/news/articles/cvgqx7ygq41o?at_medium=RSS&at_campaign=rss) |
+| Watch: Scenes of celebration in Gaza after Trump's announcement | [阅读全文](https://www.bbc.com/news/videos/c5yennkdjyyo?at_medium=RSS&at_campaign=rss) |
+| Watch: Hostage families celebrate after Gaza breakthrough | [阅读全文](https://www.bbc.com/news/videos/c5y4nnpvqw2o?at_medium=RSS&at_campaign=rss) |
+| Watch: Trump handed note mid-meeting and says Middle East deal 'very close' | [阅读全文](https://www.bbc.com/news/videos/c5yvn8wdg0lo?at_medium=RSS&at_campaign=rss) |
 | Young children taking knives to school, BBC finds | [阅读全文](https://www.bbc.com/news/articles/c77d06vde4po?at_medium=RSS&at_campaign=rss) |
 | America's top banker sounds warning on US stock market fall | [阅读全文](https://www.bbc.com/news/articles/cg5ej03p604o?at_medium=RSS&at_campaign=rss) |
 | How Britain's membership of the ECHR became a political hot potato | [阅读全文](https://www.bbc.com/news/articles/cm283eqje03o?at_medium=RSS&at_campaign=rss) |
 | Stars, secrets and slip-ups: Celebrity Traitors is off to a cracking start | [阅读全文](https://www.bbc.com/news/articles/c2038w7lgx1o?at_medium=RSS&at_campaign=rss) |
 | Have Russians set up a military base in my childhood home? | [阅读全文](https://www.bbc.com/news/articles/c4gj7p96nd0o?at_medium=RSS&at_campaign=rss) |
 | China tightens export rules for crucial rare earths | [阅读全文](https://www.bbc.com/news/articles/ckgzl0nwvd7o?at_medium=RSS&at_campaign=rss) |
-| King Charles hopes nature film will 'inspire' viewers | [阅读全文](https://www.bbc.com/news/articles/cd63dxxv9jpo?at_medium=RSS&at_campaign=rss) |
-| Inside the room where Nobel Peace Prize is decided – but will Trump get his wish? | [阅读全文](https://www.bbc.com/news/articles/cg5ejm4qrzyo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
