@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 14:12:09（北京时间）**
+🕒 更新时间：**2025年10月10日 14:24:02（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | New York’s top prosecutor charged with fraud after Trump pressures justice department | [阅读全文](https://www.bbc.com/news/articles/c4g9n4xj904o?at_medium=RSS&at_campaign=rss) |
 | Fossil found on Dorset coast is unique 'sword dragon' species | [阅读全文](https://www.bbc.com/news/articles/cdjzvzzy0mxo?at_medium=RSS&at_campaign=rss) |
 | Tech billionaires seem to be doom prepping. Should we all be worried? | [阅读全文](https://www.bbc.com/news/articles/cly17834524o?at_medium=RSS&at_campaign=rss) |
-| Woman in Dutch beach cold case named after 21 years | [阅读全文](https://www.bbc.com/news/articles/cpq5r9epd4qo?at_medium=RSS&at_campaign=rss) |
-| Thousands more university jobs cut as financial crisis deepens | [阅读全文](https://www.bbc.com/news/articles/cp3ve5jegkvo?at_medium=RSS&at_campaign=rss) |
-| How 20 minutes of nature can boost your health | [阅读全文](https://www.bbc.com/news/articles/cvg0yvdjgn5o?at_medium=RSS&at_campaign=rss) |
-| Ex-PM Sunak joins Microsoft and AI firm as paid advisor | [阅读全文](https://www.bbc.com/news/articles/clyqe22pz81o?at_medium=RSS&at_campaign=rss) |
 | William visibly moved as widow tells of husband's suicide | [阅读全文](https://www.bbc.com/news/articles/c2ej877g7w1o?at_medium=RSS&at_campaign=rss) |
-| Universities risk sanctions over Gaza protests, watchdog says | [阅读全文](https://www.bbc.com/news/articles/crl5gn3499eo?at_medium=RSS&at_campaign=rss) |
+| Woman in Dutch beach cold case named after 21 years | [阅读全文](https://www.bbc.com/news/articles/cpq5r9epd4qo?at_medium=RSS&at_campaign=rss) |
+| How 20 minutes of nature can boost your health | [阅读全文](https://www.bbc.com/news/articles/cvg0yvdjgn5o?at_medium=RSS&at_campaign=rss) |
+| Thousands more university jobs cut as financial crisis deepens | [阅读全文](https://www.bbc.com/news/articles/cp3ve5jegkvo?at_medium=RSS&at_campaign=rss) |
+| Ex-PM Sunak joins Microsoft and AI firm as paid advisor | [阅读全文](https://www.bbc.com/news/articles/clyqe22pz81o?at_medium=RSS&at_campaign=rss) |
+| Plaid ready to replace Welsh Labour, says leader | [阅读全文](https://www.bbc.com/news/articles/cewnv2xprzko?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Trump Is Using the Shutdown to Supercharge His War on Equity - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOTHVqU3ZNdU1XVFdtdDk3ay1XWWVYd2M3UE5ELTVTcGluLTlaQ3JkZGhGaGlJQXBSbzl5M1FaNUM3VG9NaVlyaFNybmpXdVEtZXQyMW1Pb2xVaWllazloSWMyUXVkUlNjN2dCRDRnaWdqYXZaMTdZT2kyaWZLZzNtYTVXazFQWEJtN0E2R3lsRnRobjFBNlExaEFXY3BuYUY3T1VhRUZuMEEtRml4R1p3?oc=5) |
 | Texas High Court Halts Execution of Robert Roberson in Shaken Baby Case - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFA1NExyNmE3UGtSekVKdUotOGd2a1VUOEpBUE9jNG9WZm5kczZRM0tEdU54dHJKeThsOFQyTWY4LV82aGNxcWdEcW5aTWZmT1I5R1FhWVZTQ21KM1cxMEd3b3lIOW03Nkc1akNBWjJTaURieE5HUTA3QnVR?oc=5) |
 | Abigail Spanberger and Winsome Earle-Sears clash over Jay Jones' violent texts in lone Virginia governor's debate - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxONWE0MmZzVWttQTBiaGdZaEt3VlFNc3BxSEo0OVlscXkyaUlXaERfSmJkTzllVzVzQk1JX3hEdVlmQmpPOTJueXhwWlNFTUtabVJPTEt6c0h6RjdIX1Q2QTZ6cEhnelp5WmJYdVhDNFdBRUtCWmVxUkdSaF9qTHJKcGRIaHlHLTROaTJUTUo0OGxIQWcyNnhINUVVM2tIMzlfc0NGQkhvUHpUeDhCbTUxRUs0M3p6N1HSAVZBVV95cUxQTThfX0JzX1RfSUlPU3NLMHh1TFRseWpQdG85ZXljOGlqLU92ZVU1STVaTzNhcHNGTzYyTDd2QWtucFROWXBuUTIzd1pNdUxqMEpvVGhRUQ?oc=5) |
-| Boston nor'easter weather forecast calls for strong wind gusts, heavy rain for part of holiday weekend - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1NUHhWUUE3RnAyTEwySGVleFZzU2ZCZVV0dWlnUkRGMVRFSWRFQ2hBZkZtNkNIQzV5UUpCSFJFS2hKTVcxR0UwSDF3aVFtaHdTTjlJTFp1UGY0M21zcnR1LWdsTnpCLTExRnIyNlhYZmVoeWN5YjJpNXQxZEZSa2s?oc=5) |
 | US could fire air traffic controllers who fail to work as delays continue - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNdzlndGJDQTNjekYxbkF5Q21OQzRnWXdRRm5PN1FSNTBLRHNxZDZ0by02LWFYTDJCQk9VZGZSd0FqYTcyN2laT2tiVDJHOTRJbkNwRW9KMlkxVmgtbWhXQlVSaWJkRkxhQ01DTE9TSnpDNWNhZUppbE5iU2h3R3Z1OUVZVXB2SzBibjU5NFpXVUlMLW9BYWlXV3pzOEVjQjUzSmU4OXR6bV9LcU9VYmRwbm9LME92YWNkQTB0eFVjbF95ZHNmVUpnUw?oc=5) |
+| Boston nor'easter weather forecast calls for strong wind gusts, heavy rain for part of holiday weekend - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1NUHhWUUE3RnAyTEwySGVleFZzU2ZCZVV0dWlnUkRGMVRFSWRFQ2hBZkZtNkNIQzV5UUpCSFJFS2hKTVcxR0UwSDF3aVFtaHdTTjlJTFp1UGY0M21zcnR1LWdsTnpCLTExRnIyNlhYZmVoeWN5YjJpNXQxZEZSa2s?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
