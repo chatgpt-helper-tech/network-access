@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 02:13:23（北京时间）**
+🕒 更新时间：**2025年10月11日 02:24:41（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump threatens to cancel meeting with Xi - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBsc1RIVFpPbE43bzNQV19NY3hRZFBYdGNEZTlLNUIzRDFTb2ljZFVsbHlCRXZDcUl5SVlBQ25TVkZNUHhxbU4xX29vbC05UFNFaHNrbFhXLVZQZ9IBX0FVX3lxTE1pM2dab2RoS3FmdWZXd3laWFYzSmVPMDBiNjN4TmxVNWc2MkRzVnRhOHRyMllJd3dCc3RCaWhjYWp1S0w1QUg4eUtSYk1PWFVuXzdoTjFNb3UtSTVxSXdV?oc=5) |
 | Federal Judge Temporarily Blocks Trump’s National Guard Deployment in Chicago Area - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQYnRrSHNUR1p2RVpSb2JUY3NCTmNPQnQ2V084TVkwVmNRdjFCWW5Zd2dvV1V0QmpDUEVOR2J2QmVnZGZJa1Atck1wVWhUVWtyY2lYTEo0QUtEMlBYdDJkVE85RXNLUFNDWjN1cnJIOHdEdng2bUZYUFpuTkNDbUwwOGFEMEhUOUE?oc=5) |
 | MIT is first school to reject Trump administration's agenda in exchange for funding benefits - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNQzVTeW5sc0dQbjVpa2F6d3FORnJZTnVpVFNZdTYxREdnaWJXeko5OUN5Z1lLNjM2TGtIeWVFNHNDOUtQeEhfNUlDeU5tNWFjMWthSHBUOG91MGlUSHFvTi01X2MzVW41U2NCWFNZTTloR2FMc1V3QTlLcjhBSUxaRU95ejFfaUFtOWdYZHM5b2pheDhEMkHSAVZBVV95cUxNaXYtdXg1NldWNk9iUk5zdnp4NUFycjZ5WXBwWUdvcDVGN09WOWI2UnpVb0pocDktejIwUzFfbVd6ZkJlXzVUT0psM3Q5MG5CaGRwbzhIUQ?oc=5) |
-| Pam Bondi, DOJ officials caught off guard by Tish James indictment: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNVGEyZWRjX2JtMWNEQVY0RjdxZWh0ekVHR2MzNjdlMGtlcGhQOC12eldpbW9lckJJZE5tQUo5SThwQWZEVWN2YWEyYVNvTTBqSEhDbzFUU2Z2SDhlRVZ4YWNxUmYwVWg4RHItNklvdUhqbE1OUkpVb0tKaFZpeHFkMWFwcjB4VTlRZVNKUklZQ2o3blY50gGaAUFVX3lxTE1YNUNmNTY2bmNFNkswNWFOTkF5a1JOTUstaWZhYzV0VWxZWk1hSHFqNEN0a0hhREt5b3dLVHhyZ1RyRDBfRzZuM2xQN2w5TzA0SnZLcmlRbHcxUFY3MW1ZU1FQV3FUd2k2bVZRX1c3WWpDU1RvM2ZvdnZLNVM3Y2ZFdGJSdWhUbG4wWEh4Mno3cF9vNHF2Vmo3b0E?oc=5) |
+| Blair, Kushner, Trump: who are the key people behind the Gaza ceasefire? - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOMlhOZF9aNWZCRFhzRGY3Zl8xb1ctUWs3RVMtcUpEelpMcVJ2SjdUU3F2Q0d6VS1QaDMxUWJfZ0Zvb2dFNTBLdFRvMVd4NUw4UWQ5TWg3VmpCWG5qaW13OUQzbTRKQ3ZmbzN3WkUtRkg1SFZGQlVMaDZMWXlpQjEwNFRRb1BHSVZ6Z0RmOGZTMVY0ZlUyNlEyQk5SNXZPdDBXNjF6NWpGTTRzUUtwMDRTQnVGTXY?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
