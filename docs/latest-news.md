@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 18:48:22（北京时间）**
+🕒 更新时间：**2025年10月10日 19:01:13（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump promised not to let Israel break Gaza ceasefire to get deal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9qZ196bkhqYjdhbkpPeU93WVpOOG0xeHNQeGQyVWlidk83WUxRRndKNGZObWk2YTdVTFBnV3pfbDBNWEliNWQwOFpmUEdRcFZYUnV3RllGdVZBUDRaNmFRTkozcFNMTmVPY19sQU05WE45YVRYbjNCVjZMNVlPSVE?oc=5) |
-| 2025 Nobel Peace Prize awarded to Maria Corina Machado, Venezuela opposition leader, for promoting democracy - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQUWRxaF9vUzNqOEhUVnNmQk5XSDQyYmlvakFSVWlvb01XTWhzMW9PVWRMd21WelhtMXE5eG9ORHByMlZkb0I1Y29GOEVoWE1QeVM1ZWUtMmJGck9qalZ1X2Z4bl9lV2NzczhfZjBKRzlMZFFUc1FzdU1QQThCeTRZbU9KUnU3cnRVbWNsNFpJV3NkeXNjWFZiOG5XMXphdGZyTHJJ0gGoAUFVX3lxTE1fLWxYVE1TeGxSclBMQTNOUlQyQm5qWGJWOUhhZVpJcW96UEdvaW1ndGlzb0p3QUw0QmJlNUN1ZnZQVVZHdjFXNHo1SXhRMFlSNDlBNnh3QmFwRE5ITTRBLVl6WU5tUWNWNmlJZ3JYQUEyYmx4cGdkZV9zcV9nX1gydWJZVmdLbzYzY1ZPS3JLRGZHa18tVlA5TTdOVDVBaWpUTmc0ZEJ4ag?oc=5) |
 | Letitia James pursued Trump. Then she was indicted. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQb2xfeVJlSm03cVludzNlVUgwQ1g4UjFVRFdqY2lFS2pCaGlzbjNoWXVFRVRkb2RwcW1nNllJMDhJRGVjc3NTalNLeDFwSk4yNk1iZ0d3eWNGaE9EZW1CNzI2TFd5emNOdEJKWVMtcUNaZnhlWHMzNnlOR2lFZGdtU3k1V0YtbHRCdFZGQnp3?oc=5) |
+| 2025 Nobel Peace Prize awarded to Maria Corina Machado, Venezuela opposition leader, for promoting democracy - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQUWRxaF9vUzNqOEhUVnNmQk5XSDQyYmlvakFSVWlvb01XTWhzMW9PVWRMd21WelhtMXE5eG9ORHByMlZkb0I1Y29GOEVoWE1QeVM1ZWUtMmJGck9qalZ1X2Z4bl9lV2NzczhfZjBKRzlMZFFUc1FzdU1QQThCeTRZbU9KUnU3cnRVbWNsNFpJV3NkeXNjWFZiOG5XMXphdGZyTHJJ0gGoAUFVX3lxTE1fLWxYVE1TeGxSclBMQTNOUlQyQm5qWGJWOUhhZVpJcW96UEdvaW1ndGlzb0p3QUw0QmJlNUN1ZnZQVVZHdjFXNHo1SXhRMFlSNDlBNnh3QmFwRE5ITTRBLVl6WU5tUWNWNmlJZ3JYQUEyYmx4cGdkZV9zcV9nX1gydWJZVmdLbzYzY1ZPS3JLRGZHa18tVlA5TTdOVDVBaWpUTmc0ZEJ4ag?oc=5) |
 | Judge blocks Trump from deploying troops in Illinois for now - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNbGpBRE4xNmtIamRTZUo3dnk5QS1MaHhmRHV5ZXE0QlBDVjU1WHY2Y2JUYlJ2bUtWN3I4LUNyRElSQzZOeENOMGlUa01iSTZJcGxNRjNFVzJtWjY1TC1sQWFyZExYVFo0TWxzaWR4d1BaTFBGck1oOFVpdHdFYUFGSkQyZGdUeDY5dTdlSld0Y3VtRkE5YTZZUGNzeDI?oc=5) |
 | Tsunami threat passes in Philippines and Indonesia after powerful quake, warning agency says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE84OUtTamxDd2YxdEJjSGxWT2o4SmNDWkNKRnF3dUROUUUxWHAybk5XV3NMbGxGWXhjaGoyUU4zQ3RUUEhXMEhQd2ZmRDFxZ3lkTFM3UQ?oc=5) |
 | IRS backtracks on back pay guarantee for furloughed employees - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOSjd5anhKRkVuamZkanM0Q0MwRFUtbUZ4RHRZLTVtSEJKWDRPQ0F1Rl9KZU9PdzNsem1jMWVSQ2Q0WUJXQ2wwRDdIaV9nWkFrRXZtb0w2RTY5dWMwODZTbFlYM0dIQ3NvVldSRkZtX0czdGE3SG42VUh6VFVLWEdaVFNqYmswci16aG42blV0SE9UblNqV2RBVkZhMFBaYVZ6alM3ZU1FY2VUdnh3QWRmaVVxSC1yTDJVS2dYN2FB?oc=5) |
