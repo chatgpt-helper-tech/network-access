@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 14:37:40（北京时间）**
+🕒 更新时间：**2025年10月11日 14:49:17（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| These are the agencies Trump is purging during the shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRVBKWGlleDdxa1ZsSDhrMHBscmhfdkNjVnhEUXdzMWM0ZVI5S3VENzFveFhBajB0enNLU0JlTTFXc2RzQU1iWG1HQmRhQzdMQTNjZ19faVZ4MnctR0VadERWWmJjNFdRX3QxZFQycVBna0ltWXVFY2pvSFVwNVl4amxGN1hIZzQ?oc=5) |
+| Trump administration begins laying off federal workers amid shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNYk9nWjBTZVlGWGs5Qjd4QnBFRGpRNTVFcHJPaVJGQ2hRZFRBc2ZrZk5vaUxKcm5SejNNZkpIV1V5ZU9yVENPdFVrV1k0Rmh2bTREVVk4MVpXVG1BRndWVlZsejhrY3ctaDQtbUNZbXRLRm0zWnNObW9GTlQzaENCVnhiREpHZUg2XzRCbndqOVRTdlZrVjlfX1FUYVhaYWh1bDdV?oc=5) |
 | Gaza ceasefire in effect, Israel says, as hostage release countdown begins - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQeVlDWW1NOEI5WS1yalVhb09BdVdIZU5SSDdGUHFlRXhLOTVVNDNEWmctcGx1cjNkTk5RcThUc3RvNktxRDM2RkJydkVzMFRETlFockhzQkdxV2FuRnNKdElKNnJNREdGWlFzLXJTSGNEeXE5bkpqWTQxdGVJVFhNU01nT2hKMzd4UUk1dUhsZ2NOZEVRRF9LeVBQQdIBoAFBVV95cUxNWGx1VzRPdTA5a0hraGsyclBraV9HRUFHc3U5QWp1b01UOHdobmhQUnVPNk03aGl5ZGswZ0VyTkNsVlhRSFlfaEQwRWdFWjJ5UG5tTHMycVhXOFM2LXVzYnl5b3RxYXRucUhpVnVKRGpDUWI0bWJ2c19zOC1SbU1GWlhNZlR5bWVON3pGSHpOc2EwYzBQa1pDQWJoa012bUNX?oc=5) |
 | Multiple people dead, 18 unaccounted for in 'devastating blast' at explosives manufacturer in Tennessee: Sheriff - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQTW04ejdtMFFTZTRDUmNlRXpYekFuZDF3VDFtWEVtZENJV2RuZTdUdmx5a3NHUkp3cl9JTUFVTUtGM3RwRWlyMllUWG5CeENwdUVjdWpfSzdaN0tfMWYycUQ1VU14Q3pPVm1ZdUx3UW5fOE1GcGY5Rl9kSjgzWkxxU0loR21EckI2bVptUVFSQXp1T0I4SVl3b2FR0gGfAUFVX3lxTE5LNl9OempTcVp1aE1kQldWeEFIN3pzQnRjUTVUNHBIYjEtbmhuQ3paOVNtV1hEaDB6XzZPSm5UTzBIT3JZcVFfUHlsaDRuc0JWM1ZUZmtrS3RENlhZNzZMVVA0ZmxGODQ1U0JvTG8xb1dnbVZOYzRycVJZcTdDY1g0XzZ4dHZDdEpwSm01U00xa2NOb095VWN4WXpXX0NNUQ?oc=5) |
 | Letitia James’ indictment puts Andrew Cuomo in a bind - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQUWhYWElpeXZjX0EwZDBleTRyeWQyVEsxTEpVV1NFdTZzVWotdDNXUFJrQnVXQlVFY1JvOExMc3ZzVjFGV1VyeHNxVTY4ZUplbk1BM1pmcUd2TmUwRUpBWlF6S2tuNmFsaDhjTG9ORVZ5bC1ucnoxMUp3aXpVTkRrQ2pPOUNZREVHSVBZN292cVlQa080VC0zeHJETXhrdW52MkJaNjhheUVvYXdsTEZCYXA2NUNvQnJiSW10bzlGZnRJcUkw?oc=5) |
