@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 17:49:38（北京时间）**
+🕒 更新时间：**2025年10月11日 18:01:56（北京时间）**
 
 ---
 
@@ -8,12 +8,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Macron reappoints Lecornu as French PM after days of turmoil | [阅读全文](https://www.bbc.com/news/articles/cy4j9zz54ypo?at_medium=RSS&at_campaign=rss) |
-| Surge in Chagos arrivals prompts row over housing costs | [阅读全文](https://www.bbc.com/news/articles/cd721j8390zo?at_medium=RSS&at_campaign=rss) |
 | Tony Blair met Jeffrey Epstein while prime minister | [阅读全文](https://www.bbc.com/news/articles/c5yk16gpxj0o?at_medium=RSS&at_campaign=rss) |
+| Surge in Chagos arrivals prompts row over housing costs | [阅读全文](https://www.bbc.com/news/articles/cd721j8390zo?at_medium=RSS&at_campaign=rss) |
+| Macron reappoints Lecornu as French PM after days of turmoil | [阅读全文](https://www.bbc.com/news/articles/cy4j9zz54ypo?at_medium=RSS&at_campaign=rss) |
+| I'm learning how to get back into life, freed British-Egyptian activist says | [阅读全文](https://www.bbc.com/news/articles/cdx21gn39r5o?at_medium=RSS&at_campaign=rss) |
 | 'We can't live in eternal summer': How people are beating the autumn blues | [阅读全文](https://www.bbc.com/news/articles/c7492e5x7jzo?at_medium=RSS&at_campaign=rss) |
-| Eighteen missing after explosion at Tennessee munitions factory | [阅读全文](https://www.bbc.com/news/articles/c89d4zw8704o?at_medium=RSS&at_campaign=rss) |
-| Murder, betrayal and lies: Why we're attracted to The Traitors' dark side | [阅读全文](https://www.bbc.com/news/articles/cvg42rjjv4zo?at_medium=RSS&at_campaign=rss) |
+| Man sustains life-changing injuries after being shot by Met Police | [阅读全文](https://www.bbc.com/news/articles/c62qp1dm4e3o?at_medium=RSS&at_campaign=rss) |
 | 'They've destroyed everything': Palestinians return to devastation in Gaza City | [阅读全文](https://www.bbc.com/news/articles/czew72350ngo?at_medium=RSS&at_campaign=rss) |
 | Who are the 48 hostages still held in Gaza? | [阅读全文](https://www.bbc.com/news/articles/cpvl9k4mw8no?at_medium=RSS&at_campaign=rss) |
 | What does wording of Gaza ceasefire agreement tell us? | [阅读全文](https://www.bbc.com/news/articles/ckgyr8e0gl2o?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | Trump’s Threat on Higher China Tariffs Wipes Out Stocks’ Weekly Gains - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOUVVpamlBbWVUX2dnS2NRb2E3eWdZTXc5QmRkWGpWSmtLVGFYRWZzVGE1TE5sOTFZa2RMNmZ5aElfU0poc1hSRXNOb05zU1JKXzBrMEhWWG0ydWNGcVFSUW81NXZHaXgzT1ptZnB0ejAwb1htUWVvaGgzQzhYNzgwbERDV09zTVpiVUNyczl4MzhBRFBDclVJajdqRnVlUTBoX1QwUnN6TlZzSlJ5aUZhWg?oc=5) |
 | Newsom signs historic housing bill to bring density to transit hubs - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNc2pubTRDSUNyWUozM1hHQ0RlM21seTlaV0lHSVlGd0hOdmVSdDZaeVJ2VkhzWGFOUk05UXpvOHp0Y1hrb1NPM1NjMGp0MUZIWkYwNVJxVmVMWlBYZDM4TGkzTkEzLVpSc2ZDeS1NQUpTaDNPOFBDSklrUmtGR01CS19Ea3BscUdDQWtKLXloLTZKMUVNMGVjNm9sd0VDMUMyNnBnVXpCUnREYXlZYVNzbkp1VDJXVFpTSmc4?oc=5) |
 | Trump gets Covid vaccine and flu shot during second check-up of the year - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOcnpVZjVILWxfaHJYT0E0NTFDVG9zTjM2d293Rl9YOXBlekFyTXdWRVdlTVZ0bXlUQi1ULVBDaWI4THV6dUlpcXdoTERGZ3hsQmNwZWxzYUxhQzJMYzd0eFAtVFEycl9tdkJ5Ui1jdXcxQTBxeTlMTXAzcXZJd2ZPZ1R6X1lpQXpTRWgxdW1tM3JQMTRMRzBuVC1ndWU0Q3p4cEt6SkFpWFZVVGN0cU1IbzhnMVptQdIBVkFVX3lxTE5UeHdyelB3SWFNQUZmYlNycV9DU0h6dHlOajlZWFA2WHNnMkRMVmlvQjlVbV9LMkR6ZDJoUFpRQlU5UzlOZ0ZHb01Eem1OUjVYejIxX0RR?oc=5) |
-| Letitia James’ indictment puts Andrew Cuomo in a bind - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQUWhYWElpeXZjX0EwZDBleTRyeWQyVEsxTEpVV1NFdTZzVWotdDNXUFJrQnVXQlVFY1JvOExMc3ZzVjFGV1VyeHNxVTY4ZUplbk1BM1pmcUd2TmUwRUpBWlF6S2tuNmFsaDhjTG9ORVZ5bC1ucnoxMUp3aXpVTkRrQ2pPOUNZREVHSVBZN292cVlQa080VC0zeHJETXhrdW52MkJaNjhheUVvYXdsTEZCYXA2NUNvQnJiSW10bzlGZnRJcUkw?oc=5) |
+| AstraZeneca makes deal with White House to lower drug prices - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNYlJxakd0Z0MtVzkyTFJrbG95NkVkZFgyUngwRFJyVzRjRkNkZEFiUW5la2dOQ0plUFVsV3FPOGVqR2pTM3VSRV9SY0JONHphbjBWY1NBajFKeU9RTjlFX0lSZHlhTHdaeXB3QUxkQ2x6Z3k1Uzk4dkVQRWNsck5oZVNacGdpRTB0cndXLV9tNXEzcm4wbHVaVG1Bdkg2cjZKT19J?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
