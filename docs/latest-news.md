@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 11:25:11（北京时间）**
+🕒 更新时间：**2025年10月11日 11:38:00（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Government shutdown will stretch into another week as thousands of federal workers face layoffs - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQMnVFZjljOXZTNXJOT1NUckhoSVM5NUY0QjF5TGJuSllHTDJPSWpZWDhTWW0ybTZqSDI3VjVaOXl2ZmZ2eEhaWXE3QkJXeXFGcUpFeXZHOUVpUXE4TUg0V0l2VzNIdkpqcjdILURtWEVycC14Y2tBcHVhakoyWXdidmJZYVM0eWh0dFdqZ09JNTV2enZ5MGlOb0VHbzV5dWk1aEtGcmJaNkE2RUlNcG5qbWp5UkdYYUtHSzdVZmZMZG7SAcYBQVVfeXFMTzZVWjZEOFJuRXVWVW1HSkRTcWtjNUlBem1Edi1GR2tjdmx1eXFGTXR5RUZ3d1BnS0wzNlpzMlB5bXhpV0syNjdtcGJJblZEVXc5NngycXNFYWZmSjl4OUY1LUlvdFM1SE5ZZmxXdVBjZDZuWGc3c0t6V0x6WHdDUncydHdMdlB0TmxqTGpwbDZ2RzNLekRnN1ZuU0lOSTgyQUFnY2hfdkpKN1VrZU1GSTBvNjZTcUZNWTdHUEpOMlZvdnVZZzV3?oc=5) |
+| These are the agencies Trump is purging during the shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRVBKWGlleDdxa1ZsSDhrMHBscmhfdkNjVnhEUXdzMWM0ZVI5S3VENzFveFhBajB0enNLU0JlTTFXc2RzQU1iWG1HQmRhQzdMQTNjZ19faVZ4MnctR0VadERWWmJjNFdRX3QxZFQycVBna0ltWXVFY2pvSFVwNVl4amxGN1hIZzQ?oc=5) |
 | Multiple people dead, 19 unaccounted for in 'devastating blast' at explosives manufacturer in Tennessee: Sheriff - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQTW04ejdtMFFTZTRDUmNlRXpYekFuZDF3VDFtWEVtZENJV2RuZTdUdmx5a3NHUkp3cl9JTUFVTUtGM3RwRWlyMllUWG5CeENwdUVjdWpfSzdaN0tfMWYycUQ1VU14Q3pPVm1ZdUx3UW5fOE1GcGY5Rl9kSjgzWkxxU0loR21EckI2bVptUVFSQXp1T0I4SVl3b2FR0gGfAUFVX3lxTE5LNl9OempTcVp1aE1kQldWeEFIN3pzQnRjUTVUNHBIYjEtbmhuQ3paOVNtV1hEaDB6XzZPSm5UTzBIT3JZcVFfUHlsaDRuc0JWM1ZUZmtrS3RENlhZNzZMVVA0ZmxGODQ1U0JvTG8xb1dnbVZOYzRycVJZcTdDY1g0XzZ4dHZDdEpwSm01U00xa2NOb095VWN4WXpXX0NNUQ?oc=5) |
 | October 10, 2025 - Israel-Hamas war - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOVXVDV0haazNUMlpwSjhJaFBOeU1Mc0VqNW5hdlFIdFoyY24tWHpsZFNsLWRWLXdrQlVkNjc5ODVud0E3d0o5cWQ1clA0SnlHV002b1ltWndLMzBjcGFpcXZ1SWNtdkVZLXh2ZzQ3M05sYkdKekFlVWlqbENWMVhqWlFIQ2RrY1lVbWc?oc=5) |
 | Newsom Stares Down LA Revolt in New California Housing Fight - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPRDcxdlZwOFR4dUFfaWVQclBEcUFLc295aC1tX18yYWtLMlFFaWhXNmFZR015M0d0ZjN6RDNmVks3bkF0MU5LNXhCUjcxaWdOc1hXb1BEVllVcjhzMnNfWlNRNjRNdGJMNlVCck9CU1JtR2tMa0ZuR3htLWczcEVRN1ZJQ2tlcWU2OU42SE5IM2U1YldnLW1wNWN5N2twaGJ5VVUxZlVDd1JmRVBl?oc=5) |
@@ -32,7 +32,7 @@
 | Trump threatens 100% tariff on Chinese goods over over rare earth restrictions - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1lcFF0emJhMzc2ZGlPa0VaSmhhc0ZkVGc4c0NsSFZrMVYxSlZnNXJmSzdNZTVac1ItMVRnSVhsNGRIbXdHX2tYTUFwMzB5b1VWTk1OVE9tQUh3VzdzT0x4M1A5b0kzZ1VVeU10Q0dxbU1MVUEy?oc=5) |
 | MIT rejects Trump administration deal for priority federal funding - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOTXVVSVJ6cUEtOFJiem5EdmlHX2ZtRERVUlZhQXkyQ0FsQThTX1ljZ1RpejJEMVp1R1otYnpJRjJxMGY1ci16SE9vZ18yVl8tVW5Zcllkb3gzeExteC1pZk9kUnNFRUpTeXFLb2dhdjAxNDlqNDJYOXppQk5DU04tMjhmQjkzUkQwMnZkQW5GVHB3WE11UzlOX2xER0U?oc=5) |
 | The Official Website of Governor Phil Murphy - NJ.gov | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFA2UGNCcGlPc1pWQXp1aUc2NVhDdC1JaG1pWFBlNVRtdUh5d2ZUZnZMSTdQVHM0YXlVY01FUE10NERfam5wWGlCSTJEWG96Q2pXaExzUkI0OFA2WGRpeWFxazEtMkN5SUYwRldMdTVLUG9lZDBkQ284dQ?oc=5) |
-| Trump received Covid vaccine and flu shot during second physical of the year - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPd1ZLZnBaeGNCcGpqckhmdHJkakZ4TzU0Mjg4MjZUNDhuVmtKWVhkZVRzb3pBdmg2OU5uUnYzbnlDc2hZMnRsRlhDbWxLNDlWNEJ5YzU1ci1vUmhfUnphdXhJTlN2ZndUWUNpX181UlFXT1I1N2lqX01tM0h5Z25EWHFJOGJqYU5QaTV2dw?oc=5) |
+| US announces it will allow Qatar to build an Air Force facility in Idaho - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5mdWZuT0JYc0x4bHZLdE51RVVlMlRyOXhkZmhKYmFPa3JyS3VfVXNvSXlnM0NMZ0NDZlYwcENXaURLckh4MHZDRDBSSlNsTFAwNzJTQ0RVekFWZW9TbjBZdmJ5dkJYS3NiZXBEeXFuWXhXMk1RX21QREhn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
