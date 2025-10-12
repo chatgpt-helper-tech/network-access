@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 14:01:50（北京时间）**
+🕒 更新时间：**2025年10月12日 14:12:54（北京时间）**
 
 ---
 
@@ -8,7 +8,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Israelis praise Trump at huge rally ahead of expected hostage release by Hamas in Gaza | [阅读全文](https://www.bbc.com/news/articles/c75q5qng0rgo?at_medium=RSS&at_campaign=rss) |
 | The women taking Meta to task after their baby loss | [阅读全文](https://www.bbc.com/news/articles/ce8450380zyo?at_medium=RSS&at_campaign=rss) |
 | What can the King do about Prince Andrew scandals? | [阅读全文](https://www.bbc.com/news/articles/c04q4v64q05o?at_medium=RSS&at_campaign=rss) |
 | Academy award-winning actress Diane Keaton dies aged 79 | [阅读全文](https://www.bbc.com/news/articles/cr5q5rp4r64o?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +16,8 @@
 | Strictly celebs starstruck as Wicked's Cynthia Erivo soars into movie week | [阅读全文](https://www.bbc.com/news/articles/ce8681j3n07o?at_medium=RSS&at_campaign=rss) |
 | Hamas mobilises fighters in Gaza as fears of internal violence mount | [阅读全文](https://www.bbc.com/news/articles/ce8482418plo?at_medium=RSS&at_campaign=rss) |
 | 'We are inventing captivity medicine': Hospital prepares for freed Israeli hostages | [阅读全文](https://www.bbc.com/news/articles/c4gvg8jx7gmo?at_medium=RSS&at_campaign=rss) |
-| Starmer to attend Egypt summit on Gaza peace plan, No 10 says | [阅读全文](https://www.bbc.com/news/articles/c9qnqx7znqno?at_medium=RSS&at_campaign=rss) |
+| What we know about the Gaza ceasefire agreement | [阅读全文](https://www.bbc.com/news/articles/cvgqx7ygq41o?at_medium=RSS&at_campaign=rss) |
+| Cold, flu, Covid: Why is everyone sick right now? | [阅读全文](https://www.bbc.com/news/articles/c1jz608l9l4o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
