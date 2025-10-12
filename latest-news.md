@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 01:01:34（北京时间）**
+🕒 更新时间：**2025年10月13日 01:13:43（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Beijing blames US for raising trade tensions, defends rare earth curbs - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQVmJhbXBHVS1lRGxYM05WSG9xQkNzZnpyckoyc1BQczV1WDBkMVFQQTUxdy16NlRMMWtEY1pBeDJMU3dEOFUwdmdfeTktX2JqQk5kQW12R2dMY3VyRm5XNzBuQkluT2tCckZXay1mdkJBYXV2SzJUOEg2cDkwYlJNT1FKNTFERnV2T1FMQzhTZ3RpbDJRdlM5YVV4R1dsUnY2YlZGeGd5Zw?oc=5) |
 | Pakistani, Afghan forces exchange deadly border fire: What’s next? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPUy1XdXo3alJ5M2VJT1lmWDVtNGJJVEljRktQLWw3RDJTbHhhTlpoRFZBazhiS3lwdFhIMjZoNC1mOVBsZHQtc3JVYnlLZTZzWE1UM2JGQnFyRWdaWnExUElscWs1QkNiUEZZUUwxRTNvdHdzYm5vcVZjdmpsMU56MGc3SHFlUlNnX2ZTakd4QUc4ZlNYTnpQdWQ3cldHd9IBowFBVV95cUxNOWlxNzRLbEhBdElFdW9QYnRJN2dhTlhoaFppelMzeGhqOEJyMUlPeFdVbDUwUm54dC1keUFHSUZSQ0xTNEFGRW1ySzJGelNwdTdxQ2gxVkIxVVdMXy1GNElfYjhnaVh4cVRabGRIcG1xTzdEc0FlYmJwdnUxSTBKVkFDcVZaT2xST0I1X2NSMThqeTVkdXd3Q3lCb0VYOW5mVmMw?oc=5) |
 | S.C. bar shooting: 4 dead, 20 injured, sheriff says - AL.com | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOTjdQZkc2emswMmRRUEpvMzVYSGprMUpOdEJwZkQ3WnlyOFJEMnpGUTFSeU9fQWdSNHlvczNqWHd0WVZJbWpGSFlnSlJGSGw5ZWZhVDhrSzZUazI0YzZSbkhYRXMwMWpodFdja3FOOWRlXzIzUnNxa2NmQXl6b3lwckI5NHMxenFwLWFn0gGfAUFVX3lxTE9PR3pySmlmaXIxdTBHUl9obkY2SjhJemQzWndacjUxZ1BPcF9GcW80ZG5qNlo1OVc3cW9HbzdkTnNWRV9ndXFfV1AtTzEzNnVFY0lSa0tZZ0w5NDNFaVh5U1NDNUkwazNWQ0JUNFhUMk5ZV3duQ2E2Tkt3T1drQnRxR0Fna2FDSWN4R1d0R25OZTNNNDVRRmRLamtxaUpRcw?oc=5) |
+| Johnson says he had 'thoughtful' conversation with MTG about bucking Republicans on healthcare - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQOEJRYnA2ajNkOTdGZ0U4Z1FkNWR5THdCWmo3bFZFb2R3MkwzNHJXTWdyalBZVEdwQTI0b0ljUUhJVkllYTE3UzF4VGxHLVBlM1U1NjZCTUpMS3BtMUVFMU41bFZXMG9IS1VRcW1ud0pUTWNVT0dpWGVNMU1MSVZRYnJFb1d2Ujl4cGgtVEdMeHNjQTJsR1E?oc=5) |
 | Appeals Court Allows Federalized National Guard, but Retains Block on Chicago Deployment - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBpN2l4ZG5od3VBV1lpNGZydnpnZ01oQ2U4aENTU0pqb00xc3ZiWlVyTVFDZGZQYmVXbV9vY1lmdGczQWxTSEp1QUVqM2tvRG1pZXhYYTVURnFRS2o1SjhqcHVyTFgxVmNSY1hfanlYbFpSb3M?oc=5) |
 | Sen. Mark Kelly says vote on healthcare subsidies alone won't end shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQQUJGT2VTVkRSOWV2MXVnNHFnMkNrSFQwdkpENWZybVRlbUtkYTFBY3NfcnVOSGNPZkdfMXBIcmIwTnJ4RG10UjI1dHdaNDBzYlhLMEt0dk1GNFBReHZmYnpIYk9WNG8yWGxZUFRZUUtJUmtMaDdOSVI5bWNfZ3kwcnRWNnI5VWljSVVKQ01peF9TV014VGoyLU0tWFZkb0V0?oc=5) |
-| Justice Anthony Kennedy on the Supreme Court today: "A little bit too personal and confrontational" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQU29fbjdxd2JGelJTSF9BbVlGSlF2RUhCVTN1Rm16YnRnVlo5YWVZNjdKSnZOc21oazhiTVFWXzMyWUZWN0laWlJ5N05qYlJncUFMZWdoRmRSdENEY2Z3YzJoTEJyMUVUaVJsdFRGRVhINElmbVdETTVmNFoyMjBkMDBrN0FNRG5JV0EzNEdHSG5pOW5OaElZcDV2NVV0d2Rid2lZQThORTlCM3R4UmJNLVZ2ekhwS2d0NWFHZERibzR5OUtW?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
