@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 04:24:02（北京时间）**
+🕒 更新时间：**2025年10月13日 04:36:33（北京时间）**
 
 ---
 
@@ -28,10 +28,10 @@
 | Vance says administration will keep fighting to send National Guard to Chicago - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxON0R2d0VkNmFSeGRvc2lqb3ZBSlhQcU5ycU84NWM4SFBKV1RzNE5zUi1PVDA2M2piWVhoQ3Y4MXF2al9NQmpUYm5WSXBaaHF4RmFMNW9HMmJwcnp2bEpNM0dYTm1pUzB6YWlISnZxVGQyZms1OHhOYktoXzJyTUhOV2tpUlhac29WWFBSNVNPcmdHdVQ2d1ktT1NkM29tSGFXcThJWWI4bUppUmM?oc=5) |
 | Trump’s 100% tariff threat sparks defiance from Beijing - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOT1hweTJ1V25qZWROZWtSbUtCTmlsT0lKMlBHTWlZN3JFUUZCU1hLN1VrdzBvZHlnWVpjakM2SHNnQzhXR0ZLY2JzYkR0VUpNcDB4VFlkU25uM0hrYW0yemZ2QWV0MWZFU0VzVGVpNDBiZF9GQXFqd2VTLUJFWmlqd1U4cUpWa1F6?oc=5) |
 | Strong nor’easter forces water rescues and inundates roads as it moves up the East Coast - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOR290aFdtTVhQMVBDNnp3YnFDU25lSG1PNmYwNTlwOWluUEpEaXRKNzVPbUwycm84VUZQNGZRZU9uUzFoVDVQQkhzZk5RUDF0dWFEYUh0ZTBPN2RlSHg1ZGhzZlRnVFd0U194TTNQdjRWMVh6b1VhVkszX1hadWZicHlqcFQzMzZpUlVYWQ?oc=5) |
-| 5 things to know about the health care fight behind the shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNZlJMS2MtR0ZOLU10RURaVDJXLXBGbGRwdmRWTFRaTEpjQUJjU0pQeEZPT245NWtUQ3FMcWt0Sm9HVk5sSG5wb2FpRkw2bmhlNTJTSkUxSnRiM05hN1hQS3ZNNGRsaVo0NHVyM2hWOVk0a0p6cGFrSlhaQXZkWGRPZ3F4TjVDajR5?oc=5) |
+| Overnight Violence Between Afghanistan and Pakistan Threatens a Wider Conflict - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQa0xnYzQ3MzN6OTZHV2hqOURoMS1Ndk1udm5vY1kxVG91QWhrV3hCc1F5NV9FVndLNklFVm83VG5EOC1qcjlpSEh3aFhYNGszamJtMWxZdXlyQlJpeU9xVjFfWDR4Q2U3QnJmWmU4T20wM2h1SUZsQ2RacDYyN3c5RG5aM2dmYmRNNXRtWENJSXY1eFU?oc=5) |
 | Donald Trump to travel to Israel as country anxiously awaits hostage releases - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9MWVdNMzc2SEVON1AwZ2JvYVh6LUFtS1l5UnVtZm5GaGRwYU5HTGU3UURtU1MySjVIREV6VDVnQURVcHNvT2k4bXgzNUpQUHdCUjk2S3dadWRNbUNZdkMwUDhPaXhXYVlrR3Fxek5wdlU?oc=5) |
+| South Carolina bar shooting leaves four people dead and 20 injured, officials say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOSjM4bG4wRXI3dzVWeFdsMFRQRVo4RHRkcDZ1SFNfS2tnYWE3YTI4M2xfTjNZdHZGYTJZVHZkRHFYbXpudjM5UEdobXdvTUY3ZEo2QzVnS09OX3AtQVpaS3NOUjIySzN3QndrdEtxQ0VSOEVFazBHZ0pBeVZCeUFzZA?oc=5) |
 | Death toll from Tennessee munitions blast lowered to 16, sheriff says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNTnpscDVGWm43ZlVWNjhWS3JJc1lKcWZYamlWR0VCRGVhLUNpSm5adkVTLVFFcW5aX0Q0Yk8xeU9VZDN2NmVLUGM2MktVWi1kd1FKeXpFVGhTTjRTZTVnUUR6QnBXR1h5WlBOaU5mQXlZcUJYMURfczd0SXF5TFllRUlYUjB0c3NzN2VxdEtCUkd0RVZreUtaZlJXc0JWb0xlU2NIUlR2ZFNudmt6YWJ2czdieGZxN3FV?oc=5) |
-| At least 4 killed, 20 hurt in bar shooting in St. Helena Island, South Carolina: Sheriff - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNQl85STZfWXZZSzQ3OHZjeHJKcDZ2RTV3ZjkxU1MzLUNHS1JzOFJ2VUIxSGxwdHpVR2c1OVJnUmV5WUM2N2hBemxZVEdpalNNdGszSGRJZkRWWFJUVllKejZWMDlKYldyOVVaZDFMc0VSMEZ2cEFMV295dlVLaEZyUUhEckNyb2xFbHZqa9IBkgFBVV95cUxQcURMekFrekthQm14WTZKMEpUeERmUmRPbG1xRC0zTHRhTnJhRktIMTgzMW5HRU9ZZWx0N1NnOG1hNnRNS3FGc2U4VmlKWGt2QldUQ0N3WDhYYWhGektqRVFNU3R5eEx4bW1XY2tNZlBydHBvQkItcktuU0tfT0tZdEFFOTZkT1dVMVdycXZzT2YtUQ?oc=5) |
 | Trump ‘looking at all options’ amid threats to invoke Insurrection Act, Vance says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOa3ZjeHpyOGJmb0ZPckZYSjNhRThXcE42d25zbG84LWZ6M011X0V6WEtkamgzakxPVGx3eXkxT1VremltY3F5aGt5SG5xV0d0WXMxSFBWbEFYcExsdFRjbWNHV0x3clhUYlJwbUlLbGwzRGUza3lxSkgzaElOc1FQZWVMbm0xc243YzVKUzNR?oc=5) |
 
 ---
