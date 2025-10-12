@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 13:13:06（北京时间）**
+🕒 更新时间：**2025年10月12日 13:26:00（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Appeals court bars Trump from deploying National Guard in Illinois - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOWHlfS0xGbW1vZkRtWFk5Vk5ycUhNRjU1WDVZM0hrTFBybFV0dGlnQTM3WjV1RlA3Wmc4eENUVTZLQXNZc2xtYnotNlZabDd1NjVLOE1lOTJkeVZRZVg2MnBkVk5xdkxpYmJjbmNRd2syMWVYX1NpdUF5SkRsQTNWWHJvcHhGZnpJ?oc=5) |
 | N.J. weather: Nasty nor’easter on track to slam state with high winds, coastal flooding. Latest forecast. - NJ.com | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxPUDhwMERocmhQRDlJWUpoQzNkb2RVTk0xVGdmYWlOdFJTU2g1WTdZWmNvRm9Xb3gxV1FfUlU4eDJ6WnN0dXZ4N1p6NjFMRmZwMXpsM0NHNWpkV2p5eTByZVN6RFU3U0s0aUtoR2lzeV9Pa1VUZjVvZnZBTUVtc0psZ1E3SWJ4YjAzUUZQTmJiUkU3Y2ZNakwwOEVBdWlEV3hrdEphcG81b1M2VXNlWVk5YmFsLXdCTG1lZHhMa0lpQ2tkb19IU2tMWlhuc1dhMUdBWEJiWNIB6AFBVV95cUxPSXlYVXktdlJFdWFjdVl3WUc0TXpFMUgzQkdjS0Z6TkI3LUNNWHVZcTFST3JkdFN3RzRXb0E5TnR5TzdHSGFjNVB4Q0VVMEk4UGdGdm5oeHNsOGQ0ZEdFQjhTYkZJLTN5elkxUkZCUWFCVEJNUW44cjNrQV84c2NOMVAta19VaVBVejhaTVNNMWdCNnU4d05Ia205OGxLbUtNSlFFVVhvZW5uRVFuQW9KSzJEOWpVVFROYVdrNlhoMDVNRXR2UnAtR181ckcweE5TZnZyOHNWcUZ2YlVETDJUWUd4Q2JkRjBR?oc=5) |
 | Trump's indictment of New York attorney general Letitia James stirs concerns for Black women leaders - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOWmx6UmliSEVrYlByTEt6RHNsd2JSVGdSbnJLRzFoZjR5dW9SYzlzNHNVOFVOeV9NMXZyTnBkMm82YUZzMXJkaGdVdldkbDBmNl8wYjBXUkw5SW85TTFKYWRGejBOU1R5UWZzTTV3SFJwa2xZSXJ6TGNRdmNGOGl4OXF3LWdsTlZIZEd4RGVTWEFiMmNDdHhPWnZULXVLU1IwSWJUWXZnb0xtWWM?oc=5) |
-| Nobel Prize winner Machado says Venezuela is in 'chaos' under current regime - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQV1lfV2xsQUtBUHJtSWV6cFhqS3I2NWZIS0E5b0xOYzJyWEpQcDRkYXFFTkFTUHJXVW1RSWVWYm82TmxNcVAtMC1ybVZqSTcwVzlxLU51ajlfYXFicUI2RmM4RDFhY0pXdUpHRFVVdkVkTFNrN25zQTBXVFRsWWx1Y09MT1RGUWp6cnc?oc=5) |
+| Israelis Rally for Hostages in Gaza, Hoping It Will Be the Last Time - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPR3Q3dXJqV29HR0twUUNpQTBYTkc4blgycmMwN240VmJ3VlJObkdiTkFoZFh0MTBqcUlrU0J2azZlNnBFM0NScWl6emw4WGlZcEc1UVl2WjB0NzBmVEN3cEY3NjhEWDcwWmlFYXoxamtjNGFUM1VEWHV1dzZHQm84OGtoZ0tzelpTTFdMTWl3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
