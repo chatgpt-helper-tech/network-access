@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 00:12:56（北京时间）**
+🕒 更新时间：**2025年10月13日 00:24:37（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | Israel and Gaza prepare for release of hostages and prisoners - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNcG9IM3pFdzg0ejNHZ2djUUV1clVYUVJSYnFla3JpUER4UGpIOF9JbzF5MmlYc3IxbHJwaFBIdUpXX05jalk1OWloMDJkR19IQ0lBVFhLWDhZdEdtMnFIdDJjMl9FYVpFREZXRzRzU2RXQnBNTUlJTkxWbFFYQmhnbEplZkFQTE16SjM0VWVjQXM0WmQwX0tWQ0xXbFZYRVhkV1diLVJ1T2NBYWc?oc=5) |
 | Investigators tread carefully at charred Tennessee explosives plant as families of 16 blast victims learn of their loss - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNbVIzS2JhMm93Z0EtR2pLOTB1dmVmRGstejUtRGRSczU5YkE5RlFVc2p4NktRTGhJcDI4UFJzc1VMVlg3bVpyenc2dVZKbVN1aF9WZzQ1QTRKMTRxbldlSTV4ZDRmaVFrdUFPT1N1RzVvN2pUaWJNd1NFQld2VXBlQzFUXzM0dzlpd2h0cw?oc=5) |
 | 5 things to know about the health care fight behind the shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNZlJMS2MtR0ZOLU10RURaVDJXLXBGbGRwdmRWTFRaTEpjQUJjU0pQeEZPT245NWtUQ3FMcWt0Sm9HVk5sSG5wb2FpRkw2bmhlNTJTSkUxSnRiM05hN1hQS3ZNNGRsaVo0NHVyM2hWOVk0a0p6cGFrSlhaQXZkWGRPZ3F4TjVDajR5?oc=5) |
-| Trump Administration Is Bringing Back Scores of C.D.C. Experts Fired in Error - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1LdUV5eW9kT0tBejl3MWNRZThIQlpZTnZzRThxNEw3aW1DQ18xVTVZZHhxdGc3TnNhRHBvSU1XQ3JCcVl5bFprM0p6b180UGtHbUtNWnE1ZE9qOGxNUXVwdVpvRWpUcmRnMGM1OGJXTHNSVEE5?oc=5) |
+| HHS rehiring some people fired through reduction-in-force efforts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPNWV2c0xndE9mVWQ3OFZWd3p2dldHY3pYdDlva2FWYkNGRlBLZkk4VDZORzRyR3U5enRwdVRjSWw3NWczYmZrLXdzcTNIYUM1TG13Ulg1QXppd284U1N3WjdFSGRBcGNPSVN4MEpjU0Z0UG9IMTQ2WHVoUGN0MXpWeVU0UmNQak9ORWY1dTE3TVRYdTlvMkt4bkFwWQ?oc=5) |
 | China accuses US of 'double standards' over tariff threat - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE56YWpabzhsQ0xLY1dmVkdkUDctQlpfeVZOd2s4OC13YXc3YWxHVXpwZEsxQ2p2X0VlQkRFVHJROTRSa3d5bV9yU2hob296b0dEbUJQTUNwTVpMUdIBX0FVX3lxTE5ZZXlabFVGbnA3cHBWczhJUjA0aXFFTlNuSjRtclpTajIta25hLWtfbnJpbFNpYTFJcGFFa3FJUTdHM2dPamxJNnpGUHBvcGR2LU5DTnYwOWRhZjU3SEdv?oc=5) |
 | Dozens killed in Pakistan-Afghanistan clashes, border closed - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxObnphMWRFdjlZU2JmSTBJOExITFZyaXBiV0h4MS1taXpGekRzSnE0S0piMTZoNy1JZEVLOWQ1b0lyODlNMEEzUGMzM1g4Q1k2RkFYZXBMTENfUE1oTW80V1YzSXRoTF9XLUR4eFVjNEtMT1l4amZLaGlMLTRjaVRhdjhxaXdmV1BqVks4MlMtYXdVQVRfbTFibUZ4dFVxTEdzZFkwa080cmhDNzNMd2Z6QXl0eVZRVU5KRmVQY0Z1X0tOdw?oc=5) |
 | At least 4 killed, 20 hurt in bar shooting in St. Helena Island, South Carolina: Sheriff - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNQl85STZfWXZZSzQ3OHZjeHJKcDZ2RTV3ZjkxU1MzLUNHS1JzOFJ2VUIxSGxwdHpVR2c1OVJnUmV5WUM2N2hBemxZVEdpalNNdGszSGRJZkRWWFJUVllKejZWMDlKYldyOVVaZDFMc0VSMEZ2cEFMV295dlVLaEZyUUhEckNyb2xFbHZqa9IBkgFBVV95cUxQcURMekFrekthQm14WTZKMEpUeERmUmRPbG1xRC0zTHRhTnJhRktIMTgzMW5HRU9ZZWx0N1NnOG1hNnRNS3FGc2U4VmlKWGt2QldUQ0N3WDhYYWhGektqRVFNU3R5eEx4bW1XY2tNZlBydHBvQkItcktuU0tfT0tZdEFFOTZkT1dVMVdycXZzT2YtUQ?oc=5) |
