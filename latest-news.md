@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 18:25:43（北京时间）**
+🕒 更新时间：**2025年10月13日 18:37:34（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Asia Markets Fall After Trump Threatens New Tariffs on China - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPMkZZYUFyWC05Ujc4UHAybDNscl9Nbzl5Z2pCRVZEZ2dwZnpOakFUWjB1YXBvUndYWVlCdk85QTZCVmRKazBkd2IxQ0lRY3RxcmtOMGxFTjhTNFZvcUs4a1ZKUnB1VFhOczBtTE5rOWdCTmlock8xYkpyN0lGRmlJc0JabEcyZDhsQVNr?oc=5) |
 | Dozens Rescued in Remote Alaskan Villages in Storm That Swept Away Homes - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9lVU9HU3E5cjllM0lUT3pWaGl0VlJua3F2S01uNVpOTDhSLTZPY0psNHlOSHdzbVdjMDNudDVtMGgxeTFOTlZZTmFYZTNNV2xaSzQwdThHRHlaZUhJcEdxNVdBYWRRWmFsbUhtOXJucWhJX2x0?oc=5) |
 | Mass shooting at South Carolina bar leaves 4 people dead, more than 20 injured - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQaFJmdVc5YTZicTVnb1FodGZieU9nM3VPTmZSNVBZT1VrbkNSQ25RNXFpa0EtRDNfU0IzUkZBcHA2bG1FRmJFeTM0ZFpaaHJZRkQweXAxYWVicjViY2RrSnZOeFF6a3RIcWJLc3JKWHhpcnBKX3hYUjhqNlVXZFpsa0pGOWVPVmlGaDZfY18ydFhvMVBKbmNRXzVCVUVFMXhXNVFlTTBRLXNHOGtoajhCM1N5WQ?oc=5) |
+| Helena Moreno Is Elected Mayor of New Orleans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPeDluMm1JaDQ0Tnp4aFFkZmF6MURDckkzYnlCUzdhSGdUOUU3d0JadTl4bThoTWdIbERsZURrZU5aRGJpTk9EM2V3RlE4Z19RNHZJakZ0MVVLRkVsd1U3U05hVUw2SHd4SDZlZWZaQ3l4YjhNTDBDR0hMYVpSeWpaa19SYkdYanl6WFE?oc=5) |
 | A factory that makes munitions for the military exploded, killing 16 people and leaving no survivors - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQeU9MQ3RoT3lMYU1GNkpocEdWRllzcllxYTFwYWx4Zm0xb2V0a0paS0xGV2NjelRpeFRGZzZjY0hlM1d1R0JpcF9VV0YxQlhZRUdCMzF5WkREZjNvZFpYWXZPN1RRNkY0TzFUanAtZENHcGdxV3ZBT0RhcnJ6U1Q4SXc1VTduWmlZQnIwZWtYcTB6ZzdhY1J4Y3kzRE53T19sUVBNUW1qNkM?oc=5) |
-| State of emergency declared for NYC, Long Island and Westchester County due to nor'easter - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOSnhZbXppaWtNQnU1ZVVMVUJyZTRzaTVycFF5ME15RWFnQ29URk51eXNlb3FPWGlzakRGYWVQUF8weVVZTWY4OEZ5dm9VZVZGQzZMV3k4ZVhzblVXV2MyNDZRRVdUT3VPQ1JaVEVmcGIzT3NxejJwRzE0LTNXSUY3eDl3UHdEdERnZWxrU0hRX1JUa0s0YVZMRUpaakFxS3oxeVIzNUpn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
