@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 13:37:22（北京时间）**
+🕒 更新时间：**2025年10月14日 13:48:31（北京时间）**
 
 ---
 
@@ -9,9 +9,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Israeli hostages and Palestinian detainees freed as Trump hails 'historic dawn' in Middle East | [阅读全文](https://www.bbc.com/news/articles/c740jx07vz0o?at_medium=RSS&at_campaign=rss) |
-| Chris Mason: SNP are the latest proof that things change quickly in politics | [阅读全文](https://www.bbc.com/news/articles/cdx4lz0789xo?at_medium=RSS&at_campaign=rss) |
-| Tens of thousands of homes fitted with botched eco insulation need fixing, watchdog says | [阅读全文](https://www.bbc.com/news/articles/c3w965gz8zgo?at_medium=RSS&at_campaign=rss) |
 | Firms advised to put plans on paper in case of cyber-attack | [阅读全文](https://www.bbc.com/news/articles/ced61xv967lo?at_medium=RSS&at_campaign=rss) |
+| Tens of thousands of homes fitted with botched eco insulation need fixing, watchdog says | [阅读全文](https://www.bbc.com/news/articles/c3w965gz8zgo?at_medium=RSS&at_campaign=rss) |
+| Chris Mason: SNP are the latest proof that things change quickly in politics | [阅读全文](https://www.bbc.com/news/articles/cdx4lz0789xo?at_medium=RSS&at_campaign=rss) |
 | Authorities identify 16 killed in Tennessee explosives factory blast | [阅读全文](https://www.bbc.com/news/articles/c98n4g3p1x8o?at_medium=RSS&at_campaign=rss) |
 | Powell made no decisions about evidence in China spy case, minister says | [阅读全文](https://www.bbc.com/news/articles/cvg4r177k52o?at_medium=RSS&at_campaign=rss) |
 | 'You're my life, my hero': Hostages reunite with families after two years | [阅读全文](https://www.bbc.com/news/articles/cyv8p8m4qg6o?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | A powerful storm will continue to hit the East Coast through Tuesday - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOSjlOTEFkQ0gxZ0VBdkY3VURINDNUOG9LTWZrM21rYmlPbUZzbjBfUTRSVVVDSk1UU1RuQWdBZ2pBUEhpQVlQZGs3R0k3T1B6dEJqYzQ3RVNWLUM0U3BvVEo4ZTZkR2s3dk5NbUN6UGFOVXBva3ZGX2FidG96dTJxMF92X2RKR2prOTN1UVFVb0VBZw?oc=5) |
 | North Carolina Republicans Plan to Redraw Congressional Map to Add a Seat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNSmxIMjdvd0JYNlFBcHZJbTZsYWdqb2JQQkJvS01GTjRJakdjVDJ6UmE3MjJjenR0cmZlNWxadHhENEZPeHU1RkNBb1hDa2NjQWtBbnBZZFBMYWlGb3RscEtkVDJKM2s4V0RQeFc0R2dBeUxmZGRzVnFyU1BjZXdpS19CeTh4YlhMOUw0?oc=5) |
 | 4 arrests made in connection with Mississippi mass shooting that left 6 dead, FBI says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1GLVJQR3ZBN3JISjBnSGRXX0hTQUwwRUYtSU1EUHltdXZrdDI5c2ZSaHFRdFBxMThfdldYWHFNQ1k0QTVaeDBTLU00U0twdDgzblB0Y2xZLTRyaWlmMWlfazNSdkhNelMyQXYtcGIxUm5SUmtiQlQ5Z9IBfkFVX3lxTFBwMUFJT0R2Wl9tVjJTaFp3RlpoNE01MklONk5RaWdQenRFNEJGYnJJRlIySkg3WElTdXY5SG0zdXMtbUNmSDI5R0k3ZXRCRkREa08zZ3lqcGhiVHRQbFBHOWRoOWpUWVVaVUJVVlRzbi14Y2x0dHRNakt6WlZRdw?oc=5) |
-| Names of 16 presumed dead in Tennessee plant explosion released, latest updates - WZTV | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOVTNWSE84R0prRHVwYjJKS0syVGpYSnRwVF9pcTQ5cXZtaTFoaDRiUUtra0pFbndjc2oxM1piUGMwY0hQdVVkUXJfWGJmekNWcDNmcUlPQlhLUXdGVXBzWlM3YVZ6RVNvSWhKdWhqUUlVWE5VVzgtLTcxVWlsN1FSOXVMdlBKQlF1UFZtM19nRW1yTXpTUVlNQXRwQk53NUlQdUpFX0JfVklWaDNsRjE4M0NTQmV6ck5IOGc?oc=5) |
+| Newsom rejects bill giving descendants of slaves preference in college admissions - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNb3drV3l2ZnVuczNIZlZzdHN4T003RVJyd0R1WUI4bWdsRjFFaUY5a1pMVjMtcU1oTXlPcnByMlRBRDd2MnNPU1kybTZUaVJWcEZNbloyWFFqNU1CUkNnMk1OazNTaXV5RE1oTVJQMlFzMDIxdl9GcjNMdXJQUXNVQVJKOVdoemszbHQ1YjlZUkRoOVBRSTFKWEdIRTlNdFpRd2xWSVd6N3FNeTU2NEk4MmpiV2lvcFhnVGFvUk5Ma01JWlZH?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
