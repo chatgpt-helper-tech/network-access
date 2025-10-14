@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 02:01:38（北京时间）**
+🕒 更新时间：**2025年10月15日 02:12:09（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Supreme Court once again eyes overturning key part of Voting Rights Act - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOZDU5dzRnRzBsRVJETlJkUnA0UmpfWWV4UlFJWmVYVy02SVVET2tMZzJ4eHp0WGxTUGdzRk9CUVFQMk5TRjl0cUM5VXM3WF9kTGdfUEFPUzlNSGNiekhyS0JjbG5aSTFDRHZZN1FMSXlUcXhZdGEwWVZUcHBwTUM5LW9JNks2WTRrQUIxdkJPb0F4OVRjbmZmUUxDSQ?oc=5) |
 | Trump declares end of Israel-Hamas war, but experts see the hard work as just beginning - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPNUI4REJtalp0c2RSWUhpblhsVE9iNUhURFdqRzF6N3JKUDRQYVNtaEhRMDNhUEZPZ3htaGpTbFRubkFua0JCOVNBcnlianhpVnB5cENsMVM3UUlESzdpa0g5Q2lqc2lybnF3cGwxVlM3eE5HOWdFQjRPTjRrTGg5cTBFWnY2VkZ6M0JxNFlRc0h3ZV9WdEFSQ9IBngFBVV95cUxNMllLeEpUVE1TVGNELUV4R1lhaFlXVlVwdWZLUmdZNi1CYVlZZnZIYTdVSmZCZWhLZGxTaFhiRk8zM3BOTHhPbkQ5UnBIMWNHSXNoUmJtaEVjeUJQNG4zXzF4OE9QaW1FUXFXWkx0NHBuMXlRbC15QVdtRzNVYmxmWDFpWXBuMGtENEdYbDJ5aEc4RWpWYlgwRUozcG1Vdw?oc=5) |
 | News outlets including The New York Times and Newsmax say they won't sign Pentagon rules document - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxQN0tSVVlaQk1iLWxBUkVmU3NFazFkUU9ydThvQUZhLUMtUFduSURzOHdWRDVTSEJENXcyeHV6MVBtUnBKcjdfUGZySmRXVXFwbl8tb3lTVXVwLTVYTWc1UkV5TzJCbHJSMHJkeUdvSkcwUTZjb1ZKU2x6cDhNWm0zU1IycHRLMkhiOGVFV3FFaGM2bGoyM0NiZUN6WDBocHc2dlpJX3hmSEpYYU4tTXFPYW9PVEkzMUdhZjhTaEdVUDN6bURoeUxTZVhkRUlLREE?oc=5) |
-| One dead and two missing after typhoon remnants lash western Alaska - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNSWdkRHowZzlQUmFqcWg2RzJneFctUkE0NWQteWpVb3FOdFlaOFFWMW1oc0Q0SDNudW1PMTdNUXIzdm1QN0tqLXZlb0NLXy1PTkdqNWgwendZUElsZ1ZwM1NIYkpQYXF6YzNyb3Y5TDhCMFJpWGNBNVhyZFBBVUlPbTFfMVlBaG9vTVE?oc=5) |
 | Pennsylvania man pleads guilty in arson attack at governor’s mansion while Shapiro’s family slept - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQSTZqaGdxYzliNndrTWQyUEptSG5Odk1iLU1sNFM0ZlJDRDIxU01PYnpKY3R4RXNtRVhQZVc0VTR3VzZpXzhCWHVhOHJyWWRQOGItMGFZSVE0WEZWRHItdHNFNW93cHg1VUExcWFrSDYwR3ROWEVyS3NWU2dOeUZpd1FYeWdETG1UU2NDdlNuTThNTzFyRmwtSzBjbGVDUm9XT1lkS1VaV2EzclE?oc=5) |
+| One dead and two missing after typhoon remnants lash western Alaska - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNSWdkRHowZzlQUmFqcWg2RzJneFctUkE0NWQteWpVb3FOdFlaOFFWMW1oc0Q0SDNudW1PMTdNUXIzdm1QN0tqLXZlb0NLXy1PTkdqNWgwendZUElsZ1ZwM1NIYkpQYXF6YzNyb3Y5TDhCMFJpWGNBNVhyZFBBVUlPbTFfMVlBaG9vTVE?oc=5) |
 | House speaker defends administration’s move to keep military paid during government shutdown – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxNZzhmZnVDSWhEbWVzLWgtZVRFX1pHRXNNYnJNYXFoYUlHRVJrcXNRRkFjT296TktZal9Qa3FOVFBCU1BJMkRDV2FVWXRWSEtJM3FLN20zZlc2NFBjekVTckVwdXVpRGNSUE1zTzE3N2xKemlYMmU2NHBxT3Z3WnNmLTZ3YXhsY216LS05RmhlR3dqaGNEOUUyVDdhX0NTaDlXd2JfNktNMHhNWVR6U3d1MnRNSXpCdmRlNU91OTlPX2hqQ3JiamRiZ1ppUW1tX1BVMHp4UF82N0ptZW81M1ZvelBvQkFVUlhWa2hYag?oc=5) |
 
 ---
