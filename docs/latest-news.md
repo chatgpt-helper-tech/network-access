@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 10:25:03（北京时间）**
+🕒 更新时间：**2025年10月15日 10:36:21（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Pictured: Winning entries for Wildlife Photographer of the Year 2025 | [阅读全文](https://www.bbc.com/news/articles/cx253vrd931o?at_medium=RSS&at_campaign=rss) |
 | D’Angelo, R&B Grammy-award winning singer, dies aged 51 | [阅读全文](https://www.bbc.com/news/articles/cwynv40ly4vo?at_medium=RSS&at_campaign=rss) |
 | AI couldn't picture a woman like me - until now | [阅读全文](https://www.bbc.com/news/articles/cj07ley3jnpo?at_medium=RSS&at_campaign=rss) |
-| Labour under pressure to release collapsed China spy case evidence | [阅读全文](https://www.bbc.com/news/articles/cql9v6x4wpzo?at_medium=RSS&at_campaign=rss) |
+| Government under pressure to release collapsed China spy case evidence | [阅读全文](https://www.bbc.com/news/articles/cql9v6x4wpzo?at_medium=RSS&at_campaign=rss) |
 | Migrants will need A-level standard English to work in UK | [阅读全文](https://www.bbc.com/news/articles/c8679q0pe57o?at_medium=RSS&at_campaign=rss) |
 | Asylum seeker laughed after killing woman, jury told | [阅读全文](https://www.bbc.com/news/articles/cwy902djzv2o?at_medium=RSS&at_campaign=rss) |
 | 'It gave me my voice back': How group singing is helping new mums with postnatal depression | [阅读全文](https://www.bbc.com/news/articles/c93127z99yxo?at_medium=RSS&at_campaign=rss) |
@@ -29,9 +29,9 @@
 | Government shutdown live updates as Senate fails to advance GOP funding bill for 8th time - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOdFhTbV9NNy1uRmZQNmoxVGtZLWVTX2VYcng4bXhXSGtINU1qVTdOVEwwWVlhZHhnRlBROWd3TkVOR0pUcEtwMEhIUWI1YjA2Q0JJRGxJVHQ0Um9aVjBxeEV4NHZnc3VWRWtkS3B3cm56dmVBX2wzYU5tWHUtemdRbXhKUTFJTnRDRUHSAY8BQVVfeXFMTktuVzl3Nk5wd0tIWHpCLTJXbUxNQTRNMmtKTUZhRUNwbXhNMDdSWW1fN1JJVC00X3dBR3lvbGRBY3dVeC1oQTNCMnhJZzkyY0ZtUWhLdkt5ZFMxYjhYQUNLeTZyOV8zR1BnNEthNTQwOF9EUU1oOUU3MnpBTG54TFI0dkYyZE8tem1WZTJoelk?oc=5) |
 | Maine Gov. Mills plans to confront President Trump again with her campaign for the US Senate - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNUFdIN2Y3STNWYWw4OU5IYV9SRWFIVUNFM1NCOUZ5MzNCUjc5c2VSNmN1MXhBZjhwQ3VOMmdObDQxU3hzUXg3N0J1cW9rOVJuX1RvQjlnV1M5ejdrODdmWXFEcHdZMFhwMXJwTVFmMjF5MlRMdlVQQWgtcFBSckZGcTZSS2dFa1Zuc2lSRkNqNUNXMmY5cnE0?oc=5) |
 | US strike on alleged drug boat off Venezuela kills six, Trump says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPREJvRjBTRVcxX3RiVUszbnFfdEI5dlVjczlOdzZwVEx3NnZlM1cwaDZrQ2dhWFl1cUMxcFdDLVk1ZTFoaDdpZjMtSUItaXBCMFJsM1ZWU0oxSFZraksxS0lfaWhTcXJwMmhzQnpCYVRsOVJPVkpjWi1VRVFZbEJRRzZ2MzE2T1R1OEVkMWFyTTNKMnpPY1UxUGNB?oc=5) |
-| ‘It’s revolting’: More Young Republican chat members out of jobs as condemnation intensifies - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxNWnFVNkJWaFVUOGRIMGx0VE9sNVFEUENNTWpNZ0JILXFkT19fX0lQeDhFRHB3SFdSbHpxVUdfUEl1V1lfYWplenp1V2JRZnpHbUtSQml6S1JEZ082b3FuZTg2SktkMGE4Qmk4czUwRDRQUGpUVnRnWVljQkdBak91Q0kwYWM1OEc2dVN3eDJ6STVKbVdMaWo5cWVVcW9oZVc2VzVlSjhmcHM0cGdDLU52VF9wZ0FEVVMwbGJRYmlIMTNSWXdyYjhyMnMwSEJxdUZkX0hwYg?oc=5) |
 | US revokes visas of individuals who ‘celebrated’ Charlie Kirk’s death - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5seUZXbGxIZ2xxM3liSGhHdkk0Q2N0WTRlVklzVjdiS1lLRzdiMUwyRDlXdlllaXg1T3RUUzNCYUdxbl9Fbk1ydnVpMVY4YTR1Qm53cDFBdWNzQjYtQzhyc0FidTFfS3JlYU81cEFITjk?oc=5) |
-| Dallin Oaks ascends to LDS presidency, concedes ‘we do not have the answers to all of the world’s problems’ - The Salt Lake Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1Sc0F1VzB4TGdRS25nMGlWT3I4dVA5MWpJYUZrYzdzRmlobVNmNkVENk5CX0hZcXFKSUR4ZWJneEFTQ3hJejhrZzU3QVIya2tMdWlzTENsblkzcnFjRWxrVHlwdjNZcTdiUlJYRWNaU2hySmp0bU9oRXlPMmo?oc=5) |
+| ‘It’s revolting’: More Young Republican chat members out of jobs as condemnation intensifies - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxNWnFVNkJWaFVUOGRIMGx0VE9sNVFEUENNTWpNZ0JILXFkT19fX0lQeDhFRHB3SFdSbHpxVUdfUEl1V1lfYWplenp1V2JRZnpHbUtSQml6S1JEZ082b3FuZTg2SktkMGE4Qmk4czUwRDRQUGpUVnRnWVljQkdBak91Q0kwYWM1OEc2dVN3eDJ6STVKbVdMaWo5cWVVcW9oZVc2VzVlSjhmcHM0cGdDLU52VF9wZ0FEVVMwbGJRYmlIMTNSWXdyYjhyMnMwSEJxdUZkX0hwYg?oc=5) |
+| Church of Jesus Christ announces new First Presidency - KSL.com | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNa1ZKZ2VnX01wN1BHZWRnZV9XTlNDZUZPN0lxVU1mbFVYUERJVmFxbGJSWXN1TDRjUmZpazVkYU45bEU4YnpXNzF6ZXZ2RkxRSm85bjVGblZ5Vk5aNUIzUV9yTW55NzVIUjBBRUhYNUN2Wmh6V2JDNTV4YVpMdmpRU0RwcGNaUjZ4UmhCT3FRdzNvQ3Vn?oc=5) |
 | Lack of weather data due to Trump’s budget cuts impacted forecast for deadly Alaska storm - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOVUVjMXhxQ1B5c1Iyd2UyLWZ1XzlJQ0RYbF9NN3JmZHZ3RFJGMklnYlJsTTN5aFZjNDU0cVFNWlNrUkVDOVhTWEV3ZTVvSktQVzY0M1NJeHdpdWFRX2w2QmZFUGN2MENKaGdDNzJNVmItWXZreEpNT2xGeDNyb1hpNkk5Q2gzZmdSbm9XNk1LdVlxcnIxLWc?oc=5) |
 
 ---
