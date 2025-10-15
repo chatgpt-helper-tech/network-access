@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 05:00:31（北京时间）**
+🕒 更新时间：**2025年10月16日 05:14:01（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | ‘This is so vile’: Young Republicans face backlash after racist chats leaked - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxONXVxX1VGdkprTUxJWjJkeGpjWnV1blI1SDRpNU1XQVlTZ2Qzd3I4dUV5elZqWmJfTmRnQnJxTHlyNFVFVkVjS1dhblBNcVgzQmJVYzRNOV9KZWloc0NzdHdhQ2QxZFhSWHEtOFhqRFBLN1M4N29rOEltc1dBQ0gwYWV5dVB2TWRZSGk3d0ItZ0thdEEybUZlOE10RG1KejRJ?oc=5) |
 | Ohio's Rep. Dave Taylor condemns 'vile' symbol at his DC office - Cincinnati Enquirer | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNYzY2ZHNOYm5IcEJ3N1A0azF3clZvLTkzT0xNUm9QSEtveU5wUHpmUzAwVzgzNmwtV29EOHZOOVBFVHlfMGlPMnZzTkNmWTFfTkVCbXlIOW5kZDl6Vm5JWjFEa3hsWUxxZTdyYkdYOXplTnJxalRUQWFLUXBnSFB2SUx3cDh3VGdOTDc4VjYtaXdNQzZGVHkxUHY0QXR2N2xh?oc=5) |
 | Democratic senator shouldn’t run at age 80, new primary challenger says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPdEJxcHU0RXp2b0xtUWFORW8tV3Vramp1MUZCWW9HQ1VSWnZlMTdZVzRyV01wb2VFWjdGWHJobko4a2dMSDdTYVB1VU91akJpUWNXMkZjaFJ5SmNHenF0UTlwM2NXWUFyMnFfR1VJOUVGNnFwYm9OT3FXWGpNbzY3enMxM2dZamVWV013SUNKdw?oc=5) |
-| Florida Grand Jury Hears Evidence in Investigation of Charity Tied to Casey DeSantis - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1OOTl4aURGZnd2bDNlVTJMNnNfLTVHeUk2enJQMWR2Rlh4d1lIaVJTRV9JOWNDYS04b0d2YnM4LTZPcF9ZZzVfNzM2RWUza3p2NTJ1dEFIV1MwWE9UdVh1OWdNa0FVa095MjZSRHRTSGVlNHZ2MkNyZjEwVXB2Zw?oc=5) |
+| 15-Year-Old U.S. Citizen Taken By Feds For 5 Hours After East Side Protest, Attorney Says - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxQLUVmLWZVUmR1VlRTSjRDdzFsc2paOGJHTXpWZExEVmlWblFJdG5UT1ZhQVFKSnNMRkJyWXQ4ZEZCOFlQdDM4MXh3d0xfMnM0ZVN5YmZhWjFKbC1FTG1WVnpjV3o4YWFwNUdPLU1ydmdNMGJONFpOcFF6Y0R0d2Fidk5UZFB2R3ROUG1XYTR5WXotVVhLdXR1bndqZ1N4b3ZvSXFHcHZXSHdYN0JSOS1FZUFvX3A3SXdDNWotVGZFc2Z2QkwwalBLaXlZbW5rb0k?oc=5) |
 | ‘I’ll Have Eric Call’: Trump Sets Up Son’s Meeting With Indonesian President - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNb0NvR0FySFhkcXVqbTdWVDE3TGZJdWNneVZWcjZnbXhVVnBQNzJKd1lOQi14YWNrOFBEUV9ac216ZHhVb3hzX0lXRVBXVFVHNHNLVzd2MjBYQURFckIwMkFZRWVEVjREd2dHc1dya29TSlBzNXh6T2Fab2d1Ukt0ODR4WWozbVdrYWttbTNrLXNYSldNbTkxMzhnVnhLWEJmSHJtaDF1UTZmejRO?oc=5) |
 
 ---
