@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 19:01:04（北京时间）**
+🕒 更新时间：**2025年10月15日 19:12:13（北京时间）**
 
 ---
 
@@ -11,12 +11,12 @@
 | Vets must publish prices so pet owners not overcharged, watchdog says | [阅读全文](https://www.bbc.com/news/articles/c201r14z6r3o?at_medium=RSS&at_campaign=rss) |
 | Reports of sexual offences on trains up by a third since 2015 | [阅读全文](https://www.bbc.com/news/articles/c39r2zp1dw7o?at_medium=RSS&at_campaign=rss) |
 | Pictured: Winning entries for Wildlife Photographer of the Year 2025 | [阅读全文](https://www.bbc.com/news/articles/cx253vrd931o?at_medium=RSS&at_campaign=rss) |
+| Reeves acknowledges she is looking at tax rises ahead of Budget | [阅读全文](https://www.bbc.com/news/articles/c2drpzxpkp3o?at_medium=RSS&at_campaign=rss) |
 | 'He transformed R&B forever' - Stars pay tribute to D’Angelo, after his death at 51 | [阅读全文](https://www.bbc.com/news/articles/cwynv40ly4vo?at_medium=RSS&at_campaign=rss) |
-| How singing with other mums is helping women with postnatal depression | [阅读全文](https://www.bbc.com/news/articles/c93127z99yxo?at_medium=RSS&at_campaign=rss) |
 | UK must prepare for 2C rise in global warming by 2050, government warned | [阅读全文](https://www.bbc.com/news/articles/cx24kllyye1o?at_medium=RSS&at_campaign=rss) |
-| AI couldn't picture a woman like me - until now | [阅读全文](https://www.bbc.com/news/articles/cj07ley3jnpo?at_medium=RSS&at_campaign=rss) |
+| How singing with other mums is helping women with postnatal depression | [阅读全文](https://www.bbc.com/news/articles/c93127z99yxo?at_medium=RSS&at_campaign=rss) |
 | Former Kenyan Prime Minister Raila Odinga dies in India aged 80 | [阅读全文](https://www.bbc.com/news/articles/c1m39xg4dggo?at_medium=RSS&at_campaign=rss) |
-| British social media star 'Big John' detained in Australia over visa | [阅读全文](https://www.bbc.com/news/articles/cwy196k9p4po?at_medium=RSS&at_campaign=rss) |
+| Stephen Graham hopes father-son book will 'continue the message of Adolescence' | [阅读全文](https://www.bbc.com/news/articles/cn40yyl8nvyo?at_medium=RSS&at_campaign=rss) |
 | My friend Bipin threw back Hamas grenade - and saved my life | [阅读全文](https://www.bbc.com/news/articles/cy0kllzqk1vo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
