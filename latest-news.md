@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 09:36:28（北京时间）**
+🕒 更新时间：**2025年10月15日 09:49:56（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Government shutdown live updates as Senate fails to advance GOP funding bill for 8th time - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOdFhTbV9NNy1uRmZQNmoxVGtZLWVTX2VYcng4bXhXSGtINU1qVTdOVEwwWVlhZHhnRlBROWd3TkVOR0pUcEtwMEhIUWI1YjA2Q0JJRGxJVHQ0Um9aVjBxeEV4NHZnc3VWRWtkS3B3cm56dmVBX2wzYU5tWHUtemdRbXhKUTFJTnRDRUHSAY8BQVVfeXFMTktuVzl3Nk5wd0tIWHpCLTJXbUxNQTRNMmtKTUZhRUNwbXhNMDdSWW1fN1JJVC00X3dBR3lvbGRBY3dVeC1oQTNCMnhJZzkyY0ZtUWhLdkt5ZFMxYjhYQUNLeTZyOV8zR1BnNEthNTQwOF9EUU1oOUU3MnpBTG54TFI0dkYyZE8tem1WZTJoelk?oc=5) |
 | US kills 6 people in strike on boat accused of carrying drugs near Venezuela, Trump says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPWlpiSUxZaHB6ZDd1cWl1TG93WWpzU0plLUwwQUNUTW9JRzhGb2FrQ3hjdkFQN3ZYN0ZLWG9FTmpGeUtXeUdVeUFMZ3ZYRGhONWZmck93U25mbHpRNG5xWXBobUFQc1J3VmRSUW1WNzZNcWFYVjlCTEhQeGltdGNHN1hCVDFuWmZ5a0dRLW5PWFNFUVRCb1Z0aG80WFpxcHQ3cGsw?oc=5) |
 | Maine Democratic Gov. Mills plans to confront President Trump again with her campaign for Senate - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxQcDRDWFZiUGstV0V2QVdWOFFFMDBlTVNQMlprZnJnelRQTzh3U3pjOTZlWnUyb3Uza1pkaEpNY3M0andFWmZUTTlXdTRRRTF4aXRZalktdnpkWEdYV1pldmhwZ1FORUVScDhJa09zYjNHSWtYaHVzcFBIal8wRnllX1N3MGVPSWJQY3pEVG1YWmhIRllRc1MxeVRmVk9hZlBwSDJDUU5kLTl1YkNJTmljQjRSLTRScHh6S3Z2MWtZNXhmVXkySEdWT09VQUhnUdIB0wFBVV95cUxQQnk1cF9DNFBqNDFJVk8yMjRlb1VzemhwbHlCTzJYam5vVlZoS2RLWi1COVN2R1RyWTJkdmVDMXp2RFBMUUNlMWtFNUR6OXJkd0VrNEViY05ELWRHUF9QUnZqcjNRRFJ5end3aV9JY21FZC1iVEtRTkpxZkVqZnQzeHJOWGhpc2h1Y3A4NzFCWlRMS1dKaE1Xak8zTmRDTkQxNFhOUUIxS2owS2kxS0ZKZDVHSXdLcmE5cWd0REtSendrbE9KdXBLRVExWjE4Vng0dnAw?oc=5) |
-| ‘I love Hitler’: Leaked messages expose Young Republicans’ racist chat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNYV9DUENBdlZlTkRERGJJMnpUdnhBaEcyTWdNTnBFTkVnZkdiQWhKV0lNRDU1dXg2dnh2c2ROMnNVbE1MWWI3U1VfbmlFa29QTXg4OEE1dU5lRENtMzl1LVh1RGlpYlRfMkRaZm5ITHZSclc3ZkZENVZ2cjJ2MUxGMzctalpFMzNtV1IydG5sci1IRzRmY0E?oc=5) |
-| Lack of weather data due to Trump’s budget cuts impacted forecast for deadly Alaska storm - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOVUVjMXhxQ1B5c1Iyd2UyLWZ1XzlJQ0RYbF9NN3JmZHZ3RFJGMklnYlJsTTN5aFZjNDU0cVFNWlNrUkVDOVhTWEV3ZTVvSktQVzY0M1NJeHdpdWFRX2w2QmZFUGN2MENKaGdDNzJNVmItWXZreEpNT2xGeDNyb1hpNkk5Q2gzZmdSbm9XNk1LdVlxcnIxLWc?oc=5) |
+| Kansas Young Republicans shut down after Politico report on racist, violent encrypted chat - Kansas Reflector | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOZnFwWDFGeFlBeF9vNUUyWnM3c0MzTzg5dTBQNHhwakF6eXdPdGVCYmxJMDA1bVJlNHBLYjEteG12NWFIcFAxNVVBUmhBQzZjRy1LMHpWZ3pScnJ1VVRJMjQ5SFRNWmZ6bHRmcE5neHVXVFBjMkpDb2piMm1xQ0lpYlZMOFNZal9UbjJGZXh3eS1QWHZPWGZpcXBySVZCYnlsSU16eWk1QldXd1Q1U1JET1BRNml5bXdJdkJmSlpTOThLZ1FXWXlCdQ?oc=5) |
 | Dallin Oaks ascends to LDS presidency, concedes ‘we do not have the answers to all of the world’s problems’ - The Salt Lake Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1Sc0F1VzB4TGdRS25nMGlWT3I4dVA5MWpJYUZrYzdzRmlobVNmNkVENk5CX0hZcXFKSUR4ZWJneEFTQ3hJejhrZzU3QVIya2tMdWlzTENsblkzcnFjRWxrVHlwdjNZcTdiUlJYRWNaU2hySmp0bU9oRXlPMmo?oc=5) |
-| Man pleads guilty in arson attack on Pennsylvania governor’s mansion - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxONWVOdHlGQWZqWkN0bXJKaGllVUY3RGxiREduWnBrUDRUTUhma2hkTDRYckp0Y2FGVWJQcEkwbEdRdnR1b1RJbWJoQzRjUm5Zbk5Oc1pXOWJfdzhaTHZEcUY0SlMyNGcwdzJvc1duNmZjeHdWSWRtNUtlamZIaENfMkRmbmNvdkc4VUp3?oc=5) |
+| US revokes visas for 6 foreigners over Charlie Kirk-related speech - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPdUNFV3JDeFNWcENKTVd1aGtZcGwybkNvTHhYUVN4R2dpNkd6bHhDOVFqVFRqd0pKTVNXcDV3aDkyNm85V3NFS0dBSjZ3c0ZOMnNVTEFzd3dXSUdtU0RYWmRIa25jRlpRSXBibS1aU2J4NXpQdUVxcFF3dVFQa3h6cFFQSTBsS0Z3Y0hGSnpvVkpUbEN1aTFn?oc=5) |
+| Suspect Pleads Guilty in Firebombing of Pennsylvania Governor’s Residence - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNY2l6cXB6Vk93WF9oMzZHVXpVOXBhampZaHFfTVFmMGRRdnFZNXFkNXZURGhDcXJpdmRjOFRiNVJOUUJyU0Rwd2pmem9LUkM1ZXN0N1JTRjFLOURnU2RkQTIxLVBfZjl3aEdfUDl5UlMxaXd4cUtfY244LU4zZDM0RWo1b1Z0NEV1NUViZQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
