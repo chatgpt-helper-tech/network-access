@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 09:49:56（北京时间）**
+🕒 更新时间：**2025年10月16日 10:00:29（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Hamas returns remains of two more hostages but says more time needed to reach others | [阅读全文](https://www.bbc.com/news/articles/c3w9py9940go?at_medium=RSS&at_campaign=rss) |
 | Giuffre accuses 'entitled' Andrew in posthumous book | [阅读全文](https://www.bbc.com/news/articles/c0kpjyjyrlno?at_medium=RSS&at_campaign=rss) |
 | Months after fall of Assad, families of Syria's missing still seeking justice | [阅读全文](https://www.bbc.com/news/articles/cj07p5zm229o?at_medium=RSS&at_campaign=rss) |
-| Funeral director admits fraud charges after inquiry into human remains at his premises in Hull | [阅读全文](https://www.bbc.com/news/articles/cwyplw17897o?at_medium=RSS&at_campaign=rss) |
+| The real problem with Britain's asylum hotels - and the woman with a bold idea to solve it | [阅读全文](https://www.bbc.com/news/articles/cdx4rrrvg8do?at_medium=RSS&at_campaign=rss) |
 | Celia Imrie's fart steals the show on Celebrity Traitors | [阅读全文](https://www.bbc.com/news/articles/c4gpr5j3kgdo?at_medium=RSS&at_campaign=rss) |
 | Reeves urged to make Budget 'bold' or risk future tax rises | [阅读全文](https://www.bbc.com/news/articles/cg7n8v34jvlo?at_medium=RSS&at_campaign=rss) |
+| Funeral director admits fraud charges after inquiry into human remains at his premises in Hull | [阅读全文](https://www.bbc.com/news/articles/cwyplw17897o?at_medium=RSS&at_campaign=rss) |
 | Baroness Mone-linked PPE firm misses deadline to pay £122m | [阅读全文](https://www.bbc.com/news/articles/c629rdgyzl5o?at_medium=RSS&at_campaign=rss) |
-| Cracked windscreen forces US defence secretary's plane to land in UK | [阅读全文](https://www.bbc.com/news/articles/cd67qe0255vo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
