@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 11:48:48（北京时间）**
+🕒 更新时间：**2025年10月16日 12:00:09（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Gavin Newsom Seeks Congressional Probe Of GOP “I Love Hitler” Texts, Slams VP Vance’s “Kids Do Stupid Things” Response And Says DOJ “Cannot Be Trusted” - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPdEIzZ2h3b19iQkxGSnFhSGpZb084ZWdIYjlJOEhtcWg1dDZZWnlCY1ozS29Rd042TTJ6RG9zZXJtdEdpS2pIanI2RUxVQXlmTUs1ZkNyY1R2MlY5UmhwQmdTcG04ODZEalJDZ3RPa09SSXdwTFNiMXRqUGVvRnRPdWZNd05pVUNmcWln?oc=5) |
 | Democrats float a new shutdown demand: Reversing Trump's mass firings - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQckNrbFM0VVIxVWtYc1pKNnZ2ZVZIY3hoTzFHZmFwWVhjZmxkRmpIWmFRUXZ0RmxsZWh5SE5GRHV3LW52d2NmQjh4X1BkRHBaOGtsQkhSNXV4STRXNmh1V3dMY2lEdDEtbHJrYThSU0pyVTdJeU03SDYweE1tNGp3UzRTSHhNNTFBSE9uYzJXQ2xCMGoxNnBKRTZQQUFOd2M?oc=5) |
 | DNA from discarded straw leads to indictment of murder suspect after 41 years - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNSF9yd0VSQzlwUVRRTV9pamFJbTRWS3ZEaHk1MkJzMzAyUFVKenlwMFk4QTVpa2lWT0IwQmRHWE1tN3IwNk9XYThweDlYTjJCcXgyYmdrM011bEF4VHpBU0RPNkgxMEd4Nko3OEVzTEFMUldTNW9aZ2dYdmx2Nk9UZA?oc=5) |
-| Mississippi executes death row inmate convicted of raping and killing a college student in 1993 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPUGJWbXZtUnVLM2NGM2Z0anpwQUdyRXRBN1lkLXFPY0t4SVhkSk5xNkN0VWRxVk1NcmZBMzVsTEwxdDN3R2UtbDEtQlVXbW5jR1Rya0NsMS1reXRGRHU5d0IxVUhQa0NiWFduMTgyNlFkeUZVZXh4dzI5VWRaalAyRTVUcUQyekVnNnFZN9IBkgFBVV95cUxQTktKbk9tT3E0YXlMXzNJdlpGRlVWdVB2aGNjeGJMUEt2OWh5dHdTakVIeWY1ZXFudzl1ZnYzdVBSaDF0cWZla1FhMTc2ZnptZGpFLXhPV3FzYThkNzJwMWpNVTZ3R0J6ekI3aEpZU3ZSNE1nNVhKSnlPdUNHYUhyNUtuakh6NkljUElaLV9POHl1Zw?oc=5) |
 | Democratic senator shouldn’t run at age 80, new primary challenger says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPdEJxcHU0RXp2b0xtUWFORW8tV3Vramp1MUZCWW9HQ1VSWnZlMTdZVzRyV01wb2VFWjdGWHJobko4a2dMSDdTYVB1VU91akJpUWNXMkZjaFJ5SmNHenF0UTlwM2NXWUFyMnFfR1VJOUVGNnFwYm9OT3FXWGpNbzY3enMxM2dZamVWV013SUNKdw?oc=5) |
+| Videos could tank Katie Porter’s bid to become California’s next governor - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOYnRtQlMzTS16YVdGQWRjMjgxQ2xfZmZfTlFEZ242Wl9ab016ejJ4ZmN1VGk3S1lpUkRScEJIOVA5c2V6MGRDc2J1ekdHcFFSempVNFNsYUYzZnY1Ymw3ckZSS0xycFNwUFZRVTN0QlVBQVV2dmc0VzJ3a3F1RjQ5QTVjLXpxQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
