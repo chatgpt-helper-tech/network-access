@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 21:00:46（北京时间）**
+🕒 更新时间：**2025年10月16日 21:13:12（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump says he has authorized covert CIA action in Venezuela - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOVFYzdDlXSXYtMEEwX3cxWklEMGxXU0diNVFDRHBxLTZ0MXdNUWtvaXdMc2xXc0VyY0pLQ0dGV2xGV3FwU1dqc0JvYXRpOTlOLWxWZ29tc1d1UDNrWTByR0JzSFNiRW45eTBkbS1tUW5wT3BTdjJ2aUJpU1pFRFp6NXB5ckRfMjBuT0RpU1pqY1oyTjVJS0FBU2hFUm5QN2pY?oc=5) |
 | China’s Rare Earth Restrictions Aim to Beat U.S. at Its Own Game - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPMHNJWlllTVViSzRaeDVGMEJqQWtoQTdvWHJDaW1uSEQycDRMZ3BMc1AweWgzVHZfajR5NmtoTmxFU3psQmlnNlFUTVd5SW5qWXMzSFFuc0FqajI2TTNzRGtKWnNUdTRLTkh1Nlg5ZEQwTVUyMmt0dmtyVERid2FNalk0MmlQMUVNOF9TbTYteXQ?oc=5) |
 | JD Vance brushes off racist texts by adults in Republican group chat as ‘what kids do’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQaHB6T0JzWXlTZ3o4OWRVa0ZtU1AyX2VUTFZCcjdOa3M4ZHFESkZrSVlIdnl5MEh1UElPN1ZqUGFZSEwwSzYtM3ZwMlYtMlN3TkRiaGhNdjRUSGl4VXk4WVp6U3V6c2l5ZXRQRUh2SjNhWHNwRnJ0NVRnTVE0aUVMVklpQmFNY3BwUS1Pakg2ajVfODJmdVFCa24yZjdRQ3BaWlE?oc=5) |
-| Supreme Court signals willingness to pare back Voting Rights Act - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFA0QVU0U2kyd0g3Yk1qZkRmYVhmVFY3NTdQSjRuTHFRVkd6Tmwwb1hLZHBhRFBFRklfdTdaRGlyX0lsYWROb0p2c0J0MXYxZ25CZDAzRzk0QnRndkx5M2RpbmdUX2JVSExxNTZPX21FTXlCVlNSRGptbnZpQjNjc00?oc=5) |
+| Trump’s troop pay move is a ‘temporary fix,’ Johnson says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPMmZ3dkY5bHFvT3NlWV9CTjg4V1N4ZkE0SHlmdHVNZEpicXBxX0lOdkp0dWdxMldRSWE4ZjVxOC1FMkh0dnM1cFBhRGdIS1NKOXhTTnYwZ3hheU83b1dZRmZKT1BrT2JSZ0RUQWVkT21QY29GTmROUXg5ZnhIUzhnUmNDWlQwTnlTd2ZsemZwbW1SV0kwaXYw?oc=5) |
 | Judge orders Trump administration to pause shutdown layoffs - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBKX3RoUFBaNWhEbUFPTDA3dU1pRS13OEdMd0daT2xIcWd4X0J5SXpTUkpoTGk2clVCQ0h1ajhfTFhmZDUxTGZnbk4yZXJQTXU0dm8yN1d3a0thd9IBX0FVX3lxTE9qRVJvRVVaUk8zRzJfZjZTTWpEMkxyTGJZbmJscHhHSm5UbDd6ODNfSDlCMzZLMy02bWdrYzVtUmFPcFZPR3FZWWNRcXNrdndOMlJmVUU3eF9mdkJDbU9n?oc=5) |
+| Supreme Court signals willingness to pare back Voting Rights Act - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFA0QVU0U2kyd0g3Yk1qZkRmYVhmVFY3NTdQSjRuTHFRVkd6Tmwwb1hLZHBhRFBFRklfdTdaRGlyX0lsYWROb0p2c0J0MXYxZ25CZDAzRzk0QnRndkx5M2RpbmdUX2JVSExxNTZPX21FTXlCVlNSRGptbnZpQjNjc00?oc=5) |
 | What we know about a White House offer to universities for expanded access to funding in exchange for demands - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFA5V1VRSkl2U3V6dHFSMUpPOUwyWGt0NHBTR3hweWlyVXZtTFZlejl3MWxDTU9ZNkJ3OUpjdXprN0ZaRzRrMU43UGlPYnJpSlVQem5SN3MxVW1KQ1U1aV9JR1RIMXNtS0ZLYUdmS1NPVTEtR29JbDJn?oc=5) |
-| Why Trump Is Eying Cooking Oil as Leverage in US-China Trade War - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOUEtOTEt6MDhldHhlUkF6TWVUTnBzQ3pMbmJjWTF5TGoxaWJ0ZVJ4b3VBOUhTSDR3YnJrdlV6b250cnRzSjZEQnNxdXZoaEdUWFhzTks4R05nQnctWVdlaWFNc0VRWlhfaklGVmZoY3dFa2t6TEY2M1ZLeXZGVkM3N3JBcksybHZCcWVCX2RiTnZVdVNNakN0bTNxMHh0TW5PcngyMmZLSW9rblFRYUtF?oc=5) |
-| Top Senate Republican says he can ‘guarantee’ a vote on key healthcare provision amid shutdown standoff – live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQNjNoenprNWtwN2JBOTlndUhZa0pjZXhoLVhxS1FDYUJNT2RLMGYtNzdsZF9oTEc3SVRtNlBxeFZacGVqNERsbGtuX0VnYlo4MTNaZDJ2bWFsQXh3cFNIN1J3NWJfeXN5MUVqaW12c3NyS1JXMlhaRDZqV1hSSEh3MWYtekdFUjBTa2RiNW5VTlNvbUgzc0M5U01CamhGdkUteVFvM1ZhTFFwNUhZZThZ?oc=5) |
+| Capitol agenda: GOP dares Dems to buck bipartisan spending bill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxOSGx2YjhMTTVhc2Vjc0YzTmJJMmk2R2d3SkI4SVFDVmpxbjFCS1BpcEFwcWlCelZhemVUTEt3QTRPTHloNXAwblNGMWpZWkVRRjBTVnJWOGtNdWcxc3BwN1J0clh5VTUtanFIY05Zd1RtWjIwb2xyQkFoNy1PZ1NXZTF3ckRnZHo3M0tCMmstU0phQ3pnTDBhLXpONi1wQmk0NkpGRngySko0cHJ2bkZhcnpNekxObWxZX0pBTA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
