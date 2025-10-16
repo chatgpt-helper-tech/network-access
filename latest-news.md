@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 13:36:56（北京时间）**
+🕒 更新时间：**2025年10月16日 13:48:53（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Government publishes key witness statements in collapsed China spy case | [阅读全文](https://www.bbc.com/news/articles/c0ex172rxwzo?at_medium=RSS&at_campaign=rss) |
 | Thousands in UK sue Johnson & Johnson over talcum powder cancer risks | [阅读全文](https://www.bbc.com/news/articles/c797wv928g8o?at_medium=RSS&at_campaign=rss) |
-| Hamas returns remains of two more hostages but says more time needed to reach others | [阅读全文](https://www.bbc.com/news/articles/c3w9py9940go?at_medium=RSS&at_campaign=rss) |
+| US plays downs claims Hamas is violating ceasefire deal over hostage remains | [阅读全文](https://www.bbc.com/news/articles/c3w9py9940go?at_medium=RSS&at_campaign=rss) |
 | Giuffre accuses 'entitled' Andrew in posthumous book | [阅读全文](https://www.bbc.com/news/articles/c0kpjyjyrlno?at_medium=RSS&at_campaign=rss) |
 | Months after fall of Assad, families of Syria's missing still seeking justice | [阅读全文](https://www.bbc.com/news/articles/cj07p5zm229o?at_medium=RSS&at_campaign=rss) |
 | The real problem with Britain's asylum hotels - and the woman with a bold idea to solve it | [阅读全文](https://www.bbc.com/news/articles/cdx4rrrvg8do?at_medium=RSS&at_campaign=rss) |
