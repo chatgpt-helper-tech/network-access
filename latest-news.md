@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 14:00:34（北京时间）**
+🕒 更新时间：**2025年10月16日 14:12:32（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | Government publishes key witness statements in collapsed China spy case | [阅读全文](https://www.bbc.com/news/articles/c0ex172rxwzo?at_medium=RSS&at_campaign=rss) |
 | Thousands in UK sue Johnson & Johnson over talcum powder cancer risks | [阅读全文](https://www.bbc.com/news/articles/c797wv928g8o?at_medium=RSS&at_campaign=rss) |
-| US plays downs claims Hamas is violating ceasefire deal over hostage remains | [阅读全文](https://www.bbc.com/news/articles/c3w9py9940go?at_medium=RSS&at_campaign=rss) |
+| US plays down claims Hamas is violating ceasefire deal over hostage remains | [阅读全文](https://www.bbc.com/news/articles/c3w9py9940go?at_medium=RSS&at_campaign=rss) |
 | Giuffre accuses 'entitled' Andrew in posthumous book | [阅读全文](https://www.bbc.com/news/articles/c0kpjyjyrlno?at_medium=RSS&at_campaign=rss) |
 | Months after fall of Assad, families of Syria's missing still seeking justice | [阅读全文](https://www.bbc.com/news/articles/cj07p5zm229o?at_medium=RSS&at_campaign=rss) |
 | The real problem with Britain's asylum hotels - and the woman with a bold idea to solve it | [阅读全文](https://www.bbc.com/news/articles/cdx4rrrvg8do?at_medium=RSS&at_campaign=rss) |
 | Celia Imrie's fart steals the show on Celebrity Traitors | [阅读全文](https://www.bbc.com/news/articles/c4gpr5j3kgdo?at_medium=RSS&at_campaign=rss) |
-| Cabinet Office rejects Cummings' China breach claim | [阅读全文](https://www.bbc.com/news/articles/ce3xz607dpro?at_medium=RSS&at_campaign=rss) |
+| Cabinet Office rejects Cummings' claim China breached 'sensitive' communications | [阅读全文](https://www.bbc.com/news/articles/ce3xz607dpro?at_medium=RSS&at_campaign=rss) |
+| UK economy grew 0.1% in August | [阅读全文](https://www.bbc.com/news/articles/cq65j9pm508o?at_medium=RSS&at_campaign=rss) |
 | Reeves urged to make Budget 'bold' or risk future tax rises | [阅读全文](https://www.bbc.com/news/articles/cg7n8v34jvlo?at_medium=RSS&at_campaign=rss) |
-| Trump says he authorised CIA in Venezuela as Maduro says 'no to regime change' | [阅读全文](https://www.bbc.com/news/articles/c0ex1jq9pdvo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Alaska airlifting hundreds from storm-devastated coastal villages - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPZlJoaXYzczZXNGJxWlVjRkYza19GVU5jWEtmOElZY2FRZUk2MkVWR1hQeGg2d2tkbUJuUTdNTkQ1a1BaeFVkc0pzSng5WHY2dWNYZUFXYzNXX3ltWmh0YURHa3E2RlRWRTU1THFRYkM0ajg5Rk9sSzZ2SUFZVVpHTzFQNFU?oc=5) |
 | Democrats float a new shutdown demand: Reversing Trump's mass firings - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQckNrbFM0VVIxVWtYc1pKNnZ2ZVZIY3hoTzFHZmFwWVhjZmxkRmpIWmFRUXZ0RmxsZWh5SE5GRHV3LW52d2NmQjh4X1BkRHBaOGtsQkhSNXV4STRXNmh1V3dMY2lEdDEtbHJrYThSU0pyVTdJeU03SDYweE1tNGp3UzRTSHhNNTFBSE9uYzJXQ2xCMGoxNnBKRTZQQUFOd2M?oc=5) |
 | Gavin Newsom Vetoes Reparations Bills in California - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPeE9JMUF1eVd6STJsU1VlRnVaMDBLZ084TXRnOEpfUjV3Z3liZlBwQ2lWSXRkZk1nWktFckQ2YnIzamZ3NEhtZENBLUZBNjlVUWNLTUR1b1NaYnA5V0o3b1hlSjg2LXFSSXE0bWlnSWZYUHNwaDRfOHJNQmFVU25lZHY2bw?oc=5) |
-| DNA from discarded straw leads to indictment of murder suspect after 41 years - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNSF9yd0VSQzlwUVRRTV9pamFJbTRWS3ZEaHk1MkJzMzAyUFVKenlwMFk4QTVpa2lWT0IwQmRHWE1tN3IwNk9XYThweDlYTjJCcXgyYmdrM011bEF4VHpBU0RPNkgxMEd4Nko3OEVzTEFMUldTNW9aZ2dYdmx2Nk9UZA?oc=5) |
+| A discarded straw leads to murder charges in 1984 killing of New York teen - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPNVg3WVp6c0ZrclByMm5US09CY3RCR2tBaHh3ck5FdG1oVzczc05zZ1FUUTA1REt2VHdlcFotZUlROUllZkh4dWREZHQ1NGVHcGVVbTl3VjNDRVVLMTRrN2V0WVFfV056bFNQLVlGRVFmRXBEQm9yYmo3akQ1U2xTQVpmblBTd3lmU2NzM2FiS2c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
