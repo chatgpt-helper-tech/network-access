@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 15:12:57（北京时间）**
+🕒 更新时间：**2025年10月17日 15:24:47（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | ‘No Kings’ Protest Organizers Aren’t Afraid of Trump’s Court Jesters - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQeUtnNzV3YnpLTWlnbC12SExWbHZsdHNWR01qd2dkRXh4VEswNVk5V243emY3MjVsWDkzNHNNUExZcXhCUk42OV9VWTAySUZyRnFuOEtMdjdyMC00Y3Y3Q0Y5QkhBUzRiUEhQbC1Md3ZOMDAxS1dqMG9WdTBuMWRlQWMxRVh5WUxGeVhwTk9mV3FWaWZ2NUw0Q1hzRUhLa2RfZE1jWkptN3Q?oc=5) |
 | Anchorage prepares for up to 2,000 evacuees from Western Alaska - Alaska Public Media | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPSWZVNGhYMXJlTEtvQ1NRRk1TZHA4U0tKU3I1UXdSTG84QWFzR0piaDlRV3cteXE3SkVZWGZJVXpsdzc2aF9wSEJUbllCLTNOSS1aa2swbFRNMUlmaEdfZTY3akg3ZHdZdlgtQmhsdzAxN09oTkJ6RVAwdldZQTBUcUwxX2tfNzloM1VNaGZsOTZGeThnZldlcGE4UmNCRW5telNRcWIwaWdCcHg4X2MwRnVjMHdBWDNiMl9vTzlfVUJJSTg?oc=5) |
 | Virginia attorney general debate centers on Jay Jones' violent texts - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNb20xeERCUkVXbTFLbXpGeFJSak9tcHUxdk5ySHpwRHZMZ2NqMGhHMmM2U2JGejFiQnQ1RG1QUTZKaHFRR2tJaHZOaDdQM1FyMXY1a24xSVh0UnFIRWFXUHdJSWpsUXBVUldNc3pwMzJTYkM4N29vTm56UENhbzRWNVE2QzFMdExsOTZvdFJwYVVaN19ZdzV0VzJRWlhkMkhfeGJtUVZHUWlGMGkxZDJV0gFWQVVfeXFMT2xXQVFTQTQ2TFRFUTY5UDFYb0J0TS1rOEQ4Rm05Y3U0NzliUFlWSTR2eU1WVGg2MVl3bHZXQXN2d0EzcWxTbVl5WWxpSHVwUlhyclNaVnc?oc=5) |
-| Maine Senate candidate promoted violent political action in since-deleted online posts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxNalRRN2RIQkZWQVRYVW1UZDZIdERHYk56elNXTjJSWkFXbHVaVHpId3lIX01nUXk3ZjJ3eFN6SGtfNXZMU2tDSk9DNTRoVmkwNDlYa1NyTXNxR2ltZ2t5NUdsS0xKanVJeGc2enlSd0YyY0lBN0l3MVVxVExWc2tvbTV0MjByY1ZyelNzb2FFcVVtRDRjRy1wRG9YRVlJMVdtODdCR0dxVFJ6ZXVsbkdNUGh4SHRoYnNWWXl3OW5ic2cxNVlXQVFRQTZXOUhwSnBwZnc?oc=5) |
+| US Senate hopeful Graham Platner explains old comments on Reddit - newscentermaine.com | [阅读全文](https://news.google.com/rss/articles/CBMirwJBVV95cUxNRXhDSUpRRTVMX09FMmc1aFBvcE1HajlqdVM5WUpPRzMtblhIYUN5UHQtOFBBbzh2MEJ2REtXQkVQMmt0VkVMd3BHSmViZEtPdV9DaHExVGgtc1VQT09IdEZPTzJsOHJPbTdmdHFyRnloOW9ITVNSaHlhNjlFMllGZ1JtazY0T1FDMVZKWGJ3RXk1MTZYeTFLeDNzRXE1R2VoSlo0Ry1HZGZ0Yks2dlhpMjcxM2JHNWl5V245b2lhRTlKWGFnYVAtXzBUVmxSeFJodTdnWnZIVkVWVDMzMDBSN2QtbWR2b1A4MTJSbGU1WWRhOUo4Z0FSR01ZYzM1U3NiZkQ1eW1fVHp4R1RBLVdaUHhCTWdIR0Z3bERORmFEUXBSUHhfVV8yZFJZNVY3VDQ?oc=5) |
 | New York’s Richest Ask ‘How Dare He?’ as Mamdani Closes In on City Hall - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5vNEFObG9xN2ZOZlJ3a3dHajJvUGFWYW85T29mZnd4UVVTa0ZXMEFUZC1GUVhxMFR0RTBWRFlYSnlPZW51RFpTLWV2RkRyYS1LbmNva3hvbWJZNFFxSTFqUmQzTE9KWFBTWFhPMGFLYmc2ZXBwMEhla19hNloyQQ?oc=5) |
 
 ---
