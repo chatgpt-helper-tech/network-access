@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 12:00:40（北京时间）**
+🕒 更新时间：**2025年10月17日 12:13:15（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump says he will meet Putin in Hungary for Ukraine talks after 'very productive' call | [阅读全文](https://www.bbc.com/news/articles/crmxz37nv3zo?at_medium=RSS&at_campaign=rss) |
+| Zelensky to make missile case in US after Trump-Putin phone call | [阅读全文](https://www.bbc.com/news/articles/crmxz37nv3zo?at_medium=RSS&at_campaign=rss) |
 | 'Wrong' to block Tel Aviv fans from Aston Villa match, says PM | [阅读全文](https://www.bbc.com/news/articles/c205gnz5p8xo?at_medium=RSS&at_campaign=rss) |
 | Former Trump adviser John Bolton criminally indicted | [阅读全文](https://www.bbc.com/news/articles/cgql2qzkz5zo?at_medium=RSS&at_campaign=rss) |
 | Sam Fender wins 2025 Mercury Prize for album of the year | [阅读全文](https://www.bbc.com/news/articles/cp3dnjd9g4go?at_medium=RSS&at_campaign=rss) |
@@ -16,8 +16,8 @@
 | Why talking about sweat stopped being a taboo (long before Alan Carr was on Traitors) | [阅读全文](https://www.bbc.com/news/articles/cwy51pgql7eo?at_medium=RSS&at_campaign=rss) |
 | Reese Witherspoon on writing a thriller: 'What do girls in bikinis have to do with solving crime?' | [阅读全文](https://www.bbc.com/news/articles/cn0gl91dwr2o?at_medium=RSS&at_campaign=rss) |
 | Five takeaways from heated Mamdani-Cuomo New York mayoral debate | [阅读全文](https://www.bbc.com/news/articles/cn8xlx53jn6o?at_medium=RSS&at_campaign=rss) |
+| Military veterans now able to download digital ID card | [阅读全文](https://www.bbc.com/news/articles/cj3zmjrzegjo?at_medium=RSS&at_campaign=rss) |
 | KISS founding guitarist Ace Frehley dies aged 74 | [阅读全文](https://www.bbc.com/news/articles/cj41vwgv47no?at_medium=RSS&at_campaign=rss) |
-| Aid group suspends Gaza operations after ceasefire | [阅读全文](https://www.bbc.com/news/articles/cgjd783ywn3o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
