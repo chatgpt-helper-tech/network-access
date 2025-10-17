@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 15:37:42（北京时间）**
+🕒 更新时间：**2025年10月17日 15:49:17（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | HIV protection jab to be offered on NHS in England and Wales for first time | [阅读全文](https://www.bbc.com/news/articles/c803egy217xo?at_medium=RSS&at_campaign=rss) |
 | What Alan Carr’s sweat (and Celia Imrie’s fart) tell us about social taboos in 2025 | [阅读全文](https://www.bbc.com/news/articles/cwy51pgql7eo?at_medium=RSS&at_campaign=rss) |
 | Reese Witherspoon on writing a thriller: 'What do girls in bikinis have to do with solving crime?' | [阅读全文](https://www.bbc.com/news/articles/cn0gl91dwr2o?at_medium=RSS&at_campaign=rss) |
-| Five takeaways from heated Mamdani-Cuomo New York mayoral debate | [阅读全文](https://www.bbc.com/news/articles/cn8xlx53jn6o?at_medium=RSS&at_campaign=rss) |
+| Five takeaways from NYC mayoral debate as Mamdani and Cuomo clash | [阅读全文](https://www.bbc.com/news/articles/cn8xlx53jn6o?at_medium=RSS&at_campaign=rss) |
 | US-backed aid group suspends Gaza operations after ceasefire | [阅读全文](https://www.bbc.com/news/articles/cgjd783ywn3o?at_medium=RSS&at_campaign=rss) |
 | Sam Fender wins 2025 Mercury Prize for album of the year | [阅读全文](https://www.bbc.com/news/articles/cp3dnjd9g4go?at_medium=RSS&at_campaign=rss) |
 
