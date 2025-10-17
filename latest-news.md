@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 16:01:08（北京时间）**
+🕒 更新时间：**2025年10月17日 16:12:53（北京时间）**
 
 ---
 
@@ -9,10 +9,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | 'Wrong decision' to block Tel Aviv fans from Aston Villa match, says PM | [阅读全文](https://www.bbc.com/news/articles/c205gnz5p8xo?at_medium=RSS&at_campaign=rss) |
-| Zelensky to make Tomahawk missile case in US after Trump-Putin phone call | [阅读全文](https://www.bbc.com/news/articles/crmxz37nv3zo?at_medium=RSS&at_campaign=rss) |
-| Former Trump adviser John Bolton criminally indicted | [阅读全文](https://www.bbc.com/news/articles/cgql2qzkz5zo?at_medium=RSS&at_campaign=rss) |
-| Housing designed to combat loneliness wins top architecture award | [阅读全文](https://www.bbc.com/news/articles/c4gwlz6k96no?at_medium=RSS&at_campaign=rss) |
+| Zelensky to meet Trump at White House to ask for Tomahawk missiles | [阅读全文](https://www.bbc.com/news/articles/crmxz37nv3zo?at_medium=RSS&at_campaign=rss) |
 | HIV protection jab to be offered on NHS in England and Wales for first time | [阅读全文](https://www.bbc.com/news/articles/c803egy217xo?at_medium=RSS&at_campaign=rss) |
+| Housing designed to combat loneliness wins top architecture award | [阅读全文](https://www.bbc.com/news/articles/c4gwlz6k96no?at_medium=RSS&at_campaign=rss) |
+| Former Trump adviser John Bolton criminally indicted | [阅读全文](https://www.bbc.com/news/articles/cgql2qzkz5zo?at_medium=RSS&at_campaign=rss) |
 | What Alan Carr’s sweat (and Celia Imrie’s fart) tell us about social taboos in 2025 | [阅读全文](https://www.bbc.com/news/articles/cwy51pgql7eo?at_medium=RSS&at_campaign=rss) |
 | Reese Witherspoon on writing a thriller: 'What do girls in bikinis have to do with solving crime?' | [阅读全文](https://www.bbc.com/news/articles/cn0gl91dwr2o?at_medium=RSS&at_campaign=rss) |
 | Five takeaways from NYC mayoral debate as Mamdani and Cuomo clash | [阅读全文](https://www.bbc.com/news/articles/cn8xlx53jn6o?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | Anchorage preparing to house more than 1,000 Western Alaska storm evacuees across 4 shelters - Anchorage Daily News | [阅读全文](https://news.google.com/rss/articles/CBMi3gFBVV95cUxPRmsyei1tWDlTdUdvYTlXdUt4TmpybXdiZGM4bEJ6ZC1ReFJTT0N0d1psa3dTRjkzMFpqWTdWNWZWMFQtY3pNMzJGZTVGUU9rdU81aDZKcUlpQ0pPalRPVmdSYlJweGlLMkE2MFBTbUhPMXQ3RE5iRFVzOENjdWc3c2hQNXB6VzlZOTY0dS1nVFl6UDlEQjJyU3RrVmpIZnRwdWJybnhUdXprekJrMWREb3BNbmRvY3k2Y3pxU1IxV0VJVndaZkZRMUZYbUNpbHBOV01XQUhBQ2preHhPLWc?oc=5) |
 | Virginia attorney general debate centers on Jay Jones' violent texts - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNb20xeERCUkVXbTFLbXpGeFJSak9tcHUxdk5ySHpwRHZMZ2NqMGhHMmM2U2JGejFiQnQ1RG1QUTZKaHFRR2tJaHZOaDdQM1FyMXY1a24xSVh0UnFIRWFXUHdJSWpsUXBVUldNc3pwMzJTYkM4N29vTm56UENhbzRWNVE2QzFMdExsOTZvdFJwYVVaN19ZdzV0VzJRWlhkMkhfeGJtUVZHUWlGMGkxZDJV0gFWQVVfeXFMT2xXQVFTQTQ2TFRFUTY5UDFYb0J0TS1rOEQ4Rm05Y3U0NzliUFlWSTR2eU1WVGg2MVl3bHZXQXN2d0EzcWxTbVl5WWxpSHVwUlhyclNaVnc?oc=5) |
 | US Senate hopeful Graham Platner explains old comments on Reddit - newscentermaine.com | [阅读全文](https://news.google.com/rss/articles/CBMirwJBVV95cUxNRXhDSUpRRTVMX09FMmc1aFBvcE1HajlqdVM5WUpPRzMtblhIYUN5UHQtOFBBbzh2MEJ2REtXQkVQMmt0VkVMd3BHSmViZEtPdV9DaHExVGgtc1VQT09IdEZPTzJsOHJPbTdmdHFyRnloOW9ITVNSaHlhNjlFMllGZ1JtazY0T1FDMVZKWGJ3RXk1MTZYeTFLeDNzRXE1R2VoSlo0Ry1HZGZ0Yks2dlhpMjcxM2JHNWl5V245b2lhRTlKWGFnYVAtXzBUVmxSeFJodTdnWnZIVkVWVDMzMDBSN2QtbWR2b1A4MTJSbGU1WWRhOUo4Z0FSR01ZYzM1U3NiZkQ1eW1fVHp4R1RBLVdaUHhCTWdIR0Z3bERORmFEUXBSUHhfVV8yZFJZNVY3VDQ?oc=5) |
-| New York’s Richest Ask ‘How Dare He?’ as Mamdani Closes In on City Hall - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5vNEFObG9xN2ZOZlJ3a3dHajJvUGFWYW85T29mZnd4UVVTa0ZXMEFUZC1GUVhxMFR0RTBWRFlYSnlPZW51RFpTLWV2RkRyYS1LbmNva3hvbWJZNFFxSTFqUmQzTE9KWFBTWFhPMGFLYmc2ZXBwMEhla19hNloyQQ?oc=5) |
+| Salesforce told ICE it could help speed up hiring of immigration officers - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNNlctZmp0Z1BPa3VaaTdYdlZrX0VjNEF6TlV3WmRGdEJvdVhZZmptMnB1ZUt3NXdtbFVqdUpkLWcwYS13R2FBNUtOaVpqYTVwXzRLQ2RrZF92cTl1SEdReGdBZGlqX1JjV19zNF93bWJFRXduOTRoWVFCZGdHalVBWUdaTUI3eEZhcXQ3Z2hVQkd1enFJLWxvOW5ZZWxkWE0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
