@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 01:49:32（北京时间）**
+🕒 更新时间：**2025年10月19日 02:01:33（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Trump commutes sentence of former US Rep. George Santos in federal fraud case - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOZzUxMDJLeDNsOG0xZEVEOThvY0lOM0U4WHA0dlNXZlFSbUp3LU9uc2k1cGNhRGR5M1RlSTJ5T3lCRWctaHAxMzRET2JCVnZpaXhpbWthMlZsTklvaXd1YS1UVlJKX1dNQllfMmFCOXhFMTdGQlpXamRTT0ljRE85OERkU0dBVkJPcktULURHYXZtTEx2S25ITzJFZTQzTXM?oc=5) |
 | After Voting Rights Act case arguments, concerns over diminished minority representation rise - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNZ1BKaXo0OGdnd0JGZ2lNT29JaHlyQVVlZy1fTnZmTHFBa1lvc20xbTY2LVdMNi1uMTZDTUN4ZjZyb2J5ZkdJdEE3V2RIY0JPMVRVbXdNMDZwWDlCTW80N2phR21jdlY0anNwOHFSVGNwbl9rbk1fZDlTY1JhTW1tV0puTHJBNWwzSGJLUjgxRi1pVF9BU2s0cy1CazZMUVpyMzBhUHBKajA1MVFVMUE?oc=5) |
 | Vermont state senator resigns over racist Young Republican chat messages - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQY21BV0txRzhuY2RDX0h2OUVOaS1ZTlpUMk9qNVh1bkRsT1dWaENwU3B5XzNnN1d5YzhDTUQ1Q3JaMFdKV1pEOUdZUElGaVdZbFFxMl96czdzYi1RQW9WbWR4eWg3R2hEaDF5blA2UmlKdjFxYW81Q3R0VDNDS01NQ2tGRWlOaV9OLWFaLXgtM2VjTnp3cG5NTFFmZWZ4dw?oc=5) |
-| 10 Injured in Balcony Collapse in Cincinnati - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBtWHphYWp5aVVycHdwdUxRSVhibDNIRzdjLVEwZG53ODlXWlAzRGp1MUpqUVdQbHZIZ1VqYzcyakhRVnFMS1dfR2RDVkg4dW5POC0tWGZxcXVsS0Q0X2JWR3VrMWhrbjJveWVQRHFtQmowYUpqVTl5NFRB?oc=5) |
-| Alaska storm damage could displace some evacuees for at least 18 months, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPUGtLbXk4NTA3TG1MdGQ1akx5Nl9xWFA5UXgzQS1mdU10OXc0UWtHM3RfY3IxNWFucGNVM0JHNEpGQ3BHZWVWNmFlaDF0Rm8zejZhVTFJVXFWVkp4WEY2Ulp4WDJNbVpyRnJLSFhSUU9hR1FuMlJMS2JleExWTDd0VWpiUdIBiAFBVV95cUxNWG9sZ3l4UlQ2ZGFlbDJhVXF1UG5QMkZTU3ZjUmVqWDlKanNNWkc5VzlxaHdPd25oZzlYX0VXRFZfbmJOVEJRSXJwS1o5S1BndE1PdnFwNkRNWVByeFVzZ3BSRzduelB3U3ZsQzlHLUJZbUpyaEJDN09BWEJBc2lfR2g3THp2YkVH?oc=5) |
+| Third-floor balcony in Cincinnati collapses, sending 10 people to the hospital - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNb2Rqd2pnbmxiTV9WWTk5amV5cjZZNkUyeE9kQW1QcmhobUJCd2NudDVLTUthdHd4ajk2cklwZ3NaVlJJNThqQndVNk5sbUhJMDBRNF9kWVplZWR4MHJwZVd0bUVXMkt2THdMNG1xZnhOS0VyUWt0dTFjYmpBYVlLWm9QTEg3ODlWeGR6c2lUUjM1OUY4TnNybWRTZ1BZcEhpUTNPSVhyUml2UXfSAbABQVVfeXFMTmpVNUFRSldkWEYxd2ZNcFVjRUNWckRzMzc4aFhlZWpucGpYVXN2VllUZ1ZadmpyRy0tVGFtUzNrbU1Bd0lZODBJbEFmT1RSNGhUempZbFRmMWhsWGVQSEo4RWpOamNYODEyOWJjYzJ5ZXJueFk4ZDA3Y2hNS0J4dWRmUXFVSDJ2cEtJZXh2VVJEN0VlcFFqeU1fQWJPRTNZRUVjdFNCbEgtbngtSmxqWmg?oc=5) |
+| Trump endorses Massie challenger not yet in the primary race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOdDNuR0N5UF91RzlOM0xGdzZ4bnZQd1NTaU5vVlI0bVZLUlVhWkNSM3VMSWp5RHdWbXFuRXBBWDd1QlN4X0QyUnRpbVBwaEw0Y1g5MVVYN1BuaWFWTzA3Z25wQjdEeFdjaVU3VkhLSGN0YVRDdy12YkpGY2JVYThqelVkMEJ0UlR5QTg0?oc=5) |
 | Bernie-backed Maine Senate candidate Graham Platner melts down - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBlem5SMDVCT1Z6bHR4V1FtRVJYMUxaUnIzbGVBS25nM21qdktoSW1iaHd3UWMxRHIyVWlyTVhNNTNocmU1SDk1NS1ZdDdYUVFnRWx2N0QxN2RnRFBvM1VySml3cWRsVmhGb0c4LTJiXzdlV0pXM1E?oc=5) |
 
 ---
