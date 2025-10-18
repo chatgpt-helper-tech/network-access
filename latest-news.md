@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 12:48:52（北京时间）**
+🕒 更新时间：**2025年10月18日 13:00:41（北京时间）**
 
 ---
 
@@ -27,8 +27,8 @@
 | President Trump commutes the prison sentence of George Santos - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPeGpSZjROUGZ5WjJDLThISDJfR2lHN0JwTTVxMVI3cUpVNnNYRjVZNzc1ZU9CTm9oX0hQTVJ4cXVHTFVuT3R0ZkZMNVFNcjRHQW1hdnlGVjlVUGkzV0IwWlJpbFVocEtWZlM4dDBzU1dDMlBQc01xRHlDXzlMZnBRakdhdmU3M1g1MTk3Uk54QmdaaTQ?oc=5) |
 | Trump Wavers as Zelensky Seeks Long-Range Missiles to Fight Russia: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFBzenpOVVJyekpqT0JSRWl6bWVZOGo1VGx0eXh4dUdYY25yTUxrYks3MV9JUExFenhNZmFyVWhoeldiUURTcW5aei1ISnFZN0JoMzQxeUNLdDZxZ2h0eTNjS3ZLUW9fS0U3emhIdDVWUQ?oc=5) |
 | US has seized survivors of attack on alleged narco-sub in Caribbean - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPeUdTM0JDN0UwUWVYNDJLVUdtcFhFRXRNb2Q0US10ekQzSFNnb0pLeFltWTZmQ3diMC1oT2RWa3pia19jTWZyclJ3RUJFNFItTEh4c0lMUTFVZWt4QlpGZllka21ySzFHVmxJVmhUM1BEakYzUFRwaDM2VVFTMHVPOVlpcWN1TnNSMWM3bl9qbEI4M0RKRm5BbjFwaDhUS0ZU?oc=5) |
+| Trump seeks to build on momentum from Gaza deal in a busy diplomatic week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBZWHVuZEtaMFhtVkdoWXp5QTRoRVNjLVo3Unkxb2lVY0RiSzByd0FNTHpJSUVNOVNjSzl0OWllaDNWWi1HXzFJVlNxUlhkMTR4QlI1V3N0WVNNc2FMZEFpT0M2RElKajBGZGJFQmo4TmwwdEtnTmctRjhuZkpRa2s?oc=5) |
 | Trump urges Supreme Court to allow National Guard in Chicago - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxON1plVjltODU4aDVZOFlTbkZRNk1kODlHbk5Tc1Y4RXRXc1lqT09sdDNWRjRXWlRnYklNWjdTYW9iaHcwTXJHT0c4V1hmS0o0WHNHYVFrcnlwRWxNODctbkFxcmprOVQweWZXbG1hWmQ5aVVuZzZ3LTBLazNDcE8yTA?oc=5) |
-| Execution set for South Carolina man who taunted police with "catch me if u can" message written in victim's blood - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNTVhTVDhIXzZTVFplRUZRc1NaejNDbEMzVjMtdjFqRENHbFFEWXpOczhFUEl0NU5nSFpLRUdqTDZFcU51UV9PY2k0eWt0VXVkem1kZkdpYmxEWS1xWkEzMG5MTUlWbGtWd05Fd05tZXh5OTNKQUpfWWwzaXNpWGVySDJSWGtjNlhMaXBDekFLX0lxSy1zWmNBRi1HZlBrbDVM0gGmAUFVX3lxTFA3dlZ5Z2FmN2UtaDRhZGlWa1pYX21YcmJvQWhJZXItampSRkJpWl9SdU9SNEFZdHJpUU90OGlZdXJIUFhZblVkOWhNNm1oYjhfanoxRXlHdmxnc3lQQ0xUSlhINXRrbWVERG1LdW5OdUl4VkJFaFZOQkR6SDJTMTRnSVp2WUFibWhWLWtxX0Fxd1J5b3VQLVM4WEo5QVVRVjBfYzRpWmc?oc=5) |
 | Vermont Legislator Resigns Over Racist Republican Texts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQeWk5UTRWLTRYUW5sQ1h0aVZ6b3R3c1JKSGhRbU9XTUhabVFyeG1mRFlPRXI4VTNpMmsxRk5UM244RzhiZmxwRzBkUXFFM2F3UHY0bkxHTTJ0RHR3RE9YZHVNQ1JETURVRnhHNmF3LXdHQk5rZmcxU2c4Ujg3SUltT1JWaHNqQWZDQUo1TldsaDByeUJCSWV5YzJzQzZqMVRMODlj?oc=5) |
 | Benioff apologizes for National Guard comments - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQcTFQcTFDbnJHZ0VFcnJXejZUWWNtS0lselJtS1NTSlhTSUUxMXZxc3pYc0c5eGRsSlNiLXJ1UWxiU0QtdDdaRGZDdmVZUDFhYkNsOUNSWFJDdVNNU00wTWZlNjhQOEVyVEZpeDVUMGFlaG1HMXpvb2ZNQXV0cVd3cmhwWTk2dV9xN3F6VDRqUjRFU01ld0ljdTdlZHo?oc=5) |
 | Alaska storm damage so bad many evacuees won’t go home for at least 18 months, governor says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1qVU0xVklMS2RHU3lrai0tNHI2b3JkZzZsY2tmUE1MMFY4N2hjbHRJYjZtMFhreDJmMFdQVjg1ZHU2eHBmdlNzODBaalZTc1hTcWpPNjR5VXNmd0xOb0FXemIxdmVub3Rqc25uSGg0X3hOSGdi?oc=5) |
