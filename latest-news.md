@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 10:48:49（北京时间）**
+🕒 更新时间：**2025年10月18日 11:00:18（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Supreme Court gets first chance to weigh Trump’s bid to deploy National Guard - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPc0w5azB1UHJzTXlkQ1d2ak1KWmNCeUR2SE1BODhpcnlDZVRyNUFEODBONm1WQVc1ZTJ1bUlfenJzUjVNRVhJcnFxTWVpQVZ3b0V3NlF3UklYenRyQWlTSVpkN2JWRlJ2U2liU3lTeHpyTU5HQjdzUnZfOXVtX05Xbjk3cXFQU3RpWXlMdHhVdFRRSUJYV0E?oc=5) |
 | Oversight Committee Releases Acosta Transcript - House.gov | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNMVhRZkhwQXpIZVlMVXJabDRET1ZUUGJBd1paY0FzTXNxYllvNXZXNmdNWE90YXEyd0ptNHJCblBrRk5aN1pCVm5oZVV0eTBKZGgyTjhVR0tBbFpjeUdRVUVVV3ZuWWxGbk9aRWNENmtGdk1KOHplX0VWVmcwOWRIR1lSRldFTk1UbWFZ?oc=5) |
 | Benioff Apologizes for Saying Trump Should Send Troops to San Francisco - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPZ01PZ0ZfZTZUMENEUHYwV1NKMlV4ZUVuNFYwVjBlcTY3bFYtU09pTjNpMEdKbDV5dnhJd0ppaGlSX3FoaFdpTDBzZDRGWW5MZ0pIWGtBdVRSWkJrVG5hLTk0VkpLS0JhSmZEN29pS21XbUZ3c2l5cEROZHZiaWRwbQ?oc=5) |
-| Orleans County senator resigns following leaked racist group chat - VTDigger | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQcUtYWUVXY2FTMzE0aEZxSkVEUzBmUWM0bExQa09QS2w2V1JBenZoMWt3eFUzcFBkb0x4UURHWHFGSmgtZDAtNlFNUmZlZ1lTaUpEaXZZSEhtU1NnZHdld3pSQ0cxVThOVURRdldGaVQyeEZWczVlcVFVVTZwUFBrcV9xTkZVYWFOMDJ5dzg3dTJ4YVF6ZTMyeXZ1MFVUbEU?oc=5) |
+| Lawmaker resigns after involvement in racist chat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOREZVc1laWU1lT3ZrSFBzRWp5dExsVVZNRnZwMzhSV2JPUHV6d3FNYmxOaEJTRnZYV1IxMm5lVDlzZFYzNFcxaW5VcUhVV2xPTTl6NkJYdEdaVkZ0WFJ2UW14Mjl1ajMwenZqNEJQNnBjUTkxTk00cmRRcUl5ejlqS21TUWVUX1g1eHZ5ai1mT3lDRnVXeEVTZ2ZUa0JvUGZ4?oc=5) |
 | University of Virginia turns down Trump deal for priority federal funding - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQUkdxNGxFek8yQlRLM1M2cFExQzRLN1ptaERIa1V4Y1hTM09TNW1IbklXVnlILWNOaThvZ1pzM25nTEJYYm5FZEdGU2lua0IzMk5zT3hvdUpZUXdUMjVYdUNwamxUeVpsbzlmMC1PVFRxTjdxYlZlR0doUnZTbVgxeE9EaHc5bnJWcFpLTmt5bGFwWkxJ?oc=5) |
 | Man convicted in 1979 kidnapping and killing of Etan Patz must be retried by June, judge rules - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNa1dGdjI0VVYxN2RRaUlZc25HcEJLcnRad0dlRHlNdDFkQ1lfOWZ5bDFsNFc1MVdEbkd4X1FoWkVxNGpYSXJ6ay1mSi1zajRMTGJNZ2pMbU9JT250ZmdPcUNXZUVvc1NmQWdCNmZ1MlFJWHZfbkI5bEdqZk5VeEhLODhOdFNKaFdUclNaOTFSSjNVdndBbzB2bEdDcFozTEVtLTFPLW5rYlpNRTZRZDJDbU5NOEhsNUtwYlHSAVZBVV95cUxOWVdHcS13bms1S0pqYjRua1BvRVUwcS1TZGNKdXlXSXF3c2phdGlHOGFLZDZWY1lDUlp3V3JsU2xxRDdiNmpic0xtUEVXaUVYaG5PYTMtUQ?oc=5) |
 
