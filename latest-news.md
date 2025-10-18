@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 22:01:31（北京时间）**
+🕒 更新时间：**2025年10月18日 22:13:10（北京时间）**
 
 ---
 
@@ -14,8 +14,8 @@
 | New blood test could speed up diagnosis of 50 cancer types, study says | [阅读全文](https://www.bbc.com/news/articles/c205g21n1zzo?at_medium=RSS&at_campaign=rss) |
 | How an old suitcase revealed a hidden family fortune, lost under Nazi rule | [阅读全文](https://www.bbc.com/news/articles/c33pvlez6yjo?at_medium=RSS&at_campaign=rss) |
 | Louisiana resident assisted in Hamas 7 October attack, US says | [阅读全文](https://www.bbc.com/news/articles/cdx495n0qn9o?at_medium=RSS&at_campaign=rss) |
-| After all those scandals, why did Andrew quit his titles now? | [阅读全文](https://www.bbc.com/news/articles/c3ep8gd1qv3o?at_medium=RSS&at_campaign=rss) |
 | 'It's scary to think I could have died' - the Americans coming back from fentanyl addiction | [阅读全文](https://www.bbc.com/news/articles/cm2e471159vo?at_medium=RSS&at_campaign=rss) |
+| After all those scandals, why did Andrew quit his titles now? | [阅读全文](https://www.bbc.com/news/articles/c3ep8gd1qv3o?at_medium=RSS&at_campaign=rss) |
 | Grand sumo in London: Why rituals and wrestling are drawing a new fanbase | [阅读全文](https://www.bbc.com/news/articles/c4gw7009342o?at_medium=RSS&at_campaign=rss) |
 | 'I'm not putting my ring back on yet,' says Molly-Mae after Tommy reunion | [阅读全文](https://www.bbc.com/news/articles/cg43lg3p7wno?at_medium=RSS&at_campaign=rss) |
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 'No Kings' protests against Trump planned nationwide, in what the GOP calls 'hate America' rallies - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE4wMTFXNjZkeFdJWDZsMWlwY3QyVjdzNzBLRkZYaGlwb0ZWYnRzVkhvVXpMV3dFNXgzejE5SXFsSjBVczctWWdBNWVfZDZCRk9Nc2hld3Y4emozWGxfUGVhcTFLQVhuOVhib3hpcNIBckFVX3lxTFBhczItMUZxNGNMVUNUQzBuX0tWY1J4X29EN2E3TnVxOTdNNEg1ZTVGUC0wb0paSldsRU5pSjE4SmZQNTZXZld3MnRzU3RrbFNVQy1NY0NfbE1OLXctamlxN21GMG4tVEstRng2SHFlNlh1QQ?oc=5) |
+| Millions expected across all 50 US states to march in No Kings protests against Trump - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPZGhjbUEtc2hRbHdPS2VjREtUT3haUDNhdmlOU2l3SXlsdnFQUThQNTFqMFdEVjlOZnk5TkpjXzVWb01DTE1PRDZlVDVKOU5VTmxRMlpOZnpyanlMRVdSTmY1OEJWSzFYRVM3a21tcG1GOUUzSmQzc19SdnZaODJ3M3FxYTBidw?oc=5) |
 | After Zelenskyy meeting, Trump calls on Ukraine and Russia to 'stop where they are' and end the war - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNaEZKNnFKR0lWa0ZNV0I4N0lYMkZkZG9yQUFYRGcySmw3VjJQOE0xZzByWnl0aDdrN1VoWWptWS1MRnV3UUlmSk9qdEtUOVozUFJKU1Z6cUdIYWdXUFlxNElIUzlvR1ZYTjFNWnJJRURleXYxUkN5RWltMUNNWVJJNGNxWVNQZXcwMjNVZnZHdm0?oc=5) |
 | Israel confirms latest body returned from Gaza is dead hostage - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1UUFd3cVFBVk9ybHBxa2k4aGhiQmJRNXJMR3BXNkE3cUgyTGhGTFp4d1Yyai1BakJGTEo0VDRUby1ncnE1VDZlZzhhc0lMQlZ6ZDItNThseWhNUdIBX0FVX3lxTE5iNjVnNGZ1MTM3eTFVT013OHlPTUlYeGZURmJtNjR1eUN6eHQ1SThOU3ZXNTRaVU5LdWJHYjJpMEM1QTY1Sno5SDB4NXRxVU1wY1RwMERlbGlsekN3UVhF?oc=5) |
 | Trump commutes sentence of former US Rep. George Santos in federal fraud case - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOZzUxMDJLeDNsOG0xZEVEOThvY0lOM0U4WHA0dlNXZlFSbUp3LU9uc2k1cGNhRGR5M1RlSTJ5T3lCRWctaHAxMzRET2JCVnZpaXhpbWthMlZsTklvaXd1YS1UVlJKX1dNQllfMmFCOXhFMTdGQlpXamRTT0ljRE85OERkU0dBVkJPcktULURHYXZtTEx2S25ITzJFZTQzTXM?oc=5) |
