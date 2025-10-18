@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 04:01:16（北京时间）**
+🕒 更新时间：**2025年10月19日 04:13:05（北京时间）**
 
 ---
 
@@ -12,9 +12,9 @@
 | Eleven killed after Israel hits bus in Gaza, Hamas-run civil defence says | [阅读全文](https://www.bbc.com/news/articles/cpv1nk7dy4yo?at_medium=RSS&at_campaign=rss) |
 | Disappointment in Kyiv as Zelensky leaves White House empty-handed | [阅读全文](https://www.bbc.com/news/articles/cn97gjqgq9po?at_medium=RSS&at_campaign=rss) |
 | No Kings protests draw huge crowds as anti-Trump rallies sweep across US | [阅读全文](https://www.bbc.com/news/articles/c93xgyp1zv4o?at_medium=RSS&at_campaign=rss) |
+| What Prince Andrew's titles loss means for Sarah Ferguson, Beatrice and Eugenie | [阅读全文](https://www.bbc.com/news/articles/cx2p7xzz4lvo?at_medium=RSS&at_campaign=rss) |
 | How an old suitcase revealed a hidden family fortune, lost under Nazi rule | [阅读全文](https://www.bbc.com/news/articles/c33pvlez6yjo?at_medium=RSS&at_campaign=rss) |
 | 'A drunken Butlin's holiday mishap saved my life' | [阅读全文](https://www.bbc.com/news/articles/c864dg1wvplo?at_medium=RSS&at_campaign=rss) |
-| After all those scandals, why did Andrew quit his titles now? | [阅读全文](https://www.bbc.com/news/articles/c3ep8gd1qv3o?at_medium=RSS&at_campaign=rss) |
 | 'I'm not putting my ring back on yet,' says Molly-Mae after Tommy reunion | [阅读全文](https://www.bbc.com/news/articles/cg43lg3p7wno?at_medium=RSS&at_campaign=rss) |
 | 'It's scary to think I could have died' - the Americans coming back from fentanyl addiction | [阅读全文](https://www.bbc.com/news/articles/cm2e471159vo?at_medium=RSS&at_campaign=rss) |
 | Lady Annabel Goldsmith dies aged 91 | [阅读全文](https://www.bbc.com/news/articles/cn40xq2xgn5o?at_medium=RSS&at_campaign=rss) |
