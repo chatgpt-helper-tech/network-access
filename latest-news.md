@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 09:49:32（北京时间）**
+🕒 更新时间：**2025年10月18日 10:01:22（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Alex Acosta cleared Trump of wrongdoing in the Epstein case, GOP says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNUGllWk5aeGVUTmFTbkNqNnEyUEpTYXNqclFmNjNfeS04Q1Y3SVpOdW52ZGN6REE0YTIycGFuR0hkOHZYeVlWNl9YNnpUYlBRQUlmZmlhb2pfMkd2Y1owRDNGdWJUSXBkOHRNS1FORlFab1Y3NWJEdTJLU0pBcjcwSV9lLW1JVm94cVlpWTgydUg1UWVsbGZwMnBzTEF0UmwzdGI5VXF2dTlwWUtiVmxBWklsZ0kzc3BYNkE?oc=5) |
 | Benioff Apologizes for Saying Trump Should Send Troops to San Francisco - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPZ01PZ0ZfZTZUMENEUHYwV1NKMlV4ZUVuNFYwVjBlcTY3bFYtU09pTjNpMEdKbDV5dnhJd0ppaGlSX3FoaFdpTDBzZDRGWW5MZ0pIWGtBdVRSWkJrVG5hLTk0VkpLS0JhSmZEN29pS21XbUZ3c2l5cEROZHZiaWRwbQ?oc=5) |
 | Orleans County senator resigns following leaked racist group chat - VTDigger | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQcUtYWUVXY2FTMzE0aEZxSkVEUzBmUWM0bExQa09QS2w2V1JBenZoMWt3eFUzcFBkb0x4UURHWHFGSmgtZDAtNlFNUmZlZ1lTaUpEaXZZSEhtU1NnZHdld3pSQ0cxVThOVURRdldGaVQyeEZWczVlcVFVVTZwUFBrcV9xTkZVYWFOMDJ5dzg3dTJ4YVF6ZTMyeXZ1MFVUbEU?oc=5) |
-| With no takers yet, White House sets meeting with colleges still weighing an agreement with Trump - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPOU1FUHJsLUxxMVhPVnQzelJPZ2IzWkx2VkxsN19ZYW5lYjNFNVNpbWlMT0ItR3lsX3VKLWdiam55b0I5OVBMWXdMbFlmTkY5VWRXZG13MEwzbzlZN2p3dVdEbkVfcXJXZXZiN2dONFh3Y2R6T0FDT1dDMHQtTS1zRm5pblBxbVhqZ2s1aUZ1UWdVUE5IOVFCQml5aDlXYmRq?oc=5) |
-| Man convicted in Etan Patz's murder must be re-tried by June or released: Judge - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPbjN4RWY1UTJBaC1LVzRoZEVYOHgzNS1FT3l4a0JqdmpVekhjZEd5MVJZeE4tUXliQVROaG8tSi1yLTBwd3JPdnlDVEd1em1jMk1uV0tBMmhJam5wLVFwUXBBaEM3RF9pUnd4M3E1alFjZ1JsdVlSOVFPQ2RCcGl4RlN3WlZybXN4OEZoZWdkM2NiQ3pDTGNWdEdRZC3SAaIBQVVfeXFMTjcwcmZLRVdDTjlmcFZQSEJDS3hSOHdiN0piWFJsVXlwbWxpbGZzLVlFU2ZiN1pyakpjTldUaFM1WEVoMTAwRmNXb0FVUU53cXhYSXJYNzE0V2JmRTBrb3MzLWlaZlB3cW9qcklja1Q5dGp1eDc4QlNKWTBpUnNVdnhsdzVqOUg4TXJ1YkFwZjhEZ3Vhb3k1SjVXcjhWTnV1ZF9R?oc=5) |
+| Andrew Cuomo is still behind — and he’s blaming Curtis Sliwa - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOY1RhS0NSWGMzczc4MjltU3d3WUhCb3Y2R21RNEM3UElnYmU1WldCMWxwQzZaYlRiakxKN0hWQk92LVNFTUxabnNBN3ZKVHB0UzRrR1V5dllvRHpYcEYxNGE4U29uWnVTWTNtYnNrZmZVZ240aGFldjRGTnFOUnE3a000RGFnNWdkRV9BMjRDUHdCUjBzNWVVZnh4NnFZSEUwR0dQVFpmV0RtUDg?oc=5) |
+| Man convicted in 1979 kidnapping and killing of Etan Patz must be retried by June, judge rules - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNa1dGdjI0VVYxN2RRaUlZc25HcEJLcnRad0dlRHlNdDFkQ1lfOWZ5bDFsNFc1MVdEbkd4X1FoWkVxNGpYSXJ6ay1mSi1zajRMTGJNZ2pMbU9JT250ZmdPcUNXZUVvc1NmQWdCNmZ1MlFJWHZfbkI5bEdqZk5VeEhLODhOdFNKaFdUclNaOTFSSjNVdndBbzB2bEdDcFozTEVtLTFPLW5rYlpNRTZRZDJDbU5NOEhsNUtwYlHSAVZBVV95cUxOWVdHcS13bms1S0pqYjRua1BvRVUwcS1TZGNKdXlXSXF3c2phdGlHOGFLZDZWY1lDUlp3V3JsU2xxRDdiNmpic0xtUEVXaUVYaG5PYTMtUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
