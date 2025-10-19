@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 09:25:51（北京时间）**
+🕒 更新时间：**2025年10月19日 09:37:21（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | 'No Kings' protests draw huge crowds as anti-Trump rallies sweep across US | [阅读全文](https://www.bbc.com/news/articles/c93xgyp1zv4o?at_medium=RSS&at_campaign=rss) |
 | Betfred says all its shops may close if Reeves hikes gambling tax | [阅读全文](https://www.bbc.com/news/articles/c5ydpmy7mj1o?at_medium=RSS&at_campaign=rss) |
 | Spanish town bans black cat adoptions during Halloween | [阅读全文](https://www.bbc.com/news/articles/c77zjkxj750o?at_medium=RSS&at_campaign=rss) |
-| Watch: Brits row from Peru to Australia in tiny boat | [阅读全文](https://www.bbc.com/news/videos/cd9kx7we4xyo?at_medium=RSS&at_campaign=rss) |
+| How BBC secret filming exposed a £28m timeshare fraud | [阅读全文](https://www.bbc.com/news/articles/c33pelk6pmlo?at_medium=RSS&at_campaign=rss) |
 | The Celebrity Traitors cast are closer to each other than you might think | [阅读全文](https://www.bbc.com/news/articles/cj3z5yj4l60o?at_medium=RSS&at_campaign=rss) |
+| 'Andrew told Met to dig up dirt on Virginia' and 'Virginia's revenge' | [阅读全文](https://www.bbc.com/news/articles/cglg98w1284o?at_medium=RSS&at_campaign=rss) |
 | 'I miss the past, but we like the money': The Bali-fication of a laidback surfers' island | [阅读全文](https://www.bbc.com/news/articles/c5yp87ppk7eo?at_medium=RSS&at_campaign=rss) |
-| Grand Theft Auto made him a legend. His latest game was a disaster | [阅读全文](https://www.bbc.com/news/articles/c4gzn34gwvwo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | U.S. Embassy in Trinidad and Tobago issues warning for Americans amid rising Venezuela tensions - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNUXhyY2lPZkhHaGVLX3pXZ1ZjU1RNOG52bF9BWk9Kcm1LNWFPYzNLandNaFZmN0M1VXRIZWxnNTRvMmh0TjN5YmhkbjliOGsxeUMyYzZlT2JTUllVR1M2MEZneGNoRnp3MFhIMkRxY2I0TGptbHotQ2ZjTkVTa0pob1BhNERCbURQbjhCbnRB0gGTAUFVX3lxTE9pcnkwM2pia0t3WTJ5OC10a1lUZlliVzBIMFIybmRDRUFLdFpQMGl1a2RfT291VHptY3drV2FBVkVFTzJmcklZTVNfTkdwS2Y1SHNsRzVfenBVbTctM1NwencxYlhwbm5LQmpHNlBhelpwQUVueGpwQXJPY0o3amNPbnZISDlnU2JYdjg3SWY2eXJfUQ?oc=5) |
 | Ex-ICE director says Trump's immigration crackdown putting agents in "terrible position" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPcXc4ZWJHMXl0ZW12Z3cxMnJDWk1ELWxPNDhMYm5lVHE1RllRcXhsT21yQ2NxNE0wejM5NVk3NG5UeWV3M3ZfQVg5RDJoNkM0MFV4MXhtd1JjQjZpdG1DYzUybllLTzVESkV6SGpzOGxXRlN0RWsxcWtpWEZmdHdhMW9Ic25mMUhWWExPSXkwWVE3QXFqWjd4UWs0ZkpSUklBTTZNSm03WldkYl9PVGRhN043di3SAboBQVVfeXFMUGl2Z2pXN3hKN3UzY3dwa1RPV3FNVEh0ajZodHZodGdUQkhZWS05Qlg4UC1iU01HbUdzYXd3QUNxM255V2xfQXRoeFJ6N25mODVHVm1YRXdoclR5R0QtVXVFSG9VYnZETy1uaUx5Y1pxbnpQdHRDc0xwWGpvZk9wRnpGdnJQbEdLcGJVaGt5WGptVUVVNjdYakNVSnkxQWZNeDlDdFJjUkh2aS1aVWN5ekdKNnpHYlNrRUFn?oc=5) |
 | The White House has faced a flurry of rejections after inviting 9 universities to be the first signatories of its higher-ed compact - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNbjVfVkw4Wm5DaVplY21ob09MNjRJRnYzNUJWTHlqbDMwWkF3RkZQTDNHRUE1Q1BmSU1ZZVItOFdITG1rX19TVXY2c3FwNFRIei0wUWVsTGhvX2tZOUhFYTZvVDlhUGxSb2J6WUkzZ25uQ1h5WlhER3h1MU14Zk9SdGNNdTdPZWRPUmp6Z0N5MUpWTkhMTmZjLWczMl9mYklZS2dWQkM3QQ?oc=5) |
-| Vermont Republican lawmaker resigns over racist and antisemitic group chat - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQcXZlZjU2X0duQW1yV1UyUWVQMXA4SWdzeTdWMmo4QVFDUWRoQlgyeDVObFZpcGw4ZHZzS1ZsT3cxOFRaZVVnZEdFX3FLSW1CajlaY2xvNWd3Zjk3UTVDY043MlVQRTNQamFfZWRuVnhiRURMWTljZkRnclhyNWZobXloTGF5aDQ3NTFfNld1MnU4c0NWTUpaTklrTmVkeVU?oc=5) |
-| Israel says Gaza's Rafah crossing will remain closed, adding pressure over hostages' remains - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQM3Z6SVAyc3B0cFhPUnEwVzc4cGJnVVgxMGxrSzFZWF90NkdVOG9acU5uUUY0NTVnS1BBcC0wTTFYazNXM2RsWTgzeDRCeXZiTTNtdm5LajE0UWcwSTBLQ1dYTlM4RGNtQWpMc2w1cTM0cEFYLXc1U1VrWDJlRi0tb3lvRFBfaHFRaXp5eWxiV0RLOUkxMTlvNEZzQjJKQ21XWjd3eU5CSHQ?oc=5) |
+| Vermont state senator resigns over racist Young Republican chat messages - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQY21BV0txRzhuY2RDX0h2OUVOaS1ZTlpUMk9qNVh1bkRsT1dWaENwU3B5XzNnN1d5YzhDTUQ1Q3JaMFdKV1pEOUdZUElGaVdZbFFxMl96czdzYi1RQW9WbWR4eWg3R2hEaDF5blA2UmlKdjFxYW81Q3R0VDNDS01NQ2tGRWlOaV9OLWFaLXgtM2VjTnp3cG5NTFFmZWZ4dw?oc=5) |
+| Israel receives two bodies that Hamas says are Gaza hostages - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE0wX3dvRGxyWnF1M215Y2ZnLUsyME1ScDRQcWM0WkRHYk9GVHZDb1plcTVZdzU5cERyaHBzV3JHbmF5emdLR2pDUEo5akJfOEdoY1BjSUVSR2hzZ9IBX0FVX3lxTE81U1FNXzBlelpTY3hjc2RsSmRsc3FJWmtQM3c5RF9OVzAwQW1YUmR1dTV1TVU0aHZlTGJFenBDc1ZsTlNWb2k1cGRIbEpBUzZqUExlMEU3cGFyWEVNLUtN?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
