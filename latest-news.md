@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月09日 11:43:37（北京时间）**
+🕒 更新时间：**2025年10月19日 10:24:09（北京时间）**
 
 ---
 
@@ -8,31 +8,31 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Nurses to vote on pay deal as potential strike looms | [阅读全文](https://www.bbc.com/news/articles/c2e3lp9dl7xo) |
-| NHS calls for 200,000 new blood donors as supplies run low | [阅读全文](https://www.bbc.com/news/articles/c98p0pj7dypo) |
-| Home secretary yet to agree deal days before spending review | [阅读全文](https://www.bbc.com/news/articles/c861n7vljdgo) |
-| Britain's energy bill problem - and why firms are paid to not provide power | [阅读全文](https://www.bbc.com/news/articles/cdedjnw8e85o) |
-| First black Premier League referee Rennie dies aged 65 | [阅读全文](https://www.bbc.com/sport/football/articles/c0mr7xlmkxyo) |
-| Brit Awards to leave London for Manchester after 48 years | [阅读全文](https://www.bbc.com/news/articles/cdxk7l58xjzo) |
-| Walking your dog, the latest act of rebellion in Iran | [阅读全文](https://www.bbc.com/news/articles/cn0gngq4wjqo) |
-| UK proposes wider ban on destructive bottom trawling | [阅读全文](https://www.bbc.com/news/articles/c3v507lx0e3o) |
-| It's the Race Across The World finale, and Love Island is back: What's coming up this week | [阅读全文](https://www.bbc.com/news/articles/c93yx110neyo) |
-| Rumours and a city on edge: How the LA protests erupted | [阅读全文](https://www.bbc.com/news/articles/c1kv1lgdpkjo) |
+| Accuser's brother urges King to strip Andrew of prince title | [阅读全文](https://www.bbc.com/news/articles/cdegkd00yz3o?at_medium=RSS&at_campaign=rss) |
+| Will giving up his titles really make much difference for Andrew? | [阅读全文](https://www.bbc.com/news/articles/cd670x96600o?at_medium=RSS&at_campaign=rss) |
+| 'I'm 89 and I saw my homeland rebuilt before - but now I don't believe Gaza has a future' | [阅读全文](https://www.bbc.com/news/articles/c87400e3j5eo?at_medium=RSS&at_campaign=rss) |
+| 'No Kings' protests draw huge crowds as anti-Trump rallies sweep across US | [阅读全文](https://www.bbc.com/news/articles/c93xgyp1zv4o?at_medium=RSS&at_campaign=rss) |
+| Betfred says all its shops may close if Reeves hikes gambling tax | [阅读全文](https://www.bbc.com/news/articles/c5ydpmy7mj1o?at_medium=RSS&at_campaign=rss) |
+| How BBC secret filming exposed a £28m timeshare fraud | [阅读全文](https://www.bbc.com/news/articles/c33pelk6pmlo?at_medium=RSS&at_campaign=rss) |
+| Spanish town bans black cat adoptions during Halloween | [阅读全文](https://www.bbc.com/news/articles/c77zjkxj750o?at_medium=RSS&at_campaign=rss) |
+| The Celebrity Traitors cast are closer to each other than you might think | [阅读全文](https://www.bbc.com/news/articles/cj3z5yj4l60o?at_medium=RSS&at_campaign=rss) |
+| The Papers: 'Andrew told Met to dig up dirt on Virginia' and 'Virginia's revenge' | [阅读全文](https://www.bbc.com/news/articles/cglg98w1284o?at_medium=RSS&at_campaign=rss) |
+| 'I miss the past, but we like the money': The Bali-fication of a laidback surfers' island | [阅读全文](https://www.bbc.com/news/articles/c5yp87ppk7eo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| LA immigration protests live updates: Cars in flames as National Guard, police work to disperse protests - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQTndrZzFvS3lmeG81UzBSR3lMd0UwV3QzXzhYbDdiMG5FeUZJRml5QmVxWWxnQ21KNmpqVV9aYmJMZTcxUkY1TDJGa0k2UzJkcklJeEVLR3BJQnNjWi1uU0FtUFFPc2M0Ymp2SFZSbTdaUGpTcjJ2X1J0cnhGWjY1QmI2dGkxSWJfRXdHc19fdmlENEdsTDF3X0JXQnpGdFlxOTJ6cEpzd3E3a3ZT?oc=5) |
-| Israel Intercepts Gaza-Bound Aid Ship With Greta Thunberg Aboard - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQR21oQ2M2Qk0yZFNDby1RZTdVaHFFcjI1UWgzNnIzcnFUc1lnMTFzbDk0NzZ2QUZKb1lPMVZFeUtmTnBBeVdvNVJCN3JBekpUdlJzbkNpd0hRcWpPdWFMdC0tc0VQeDF0U1djMkIwTmFULUQxM2YyUTV2UE9yU2ZxQWxwZVBnT2VQbTdEUzZQOA?oc=5) |
-| New disputes emerge ahead of US-China trade talks in London - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNazE0d0hPMnVqLW1MNTRRaHduODJEVGtVczFvbTJjM0VRZE1tSmhLMjVuOUxJZ251YVpmcm9ZemlzRHJwWTVMMlRiVWNIMVpsb1BtODZROGVVbDJLbWtfMWhsTXpEMWkyY1U3V2gydzh3dTVwWnZZbGRhbDV2VTZLTnNlSmZKNFA0QUluSEQ5cFlpZDlQNF94MElocmxLNndicTJ3akRn?oc=5) |
-| ABC suspends journalist for calling Trump and adviser ‘world-class haters’ - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5HVzNJdGNXV0NibnJZRUpZWXFzdzJoWXZKTE9xUThSbnFhX3JCZXhleV8xakctSVBJTUFMdUg3UHNNcnFLOW83LThYUTdINVFPRzZ4R3Z5NHhFWHVVVm1McnFIQnNNaUlTV1Q3VVRaTlA?oc=5) |
-| Ed the zebra captured after running loose for more than a week in Tennessee - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNWkFZVGVhbF8xVk1mRkFzdGZ3a1hIZXZaaVJ1d1RzWE8wWjgtM0J4dnNMbU8wRWt1bUhQc28yU0RBWWVIN2o1Wm5XREF5RUdRTXRzd1NrcTVOUTJ4dzluLWFDUGRHY1FLTHgyUkt3WDhoenJMZ3EwWlFsSlpSSk5udnJjaHduRFk?oc=5) |
-| Deportee’s Lawyers Push for Contempt Proceedings Despite His Return - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQWnVrdGdKc250RHMzR0k1NHlDbGlVWngzN0RERWF6ZGV5WGpYa051ZHdLUzFtNzNZajBDNldkaldvT21LRjJUMlVHbVZoNktnSGhMdExoY1R4SmxhYzh1R3BxaUlWOFZobXdES3M1V0dPb2pvVGNLWEp3UUVuR0QwU2F1cHlOUWljMW5VZjZlRS1VSGVSQV9DSmZPYTd0WHFzY2p6UzhBS1E?oc=5) |
-| Gov. Abbott activates state emergency resources ahead of anticipated severe weather - Click2Houston | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxPc09VTjV3eG1vY2FwVnplYkp1eFdOenZFNDhrUk9YMEVuaDk1T3QwWmdwYWNyb3hfdEpuM3dMdEl0YUMySmVqcnlNelV0cFpiU1ItTjFDak83UzRwQ2V2QTFSOGFNTFVZT3lpUDhhVUJJNzg4N0ZBb2c4TjZTbmdDMWJENFZlSWRCYnJBdWhWRDFpSlFrZ2V6YWZZSnEyTGEyWGdNQnBqSklsZ0V0ZlhWYlhybkRyR3hYeE10V0h5dUpkU0EwTFJUSjNtMnVtWWlq?oc=5) |
-| Musk and Trump are over. Silicon Valley is just getting started. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOd1VCS1FmMFJIOVZBS09Pcml2VnpTVkF1QnAxbjlTSzBfNDloWUg0YjRWaGVSU1BMTGdBeHhXeUhVek9taGNEZGhTemQwMk5rNDFKaFRQYUdhTHFYczA4RkJyeDk0NUppdFg4RDJYQjVEQW9TUkhPTExzSUtXM0hsNTI2MVczV3dkUkhmUmdSM3l4bUU?oc=5) |
-| Skydiving plane crashed in Tullahoma near the airport - News Channel 5 Nashville | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5XVGpVWjhqZ2QtVGVqbWVVQ2NaZWpqQXhIendXT2s1VUhmRnJ1R09oOXJMemNUTHlsNDBVdV9WNEJDcDZ4QnpVZ19jZUJrY1l3NUxNRXVMN0tCeGItWVZLUVBxdms0ZUZINmdObHNmaEFmTm9HUjJmc1dBQ2o?oc=5) |
-| A missed drop-off and tragedy at a campground. How a manhunt for a father accused of killing his 3 daughters is unfolding - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQelZGLWYzTGE1a3V5Zy1BaEx6TGRRRVhTcWhMLVBpWGNpeGxkYzRjN3FFTm5xOUdPMlRRWGIzWVZia3JMT1FvZjRaVHlra2lObldnbFVCb2tPTXhwcFJUelV1NTQ5Rk50Z2t0eUNvVjMyWDhKRWVBeEtWR1VGTDBIWU5B0gGHAUFVX3lxTE1IdFhRcVNVN29lU2lnMkpPU1ZMSHFCZy13MnJOSUNBamU3MWg1TVE4dHgwZVJtX2I1d3Vldm1HM0xaTVFRbWdvcG5NWTd3WTlmSk8zVHN5dkZRN2xvZzFSbUhoYVdwUjZiaUhNQlEySFlOTWZmbXFpcGJvZWU0VG1weVdLRlNoQQ?oc=5) |
+| No Kings protests against Trump draw huge crowds across the country - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOUlktYnVRdnRjeTg2YWtwS2h0eG5HY3RXSE5naG9zdjZpNWZ1cGJKMjRybG1FMG1JYkM0MF9LbTRwSWREcTVXb0V4US1fbDVuSGwzdWZjLVJqWTRQRy1NTEE2UVFraFpFdmVZM2dwbHBFYmQ5SkpRSFhvRWVtbmtLVg?oc=5) |
+| Interstate 5 closure brings widespread gridlock, new battle in Trump vs. California - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi5gFBVV95cUxQU3hpY2ZWdVVfcXBZbmVnUTJMd1FzU1RKNERDWGpxalZaWE1PeVB5QVJnVnpGeUhBR1JhUkhIVTRUeDRWUjJCSnpVOVNYc3RxM2VaVVlNd2FhSDRNY2pySTNmcW1Vc2hVQVVrNHU3YWtJSFhnR19tS3c1ZGM2WUdsMWVUdVl6ekxCMWczNDdOM0FqYjlaUXQtc0lvSHJVVE12Y18tRTRKRlZFZTFKaGw2OUZPNW9zQzFXQXBDdjNISWNOZHJWaHIwdGZQYVA1Qmd2d0tOUXV3T3pVRHlfNVV0R0c1NWVYdw?oc=5) |
+| Trump says 2 survivors of US strike on submarine being sent to Ecuador, Colombia in move that avoids legal fight - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQQXFaVDV5Z2stR21wVnJJMm9wVG1LWVJSbDhUX3lscGJ6eENDaE0xekJjNGZ3MUhjdXpOUWFzbkU1RzhDV25oaFBOQmw2NGJXMk1VbjYzMjZaYUlUSkNkMHB4endaeEE3ekRoNXZScXhBSkdxckhJaGhweTJGZkhZdFRvS3RuSy03cDl0SnUxUkFmN0tYWVpqUGlaZkVMR3g2R19iY09mZFVkQmM3aGow0gG0AUFVX3lxTE56Qzg3QUlyU3BVZk1OR19RRElFanpPUVI1cUlhNUUzdE00d1RKMjZyMGkyb09mZXR2YUxCQ3ZpekVNc1d2eGJmZWZPN1MwOXZtZkcydTMzVlZMS2FWdE84MUNSb2F2TzBpaWxaUXlRcXFRQmVCanJoakdmVzdYdEQ5ZlFXYzN4YXJBQUs1RGNMZVhOWUk1SExsS3BvUTJHRWJfU0pvWkRFckVvWHNNOWNXQ3lUZA?oc=5) |
+| Hamas may be planning attack on Palestinian civilians, U.S. says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQN3kzaS0yMkhHZFRCR09LUU5OVXpZMkEzOTZjbDRCLTUzU0EzWjU3dG01NERwZTR1UEc3Z2gwRkJTdnpjUFpGdkN0ZWZPcGs4b1gwUjBleWFUeS1oeTZKNWVmVVBrcDNPUWZuWGl6ODBaNWg1MzUyYlJqTnNIVVp6dzgtRFdNY3NPV0JHalZnWGhaMmR1TXfSAZsBQVVfeXFMUGt0SmxoSS1DTERiTTdIUG5wejFKMW5pbVpISHp2bmdKN1Fvc0ZjVllzV2xTMlRvZU5ReEVUWTQ1RTI1blZYYkkxZ0ZzdVIxcG9KblcxR0xESmNrQ0liYTJYMngyUThOVkpQbnNqZTJGTUktZVZrR3Y4LW5VbDJDT24zdXJuV3VWQkZIcmFqOTg1T1pBcjVOcTBManc?oc=5) |
+| Trump releases former Rep. George Santos from prison sentence - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE56ekNHQVBXLXVnWEZCUzhrMXJtR0ZuSTZBbmtRbUw0UFB1bkJ3V2dhUWtTQ0QwUDlLaTN2eFAxdkdMNmgwNmQzeUxReWQ3VWRWY3gzcEFVMm8wdVZSVlRpeEhFeFVvZEVUdVJDUTVpSU5mWUw0MXRnWjQ2NA?oc=5) |
+| Israel receives two bodies that Hamas says are Gaza hostages - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE0wX3dvRGxyWnF1M215Y2ZnLUsyME1ScDRQcWM0WkRHYk9GVHZDb1plcTVZdzU5cERyaHBzV3JHbmF5emdLR2pDUEo5akJfOEdoY1BjSUVSR2hzZ9IBX0FVX3lxTE81U1FNXzBlelpTY3hjc2RsSmRsc3FJWmtQM3c5RF9OVzAwQW1YUmR1dTV1TVU0aHZlTGJFenBDc1ZsTlNWb2k1cGRIbEpBUzZqUExlMEU3cGFyWEVNLUtN?oc=5) |
+| Ex-ICE director says Trump's immigration crackdown putting agents in "terrible position" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPcXc4ZWJHMXl0ZW12Z3cxMnJDWk1ELWxPNDhMYm5lVHE1RllRcXhsT21yQ2NxNE0wejM5NVk3NG5UeWV3M3ZfQVg5RDJoNkM0MFV4MXhtd1JjQjZpdG1DYzUybllLTzVESkV6SGpzOGxXRlN0RWsxcWtpWEZmdHdhMW9Ic25mMUhWWExPSXkwWVE3QXFqWjd4UWs0ZkpSUklBTTZNSm03WldkYl9PVGRhN043di3SAboBQVVfeXFMUGl2Z2pXN3hKN3UzY3dwa1RPV3FNVEh0ajZodHZodGdUQkhZWS05Qlg4UC1iU01HbUdzYXd3QUNxM255V2xfQXRoeFJ6N25mODVHVm1YRXdoclR5R0QtVXVFSG9VYnZETy1uaUx5Y1pxbnpQdHRDc0xwWGpvZk9wRnpGdnJQbEdLcGJVaGt5WGptVUVVNjdYakNVSnkxQWZNeDlDdFJjUkh2aS1aVWN5ekdKNnpHYlNrRUFn?oc=5) |
+| The White House has faced a flurry of rejections after inviting 9 universities to be the first signatories of its higher-ed compact - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNbjVfVkw4Wm5DaVplY21ob09MNjRJRnYzNUJWTHlqbDMwWkF3RkZQTDNHRUE1Q1BmSU1ZZVItOFdITG1rX19TVXY2c3FwNFRIei0wUWVsTGhvX2tZOUhFYTZvVDlhUGxSb2J6WUkzZ25uQ1h5WlhER3h1MU14Zk9SdGNNdTdPZWRPUmp6Z0N5MUpWTkhMTmZjLWczMl9mYklZS2dWQkM3QQ?oc=5) |
+| Vermont state senator resigns over racist Young Republican chat messages - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQY21BV0txRzhuY2RDX0h2OUVOaS1ZTlpUMk9qNVh1bkRsT1dWaENwU3B5XzNnN1d5YzhDTUQ1Q3JaMFdKV1pEOUdZUElGaVdZbFFxMl96czdzYi1RQW9WbWR4eWg3R2hEaDF5blA2UmlKdjFxYW81Q3R0VDNDS01NQ2tGRWlOaV9OLWFaLXgtM2VjTnp3cG5NTFFmZWZ4dw?oc=5) |
+| Human remains found in shallow grave 'believed to be' missing Philadelphia woman Kada Scott: Police - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOX0NZZmZLNWkxcksxTWRjRFpZUU00dkF6a1FyWjZiWS1TdjV6Zzd6bC16emMtVUVfU2FRenc0QzRwRjR6clF4c2FqdmlpdEJQZDE5aEVyNXpxY1lXMGZWNGJHOVB4V2Q3S3A0QXB4dHRWSDFmcV8tei1nczktXzVaeS1fN2E3dTJjV1pfQ01HS085NGVTNzJuQTZDRHpwZTk4YW5mSNIBqgFBVV95cUxOMUt1ZERLT3I2SFJPN3M5X1ZtTjl5S1BzZ2FlY2R2RGVIWFhlM3FWREwzd1RKRkdrLWVFWUVsRWhLQ1g4Z1pTZUtuRm9nMkZxSldqNWpXcE5fQ3FIRzF5MlIxSDBzRXh5dEplcWF2T21CV3BIRnNmOXp4TmdRMnRrTlhzM3AtVHpSR1VYV3dWZEdfQjlEc3o1aW5LQTZxdk4zWEdvZnBRVERPQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
