@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 05:13:48（北京时间）**
+🕒 更新时间：**2025年10月20日 05:24:39（北京时间）**
 
 ---
 
@@ -8,8 +8,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Giuffre thought she might 'die a sex slave' at hands of Epstein and his circle, memoir reveals | [阅读全文](https://www.bbc.com/news/articles/c1e3leqx89zo?at_medium=RSS&at_campaign=rss) |
 | Everything we know about the Louvre jewellery heist | [阅读全文](https://www.bbc.com/news/articles/cg7nrlkg0zxo?at_medium=RSS&at_campaign=rss) |
-| Police looking into claims Andrew asked officer to seek information on accuser | [阅读全文](https://www.bbc.com/news/articles/c3970mxwz9vo?at_medium=RSS&at_campaign=rss) |
 | Green Party leader defends wealth tax proposals | [阅读全文](https://www.bbc.com/news/articles/cly2nyz3ed2o?at_medium=RSS&at_campaign=rss) |
 | Why John Bolton case is more serious than those against other Trump critics | [阅读全文](https://www.bbc.com/news/articles/cnvejvr5gn6o?at_medium=RSS&at_campaign=rss) |
 | After 'No Kings' protests, where does Democratic resistance go next? | [阅读全文](https://www.bbc.com/news/articles/cj3zemk2j4ro?at_medium=RSS&at_campaign=rss) |
@@ -30,8 +30,8 @@
 | Interstate 5 closure fuels anger and gridlock: ‘There was no coordination’ - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPZFptNHEzelUwUGYwNFJkVklFQnN6bDhIX3ZHMjZwMFRHRnJvRG9Vbk90ZzBmV2pOc3BlMnFxel82aDNaSUU0Q0hMeGhkeFFfZWFpNkpSbTJzVUJ2Z3otcG41ZkhCT2hwWGVtMmxPTFlEWG93MnFaMkxDY0c5Q3lWWjljM2FEZ0prbl9QUmdxUVp5SkdpX3VQRWkyU3RKM29mX0NDWWRFS2xURjRzQ2VZWjNXNjEwMDEtbEQyT1FaUzQ?oc=5) |
 | A peaceful day of No Kings protests across Oregon ends with a show of force in Portland - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxNTVhoNVRjb0psN0VRZlVMT2h2U2Q1NEtSTUlnZmdTck1XdG9NeHZyc0hpcG93NjhFbUNKWFAxU1ZldjZndHlsdkl4LUdBWWlIQ212QnN5SFJJNXZxMm40MGRiNmFvNXBkMnlPeVpZUzJ6aFNUcWktako3ZGNCVnFfVnpuWFNBUkxfeHVrdWt5eEg4WXVmcWdHX1dMOXJucTFfbWhPRXFFcFkxQ3ktZ3cyeGNxbjctUW5ZNUJjWHFDa3NlamJJTXc?oc=5) |
 | ‘Meanest people I have ever met’: Chat leak resurfaces internal fights among Young Republicans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNR2R2TV9rSlpZVnFZSkxnVjZRREpoeGlKOGZDREwtcktQMHE5bUg2ZGltQVE0ZXRwY1M0TnRpNUhDR0JVN0hfVmhicm95S29xQ2RNdVgwck5lS2JLaDJxOWRVSGxFS05sSFVfcWdaWFV3MzVpTy1fMkJvSE1LeEVJWjFLWW1Kc0xnQkp5MjZQYU9jNnc?oc=5) |
-| Trump struggles to crack tariff piggy bank - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQb3VudFNHU2NwaXladXpKODFseGFPM0JrczR4U0l4V1FRenB6NjhFVThwZnpGMUpQeGtnbXFvQUQxbzRjSzZtVnNLakpzdzBTOTUwZndVNlg3OGl3UDlzTzlOUWZCREFIYjQ0Wjd0UDhXTzdOZzdTMDFQVUVEaE9vb0tCbFJPZEQ5ZUlraG1lcjgwZVlFY29OdDVIUVNuQQ?oc=5) |
 | Human remains believed to be missing Philadelphia beauty queen Kada Scott found after ‘very specific’ anonymous tip - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMi4wFBVV95cUxNNnNaSkVhMDFZZWFSek96NDhURXBwX2JDTXZLNjhXVzNEV05ObkdmeFJiU2J6Q2FDa1VPNzA5MU1vdTRERXQ1TXUtMVpfUFJPaW0xUER2SVRHNFMzV0VmQm84eEJObGdqN3d6MlpiUTQ0NWFvR3VxNmFJREJrdkktSkZpWXpOQV9ZZGFmYW9wZERfMk9UVjUySU5FTkRqVnlSTjJpNGpaMG9WX0l0ZTdfSE1zSFRndlpWTngtdzJFbE96MTVuMHJ5cUI5WXo4dXlaRzRSamUzazFUN2dQLVNHUlZVYw?oc=5) |
+| Trump struggles to crack tariff piggy bank - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQb3VudFNHU2NwaXladXpKODFseGFPM0JrczR4U0l4V1FRenB6NjhFVThwZnpGMUpQeGtnbXFvQUQxbzRjSzZtVnNLakpzdzBTOTUwZndVNlg3OGl3UDlzTzlOUWZCREFIYjQ0Wjd0UDhXTzdOZzdTMDFQVUVEaE9vb0tCbFJPZEQ5ZUlraG1lcjgwZVlFY29OdDVIUVNuQQ?oc=5) |
 | Trump urged Zelenskyy to accept Putin’s terms or be ‘destroyed’ by Russia - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5PclJYbk1Bd3NXTDA1aDlWVW82Z1BMeERPZTVqMmxKOFpUYW1iem0zUGYwdktCUTlTNlFFVk1xdk85eVJnVEIyZ3QtQThEZ3pyenhNZlVwTC14Z3lGMVVBMXBlYjlYdEVzLURKUmJUSkE?oc=5) |
 
 ---
