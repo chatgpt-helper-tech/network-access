@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 08:01:58（北京时间）**
+🕒 更新时间：**2025年10月19日 08:12:42（北京时间）**
 
 ---
 
@@ -16,15 +16,15 @@
 | Disappointment in Kyiv as Zelensky leaves White House empty-handed | [阅读全文](https://www.bbc.com/news/articles/cn97gjqgq9po?at_medium=RSS&at_campaign=rss) |
 | Watch: Brits row from Peru to Australia in tiny boat | [阅读全文](https://www.bbc.com/news/videos/cd9kx7we4xyo?at_medium=RSS&at_campaign=rss) |
 | The Celebrity Traitors cast are closer to each other than you might think | [阅读全文](https://www.bbc.com/news/articles/cj3z5yj4l60o?at_medium=RSS&at_campaign=rss) |
-| What Prince Andrew's titles loss means for Sarah Ferguson, Beatrice and Eugenie | [阅读全文](https://www.bbc.com/news/articles/cx2p7xzz4lvo?at_medium=RSS&at_campaign=rss) |
 | 'I miss the past, but we like the money': The Bali-fication of a laidback surfers' island | [阅读全文](https://www.bbc.com/news/articles/c5yp87ppk7eo?at_medium=RSS&at_campaign=rss) |
+| Grand Theft Auto made him a legend. His latest game was a disaster | [阅读全文](https://www.bbc.com/news/articles/c4gzn34gwvwo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Biggest US labor unions fuel No Kings protests against Trump: ‘You need a voice to have freedom’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQNk1OeVktX195SDRDSWZNelpnNFZNc3VRcl9lQ1Y2b2tQbGVQZEx4X2kzMTg2d0JiSVNiWTg3eXloeEU4SUdldE02ODBISy1uRFVQWlJUcjJjb2N3WFFtVUFzLWxKY0ZqZEhrOTktemZhd3AxS19iVi16WlNkTThlaWc4TkI?oc=5) |
-| US to repatriate survivors of strike on 'drug-carrying submarine', Trump says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE92N1ZYOXQ0ejM3V0JhMWxiTjRzYV8zQ3pCM3UzUkhIdF90MjZwUlhvWk5UMkhiVHR0SUx2TkloN1V6VmE3S2JMa09BS0JzbFZkVXBpd2FJMHdHZ9IBX0FVX3lxTE1zd2s5RzZaZHU0OGdfZExpTWNiVVJOYTVVaDV0VFd1ZEpTbEszaUZuYlNXMkxaZ3F1QllRNURjTTFJVXA5ZnE3NkdoN2hLVmZVR2U1SkpkdFFQdVpEX3pZ?oc=5) |
+| No Kings protests against Trump draw huge crowds across the country - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOUlktYnVRdnRjeTg2YWtwS2h0eG5HY3RXSE5naG9zdjZpNWZ1cGJKMjRybG1FMG1JYkM0MF9LbTRwSWREcTVXb0V4US1fbDVuSGwzdWZjLVJqWTRQRy1NTEE2UVFraFpFdmVZM2dwbHBFYmQ5SkpRSFhvRWVtbmtLVg?oc=5) |
+| US will send survivors of strike on suspected drug vessel back to Ecuador and Colombia, Trump says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNRzF2OXhHWjJ1dlltUEpIbTVSaXVBUlVTVkRXbm44b0g3ckdoS0NGbkkwbGtBeGg3cHVqV3U1U2V6T1VnV0czVmNlMjc3cDR2UVNBY0RQSWhDR2dDd1dUMVZvOTJ0cGprTXVISXluLXZrVzUyS1JIQkpNaUd0MGJUVFB0dlNYWko0T2txZDNnOGNWanFlTWx3d1B2cmRna2M1MTE3SkJhVUJvcHlENU5pbUxYbjlzb2ZQUUE?oc=5) |
 | Interstate 5 temporarily reopens but gridlock reigns through Camp Pendleton - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi5gFBVV95cUxQU3hpY2ZWdVVfcXBZbmVnUTJMd1FzU1RKNERDWGpxalZaWE1PeVB5QVJnVnpGeUhBR1JhUkhIVTRUeDRWUjJCSnpVOVNYc3RxM2VaVVlNd2FhSDRNY2pySTNmcW1Vc2hVQVVrNHU3YWtJSFhnR19tS3c1ZGM2WUdsMWVUdVl6ekxCMWczNDdOM0FqYjlaUXQtc0lvSHJVVE12Y18tRTRKRlZFZTFKaGw2OUZPNW9zQzFXQXBDdjNISWNOZHJWaHIwdGZQYVA1Qmd2d0tOUXV3T3pVRHlfNVV0R0c1NWVYdw?oc=5) |
 | U.S. Embassy in Trinidad and Tobago issues warning for Americans amid rising Venezuela tensions - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNUXhyY2lPZkhHaGVLX3pXZ1ZjU1RNOG52bF9BWk9Kcm1LNWFPYzNLandNaFZmN0M1VXRIZWxnNTRvMmh0TjN5YmhkbjliOGsxeUMyYzZlT2JTUllVR1M2MEZneGNoRnp3MFhIMkRxY2I0TGptbHotQ2ZjTkVTa0pob1BhNERCbURQbjhCbnRB0gGTAUFVX3lxTE9pcnkwM2pia0t3WTJ5OC10a1lUZlliVzBIMFIybmRDRUFLdFpQMGl1a2RfT291VHptY3drV2FBVkVFTzJmcklZTVNfTkdwS2Y1SHNsRzVfenBVbTctM1NwencxYlhwbm5LQmpHNlBhelpwQUVueGpwQXJPY0o3amNPbnZISDlnU2JYdjg3SWY2eXJfUQ?oc=5) |
 | Case Against Bolton Raises Questions Over Justice Dept.’s Use of Espionage Act - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNblMtNW1NR3ZscXU5NHpHb2FpVGR2alVHZE1XM1Z0eU9KUEtVY2wxM1RQalJ2WTYxQ0FDd0NRbEZOUHBmMnoxdkozakEtZElreDZkUnAwUFQycTFldVlzUzJfdXFOdWl1OHhuQ0M2NGJmTl9kVHlhVUthUFJuUU9ERm5ENzBxYjR6akM2OW5JSU4?oc=5) |
