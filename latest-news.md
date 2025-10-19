@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 18:25:09（北京时间）**
+🕒 更新时间：**2025年10月19日 18:37:42（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Mystery lingers weeks after missing schoolgirl found dead in pop star D4vd's Tesla | [阅读全文](https://www.bbc.com/news/articles/c205g10g0nvo?at_medium=RSS&at_campaign=rss) |
 | Will giving up his titles really make much difference for Andrew? | [阅读全文](https://www.bbc.com/news/articles/cd670x96600o?at_medium=RSS&at_campaign=rss) |
 | Young Korean author Baek Se-hee's death has shocked many - here's why her work lives on | [阅读全文](https://www.bbc.com/news/articles/c15p9ndxd4eo?at_medium=RSS&at_campaign=rss) |
-| Grand Theft Auto made him a legend. His latest game was a disaster | [阅读全文](https://www.bbc.com/news/articles/c4gzn34gwvwo?at_medium=RSS&at_campaign=rss) |
+| Is this island the new Bali? Some think so - but not everyone's impressed | [阅读全文](https://www.bbc.com/news/articles/c5yp87ppk7eo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
