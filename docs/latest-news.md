@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 15:25:28（北京时间）**
+🕒 更新时间：**2025年10月20日 15:36:54（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Emirates Cargo Plane Slides Off Hong Kong Runway, Killing 2 Ground Crew - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQLVpPTlBsekNlRjNYTjdDeC1yM3pxell2YWpZeUV1WDY3dzY0M1FUNEY1dlhxMTItSTdUZnlBYlNOenp5RklLcjRvWlZlY3ZQZlExaG1IMmMxNFVRM0RRa2tUaWZrUl9Vb1o3Rks4WGFZMDkzZDVXRjVCQmZhbnBCWEtWZC14MUt4?oc=5) |
 | Police found Kada Scott's body thanks to anonymous tips, video footage, and her Apple Watch location, sources say - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOc2ZJRzlRVGNWSzUwdnBGR3d1c2xkSnB3TlY5a3BDMmp4aU4wOTNRRDAzY0l0NDdmYUoxWkE1RklpcjJTTER4eVBkTnpUMTl3T0JISmdlMHMyOG5WcnpSdmNIcjdldVJDcXRVMHBURmdPSGFZZk9Zc2YwTi12WUEyd2N6d29OblUxN0VzVVQ0dmhndE9t?oc=5) |
 | Trump says US will increase tariffs on Colombia as drug trade feud escalates - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNdkdxaEhGVnNFY3JUbU9UVW5UYU12Y0loM09xdkF1SkdYTnoza2t2d2VRZ2dzNV9DWm00VGo1M3VoYk1GVWItZzk4WEl2TXBtMGExR0VNdmJXU1ZHa3BaOVlsLVBiOXVqcTdDUVZIV01CenQ4dDlDUWk3eDlqR1c0cHBfRVBLYThHZGk5U2c3aV9WZ2k0ZHR0TlRXRlZocXI1M1kxODZTeVdJLU0tNUE5UVpmNHg?oc=5) |
-| Roiled by purges and buffeted by US frictions, China’s leadership meets to chart country’s rise - Yahoo | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPTGpiQXFhZHVhRm1XM0UyNlB5SjJmM2NhU0wxblNqUUJHRFU2dFBwejlITzg4VmtMdGFnUTlLNEM1cUl3djgzLXNPZm1PaFlVZ1V3NWNKLXk2T0VQT1lhOFkzNUl0WWljR0NUUi1qV2hYUS1rT2FobF9YTUJwdXcxX2Z6UWVZRnZZdGRLMjJFWQ?oc=5) |
 | Trump says Ukraine’s Donbas region will have to be ‘cut up’ to end the Russian invasion - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQb0swdko5SHYwYzRaRjNvNmVWQ1RLZnU3UmtoLWdvcmJKNW1CQlhXOGs3QzM1X2hER2hiWURxN1NRQ0pFMDJ0WklLZ2xlcnpuQURKbmJDaEd1LTdwYTR2cEx5SVB1NUNlc3h1LWNFS2ZJVTJpYTdjY3pnX3lZa29Wb0RoR0tPTTRVZnJHaTJ2R2hlSXlYQzlMVDgydmNuVWVTSzQ3ZEJMTQ?oc=5) |
+| Australia Pitches to Be Trump’s Fix for China Rare Earths Curbs - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQVVBDZ1JQdEFtS04yNkV5Nm9NRXp5ZDJObkJxQy1LOWdvSm5hM1RsWi1EaURSeXJaWlJpWmN5NE5Od096Y0NyWWltX2N3UUxkMGlTYkV4RFozN2Y2em02NnZJZWYtZWtwdFhYam0xeDRpWGQyd1VMN1g4VmZYZDU5TldFdk5qUU55aVE0SldER0FUaGlzR2hvUjJfSHNiRWM2a1I2d2tuNXZCbUxtV1R3SFhOMjI?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
