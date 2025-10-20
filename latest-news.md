@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 10:24:55（北京时间）**
+🕒 更新时间：**2025年10月20日 10:37:34（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Thieves steal treasured jewelry from Louvre in 7-minute daylight heist - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOMEE2ODFiSVhqWEdNZW9leXRnX2gtODA5QU1mdkFNVWhpMk1Bd0x0V3dBakJtUnM1ZnM1ZWF4em9qQVRYQWtSTXpqLWwwTU8zMHVxbk9hcDREZGNaNl9RQzMtRzlzZkpPS2ZyZGdrbzk3UGNEbmVPUnk2c0puOTlLWE1UMA?oc=5) |
 | U.S. scrambles to save Gaza peace deal amid new clashes - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBuQk5hY1BFQVY4RWR0c3BBdWxyakFVZjdJSEF5Vy1pTThrOVVoZVJ0bmxJTVU3VE4xclNSUXNRVkJabXc2NVZha3RheUpDMDRuMXIwdnpjamtmNnd0aE9DUFd0MnBGY0RJTzI0X2xR?oc=5) |
-| Artillery Shell Detonated Over Interstate 5 During Marines’ Celebration, California Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQdXRCRlJybFJubEFvWGFfdjQ4VVFtRTJjZFUxdDN5M2p3SXBDZW5Kc3FsSEIxaHNPa1huSDA0QUNLVzVpd3R6b05vMEY1Z3BFQVFHZk1DMmVnUFV3TlpZa285a0UxMTVrUmRfa0dRUDA4WWQ1MlEwUTdRU2hfeDF6MG9wZEk4bklUSkJMNW80bXlfam8?oc=5) |
+| Artillery shell exploded prematurely over California freeway during marines celebration - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOTTEyZVMzYXZoNExPSXFkZ3EtZnQycHU0N3BSWHI0YTJTYl93LXI3a2MwejY1T0drQktuLUtUb19uUnk3TjJlaUl1UGpOZlc1a21ESW1BMk9SSnRBazdsUWg2NEJfZ3hsc0dwdTU5TDdCX0N4RU1pcm5mOEd1d3pDVVI4MVdma1FIZ3M4cTlEMjhPMmptN0pJNQ?oc=5) |
 | Trump says will hike tariffs on Colombia as drug trade feud escalates - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNdkdxaEhGVnNFY3JUbU9UVW5UYU12Y0loM09xdkF1SkdYTnoza2t2d2VRZ2dzNV9DWm00VGo1M3VoYk1GVWItZzk4WEl2TXBtMGExR0VNdmJXU1ZHa3BaOVlsLVBiOXVqcTdDUVZIV01CenQ4dDlDUWk3eDlqR1c0cHBfRVBLYThHZGk5U2c3aV9WZ2k0ZHR0TlRXRlZocXI1M1kxODZTeVdJLU0tNUE5UVpmNHg?oc=5) |
 | Secret Service discovers hunting stand with direct sight line to Trump's Air Force One exit in Florida - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxPVTVzOTJXb2xfNElDbnVDb3hJd09hVnVyR1JLM2NWeENWWkhwR01pQlJNMVYwM2VnYXhZQ1JiNTB2UkRpUmRtZ0tCZTY4QnBqWlZCZnkwMENrUlpLQnozOTM5UTRFSndyd1RJMDNYMjdGZ2xSdWlUYmdhWlhMa0xzbDhiSzVfa0J4NU1RSi12Qy1jNG1JVXl4RGc0bVh6dTVQbzlEM0ZsanFqVy1nNWtaS3AwcFJtZnNkcmEtZjhlUVhXOWVCZEHSAVZBVV95cUxPZW9uUGFPZTVCWURvX3U2Y3RVRDl3WUNsOC1oel9lRGtQLUVnSzJLR0U4QjU5aVlBNV94ZEdzcWh5dWptM3ozXzhNbmdjT2VuNG9TUEcxZw?oc=5) |
 | Emirates cargo plane skids off runway into sea at Hong Kong International Airport - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA4WnZFcjFEWDhqUWZHa2xpQ3lwdXNQZklfemNPaE1TVTYzTmNJSUVkSHFqRlNFMElRQ0I1ejdCSl9kZVBZT3RNc0EyRWtYWXU3SHlaY2ptOHFPQdIBX0FVX3lxTE8zSVdLRl9DM0RONktIdUt4WHg5SmRZRU9vWDRNc01EaDFvZTJidUJUZHpuVzU1ck1xRmhmZHJBMjZfYzdZVUtDSC12TnJWZjNrNEM2Yk0yTDlNZXRGdTdz?oc=5) |
