@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 07:37:51（北京时间）**
+🕒 更新时间：**2025年10月21日 07:49:34（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | What has caused the outage at more than 1,000 companies? | [阅读全文](https://www.bbc.com/news/articles/cev1en9077ro?at_medium=RSS&at_campaign=rss) |
 | University tuition fees in England to rise with inflation every year from 2026 | [阅读全文](https://www.bbc.com/news/articles/cgkzj87n8rdo?at_medium=RSS&at_campaign=rss) |
-| Met Police says it will no longer investigate non-crime hate incidents | [阅读全文](https://www.bbc.com/news/articles/cwyp1gk0n23o?at_medium=RSS&at_campaign=rss) |
+| Virginia Giuffre would see Andrew giving up titles as a victory, co-author says | [阅读全文](https://www.bbc.com/news/articles/c201k3wd65yo?at_medium=RSS&at_campaign=rss) |
 | Maccabi Tel Aviv to decline any tickets offered to Villa match | [阅读全文](https://www.bbc.com/sport/football/articles/c3w98224xx8o?at_medium=RSS&at_campaign=rss) |
 | Hamas is a pale shadow of what it was - but it could yet reinvent itself | [阅读全文](https://www.bbc.com/news/articles/cn51w77vlp9o?at_medium=RSS&at_campaign=rss) |
 | Penguin and Club bars can no longer be called chocolate | [阅读全文](https://www.bbc.com/news/articles/c86737yg3jlo?at_medium=RSS&at_campaign=rss) |
 | King focusing on 'duty', says spokesman as Andrew questions continue | [阅读全文](https://www.bbc.com/news/articles/c4gzp6xgdx4o?at_medium=RSS&at_campaign=rss) |
 | Lisbon funicular crash initial report reveals litany of failings | [阅读全文](https://www.bbc.com/news/articles/c20pg8pzp2no?at_medium=RSS&at_campaign=rss) |
 | Europe 'ready to deploy' troops to Ukraine if ceasefire secured, Healey says | [阅读全文](https://www.bbc.com/news/articles/cd9kqve398vo?at_medium=RSS&at_campaign=rss) |
-| Pizza Hut to close 68 UK restaurants with the loss of 1,210 jobs | [阅读全文](https://www.bbc.com/news/articles/c07mk59pzkpo?at_medium=RSS&at_campaign=rss) |
+| Met Police says it will no longer investigate non-crime hate incidents | [阅读全文](https://www.bbc.com/news/articles/cwyp1gk0n23o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,7 +31,7 @@
 | How Trump-Zelensky meeting turned acrimonious over demands for territorial concessions - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQRXJEeVVXWU5tTVMwUkRUNkU5d3FiLV9pMmJDNXFENEh1M0NiYi1VdmtPZ0FXZmtjdmFsd3pLVnJRaW04SXFwT192Vi13OXN5UkpJZEZzZjFsM1lJUUZiVmZEQ1VXbkFJUExzZEZpcEpqLW1PTU1Ia2d0UlV2dkNpV2xhSzc1Qzdtd0dXSXpxaw?oc=5) |
 | Shutdown could halt SNAP benefits for millions, states say - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1qemZ4YjN1eFVJNk9WV004d3BOQjBLWUQ5NWZISmx2WTRZekxmNTdBY092WnRWSzFQR29naGNPa0hSZmVLRmN1NUw2NUItSWlTZmFUSnMwLUFobG95bWZYa3ZzS2szYmQzU2FnaVo4Zmx3YTNPZ3NsRGd5Yw?oc=5) |
 | Trump nominee reportedly boasted of ‘Nazi streak’ in group chats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNUUNTalVPWElPSFpHWTloOGN6THBFRVhBZHIwWThob1N6ajlUZl9TSWc2VkdMaVBWOUlUcmJhdXM0QmgzTlB4Rnc4N2VIY1AxaE9HQUVyeGpiSVlPbDUyT2tIek9udW1mUC16MTZ1YUJpa3dOdWJ0UTBhVGUxc20zYjVpalE1VjlBNkxwYTk4UnpOUQ?oc=5) |
-| Mike Johnson says Trump was ‘using satire to make a point’ with AI poop-bombing video - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPbEdQWjd6dE9vMzdjRzdzc2xfelZpT1BURjBzekpkNDdDcExtbWF3cXVqemt2eElHU05Lb2E2Sm05WGVVUU9aclktV1E1bmo0cnJQXzNJY2NKcmQydGt6TjJxVUJyZFg4RVBUM3ZmLS1VY2NJMDNBRTVvVlJkWmVJMkZ3MFI4RmlUTnRpZjJTR1R5eW1DWFR3RnQ2enU?oc=5) |
+| Trump's fake video featured 'Danger Zone.' Musician Kenny Loggins wants it scrubbed - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxORVhrZVdlVVN0RDdGYzR6NFp6NlJRWjlPQU1LLThrOVhnY21qRkRhZ0V0R29jQmJ1UktLeTZ1R2g1ZHdhUHVNT2JWWjZDS0VjRnRtaXEwYWdiRmxkVU9nVHBiUG5QUl9VakRueWp5blhlY3N4U0Y4SXJIWnR6OTZ6RU5pR05uWFk?oc=5) |
 | Trial begins for former Illinois deputy accused of killing Sonya Massey - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNUGxSbnU0dElwMnlDaF9JUDJBT3NsbFdMeVhUUFpVR04zVmRrQjJRMld5b2tRMGtlOXNST3JKNWliNGNJXzA3cVpxS2x3VVFoWHYyQll4T2VOd0w5ZU5aUG52ZktCZFVqU2pyOVpGdUlIQ2wwY3NmaXdKT3BaX0NyY0Y4bEQ5cldjaHprYTQzcV9ISHZIYTJpemt0NzA3aFpiTkVaR3FtOHRmTWZMMGFhOGF30gFWQVVfeXFMUHc5WDZOUTk0N0ZTUnR3eFVCbzFVV2tmRGFuRUotWVBSVDNCd2lITTVKTVk4cHdUSDBPMHpDR0JkYUlZeU0tc3JmS1M3NXpndHlpcE1FZXc?oc=5) |
 
 ---
