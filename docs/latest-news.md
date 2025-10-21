@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 16:37:08（北京时间）**
+🕒 更新时间：**2025年10月21日 16:48:16（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Other Brazen Art Heists Like the Louvre Jewelry Theft - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFAxeTJ1LTJvdmR5eFA3eXV2RXlIWHFvN1ZieVdoVkVfejZIcTc4blRtZmtxZ2ttYjBrREJjQV9DeE05QXZFTUVubDBsbFFEbU4xNVMwTW12Tm80cmtDMVZNYkVmcV90aU54c0lLdEtfSXVvanRQTEE?oc=5) |
 | Critical Mineral Stocks Surge in Sydney After US-Australia Deal - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNOWVONXBqbmdPNEN5YVpEQW1DOWdVRUtaaEJ4TDhoOEJVMUtLa19XM0FmZVk4OERSMmF0ZFRsNFdqUXE2UGpvdDNON2lvX0d5YTR5djZLTE93RVkwYmNYQ0hQQ1hYQVppb2steXRiS3hrUVVDejFCOHNNdmJIVzFZdU12ZGt0SWl5Q2U0aE14dlFudFpVYzM3NEpXNGpETDR5NFNwcFhydHlBNUxoRnVrZVB5RUU?oc=5) |
 | Republicans broach a longer stopgap bill as shutdown enters fourth week - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPVjVaa1hiY2k3NkdMWEE4dEdXLUo1dTlOeTZvUHp4dnVnQVVzZXlCM082dWR0NnNuN2dHS3h5VnRyUDkzSHB1X1RHYjJxaDlaNDN5V3Q4Wngzc0dJVkp0eXNObi1oVnZzRWFBd2hJU2tMSzZ2NXNxTFhFVHdMX2VKMGpkUmRSWXkt?oc=5) |
-| University of Arizona declines to sign onto Trump administration 'compact' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNV3llWUk0VzdacVJnQlZ5Q29fekY4cV92aTl0SW5GcFNjOUkzRlB3ZHZSLW5vU3N6SUw4cXVUSzZ6RDczbGNOQ2tRSWNZblozZTV6Q3Qwd3ZGR21VdHBBZzBGRktGWVpSLXJMOGZQTW52YVQ0TDhEbDd1aUE1UnZhS1F2ODVzWjZJLWs2VzhsSG9BSnRTOEtuUm9JV25CakxwTFZlS2xYdmVIVWhYTGNnMA?oc=5) |
+| Japan’s parliament is set to elect Sanae Takaichi as nation’s first female prime minister - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPWm56YVhuZHZFZk41RVoyQU1ZVUFvWTdLX2xmMTNCR2MzZHBtTndsVkxiRVlLNEZtYlJpU01PWUxZT0VsbF9VdzNjTGtiU3RhdjlVSWxacTlrTXpYZkg5ZURqSVRIU0lpbTY5NXR2cEpuck4zaGxOWlFfdll6UFUwR1prXzRjMkVFMk8wd0xzaVZYcmhwSlkwZFFPNGdNNnZ5T3JEeG5aYw?oc=5) |
 | Georgia man brought rifle to Atlanta airport after threatening to open fire on terminal, police say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNOHdJZUVoY01IeS13RkZWTkduczBqSmxKdF84eDBWZU9mTmR6Wjh2c0VYalZad1hMMnU3Wlh2eDBhZUlZVGRBSTlKVGR3RU5oUjNfc2JYbTNfb3NQM2x3WlEyWExTZ0hXYlAyci1wRkhqMG8tS3hVN2VicElUc2QzV28yVnF2RTZOTk9KOFE5eUx3N1pxbzRoYjViV1JxZw?oc=5) |
-| White House Works to Preserve Gaza Deal Amid Concerns About Netanyahu - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPS0ZJUXlJWW5qd0xacldFWkUwWjRqcldrV1RfMVVJSXlVMThXMkpnOUg2RTk5MVdTLXlnSUJMcUR3MmdXNE1SQ1gyWXRfRFNad3QzOUJiYWdfNHRKeUFTWnNLNEhwNGVnYjVSeGNZa0FsRTZZc01LZFFGelE0SE8yY2ppQlhrdw?oc=5) |
-| Judge presses federal officials on response to Chicago protests. Here’s what she learned - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNa0k2OFJreE1ySjBNZVcxaFIzVEtWdGx3LUtyQlFpZDRueTVyN1NCTjdpVGsyeHVMN1JuSHlRR254Y0NtcHpDZmJhcGNqeTZCRmRYdExPb1dLSWUzcURhUGxaN3duRERKZVhxUWFQajZpWngxcE1obUYwUk4xTTZ0U19WVzhwNGdo?oc=5) |
+| Trump claims ‘unquestioned power’ in vow to send troops to San Francisco - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE52bGlvNUhud0ZFTjdUOHduLTJ2b1VyT2tCM2ozcEZzbk1nTlJWLWMtNVdiUGQtZ1M3Sm5hbk9DSFl0X2h3OVVla1pqMnN1dTN2NkpvanZvdTNZVmM4S3M4ZHI2VFItRnc4ekZBZXRTYjBMeFBWclkteHZmWmJEZ1U?oc=5) |
 | Congressional Democrats Investigate Arrests of Americans During Raids - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNT2d2ek5uUi1YMXRKVFhqY3hYQlpoaVZJTlMxUkoxWGVzNURVSnBEcUF1bUV3RGpaTFBKaExtSE01aU52VGxha1Bxa2xMTzlWWUtQa21IdnRjVm5iVVRLY0I2WUltUjViZXpaLXZRd0R6WGtwWERpNTNYYllrWTJXcHotV0ZwdlJ2UVRWdTFHNUU?oc=5) |
+| Comey lawyers move to dismiss case, first battle in the prosecution - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOTVBRTWhaT01pNW9rU0x0Smd6YW9QeWFKejhiV3BCX3VtazNVYUJka3lSbktQQXNXdUY2VVphMG16MGRVTVdpMVNjdnQ1X1Z4VjFjV3VaTDJ2RmZqUzBYXy11NmM5d05Mb0JHMXdNU0pseU5nNnUyck05dWtGckdKOUgybjlIRlF3RlMtM0lpU0pXamotd1ViNjRRVQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
