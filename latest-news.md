@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 07:13:58（北京时间）**
+🕒 更新时间：**2025年10月22日 07:25:29（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Republicans broach a longer stopgap bill as shutdown enters fourth week - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPVjVaa1hiY2k3NkdMWEE4dEdXLUo1dTlOeTZvUHp4dnVnQVVzZXlCM082dWR0NnNuN2dHS3h5VnRyUDkzSHB1X1RHYjJxaDlaNDN5V3Q4Wngzc0dJVkp0eXNObi1oVnZzRWFBd2hJU2tMSzZ2NXNxTFhFVHdMX2VKMGpkUmRSWXkt?oc=5) |
 | Trump’s nomination of Paul Ingrassia loses Republican support following racist text messages - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNTHB3WFJXVFl6eUhIMExndlY0d1VPVF9CdXdLVXRaNmVhbE5XQ05jMm5CTkpWZEtsdmdmN2FaZ1M3NlF2UUN3bVdrSnJFSURKeFd3cHU3Ul9hVGVSWm9VdnhPbW5XV1VMMFRyMUp5MGlYc1U3cDh4ZW1BdGc4NWNzUWJHUVY4X3ZJb1l4SHVYU09FOWRPdnVV?oc=5) |
 | Arizona attorney general sues U.S. House over seating Grijalva - MSNBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOR0EyTEZwejVJT29NcnJ6ZzFtbHlpWEJLeHV1YmZiNmZjRlRJcXVPTktjWS1ublRvTlpKWDNqLTZwY1V5OUhIZTB1S2NiVzZhZGJ3eXlBUmpPU092Q0ZIMWtyb2EwRy01cWl1eGtEUUVzUU01WkhQbFkyekJFWUFNUF9Wcl9NVGp5eDNCT0V2VFo3R0NDdDB0TGdseVJLSGhHdmFCNmFlU3FWbWPSAXNBVV95cUxNS1hrUVlpRFNDdnNmZ0o1cHl4djlGVHBDd0hJOTJpVGN3RUZjMHd6bnQ5bVZlMllDa085MVF1OXV0Z0w1LXpZcmluaHVDTWRnMFlJdXlLY3YzQlB4R3BtTGxrRlJBMzd1cmMtWHRFcXBNUWVJ?oc=5) |
-| Platner says he’ll remove tattoo that resembles Nazi symbol - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQM25EM0ZhZHNFTE9GTm1OZWw0a0xYWkZkOFhBT2swWHBQOUplUFF1OEc2c2gzMDlvaGtXeXFWQ3lzYmsxeXJsVEdTei1KM0tNT0R3ZzlodFBGeHZ1RV9hVGVEdmhiVTZrU3B5UDdwaUxsaVBQZXAwRzI5WEVaSmpJcFdB?oc=5) |
+| Maine Democrat Platner, on defense over tattoo, takes page from Trump playbook to keep up Senate bid - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNb3doaG1IZGsxeE1aNEMwX1B6cFQ5bXhWMXlIRm5lSS1vM3JjNXhsYS1fd3RxVFpHWlRqY1c4cFUtNE9JOFd6YUM0Y053VFV5TDM1NFYxU0tnSjV5RHdfMXNRWUR3M19RNjZlZXNwQmUtM3owQXpXcjVlWmhLVnpuLTdKSnZReVNSdzN1UTFaRENrdzYxNWNyeEZSakFOQnJ0UzNEaXV6OXNKT3c?oc=5) |
 | North Carolina lawmakers vote to add GOP House seat, in win for Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQMFhEZl8yWGxVVmtTNW9LUi1nN2lNRVE1a2c0Q0xsRXpTZTVLTWwxdXk5T0hqMTNFdVBCWDM2UTFYcXlZdTdySXFLdkdhck9YUjlyYkx3eWhmaGhBSk45by1jTlNQbDNLMmYyOE5faTZ6eWRra1dCcnFBdmdmc3h0YVhkTGM4M0k0SmVwUXd4MHAzbEppenc?oc=5) |
 
 ---
