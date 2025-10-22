@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 18:48:45（北京时间）**
+🕒 更新时间：**2025年10月22日 19:01:23（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Trump pick to lead watchdog agency withdraws after offensive text messages revealed - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOVGtfOUppQkxqd3FBcEFqb21aQW1qQ0VLa3NCRHNGVG1qUmV4ZExkaUU3dzNXeUVEMThuWXVNYUtxYXhSNVBxWTVSQU9kcGc4MWx0azZjeDZFdHBSNDNYSGw1QmlqMlN3VnpCR1FmeEgwTHVrODFsQ29ucWZQa0tUOGNHN2d0bXkw?oc=5) |
 | Protests erupt in New York City after Ice raids Chinatown over ‘counterfeit goods’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPb1FYODJNZmVjNjNtTnFmMF9KX21TYXFfOXNwWlJvX0hZNUV3dnBETWdPdjB3ZGUzM3BMTjBRZUVuY18yaU8zUElZS3FZN19KeHNrdGo1OXZSWHNNejBQX0xnN2JFMWtlMzVHdFpGdGQ3Rk85ZFdxblpPZTFRdFNWYk5UNmR6cnJ3S0t6N09kYTEtdENU?oc=5) |
 | Arizona AG sues over Speaker Mike Johnson refusing to seat new House member - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQOHgtQlB6TmRuSFNPYmFvQkp4YnBOUFhZX1dla0NvVDFhaG5SN3RHSnJjZFBaN1h4YldxUDEzZWFSU0xGbm5rbU80UkY0SXIyYlJFWFlyVHFUOVJFV0w4OVRJdndzVHlVdXc4RjRIcFFndnpPTnkwYWh5enpBUVY0eDZIME13V3BiU2pr?oc=5) |
-| Democrats Keep Falling for Political Fantasies. When Will They Learn? - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOS1d1YjJfMmR0UTFXc2doTHRvXzUwQU1MMmFraTEzQ1U4ZU9KZU51M2NwbEdtVnh0TlVJcGhfa2JpM3lLOVUxcjNxVjQ4YjlncFRoaEoxLTNoQ1RwX0x6cmlTbnZLdHlqUkJTZHh1TjBMMWJoSG1zYjhuR2RMWi1XQzBnT1N2YWFIZ2lYYWRWWWNEdGFFVUd2bXFCUGM2dFZWOWY0?oc=5) |
+| Platner says he’ll remove tattoo that resembles Nazi symbol - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQM25EM0ZhZHNFTE9GTm1OZWw0a0xYWkZkOFhBT2swWHBQOUplUFF1OEc2c2gzMDlvaGtXeXFWQ3lzYmsxeXJsVEdTei1KM0tNT0R3ZzlodFBGeHZ1RV9hVGVEdmhiVTZrU3B5UDdwaUxsaVBQZXAwRzI5WEVaSmpJcFdB?oc=5) |
 | Billy Joe Cagle: Criminal history of man arrested at Atlanta airport - FOX 5 Atlanta | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPbFhMUVR3cDBVWEtRNVBlWjlsdGJvbmlFVHBsNXJMZXZTWVFmUWhXazViTEY4SGFyeFMxajhRMGhXcVpyenJnSm9fb0FwWU9EWGtQOVRZRGpaeDBxeE5oNUQwYzdWNkYta1cxUjlEMkpUOXdEZFFDX1IxbElrdHdlcWh1RTlZM2RDNGpzVTJJSno3ZXRxWlZnWkJR0gGfAUFVX3lxTFBuMlgyMUtLNTlXMS1vVWNGdGo4UlNSQ0hjYjlhanl4N2t1SGRGb1pGVzBEeTBkd0luVjRnMVZVUzQxc0pKbzVLRG90Uk91a2t1eVBaQlBRYUdRNGtlVHRJcjVYVVA0bU5jbkFCLUxUbW5jV2RhamhHRmlnWkRTZWhMaVEtXzhVYVJEMndMRExOcmhoNEtHRXVaWldRZTNVYw?oc=5) |
 
 ---
