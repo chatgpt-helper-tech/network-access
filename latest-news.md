@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 15:48:34（北京时间）**
+🕒 更新时间：**2025年10月22日 16:01:56（北京时间）**
 
 ---
 
@@ -13,19 +13,19 @@
 | Effects of antidepressants on physical health ranked for first time | [阅读全文](https://www.bbc.com/news/articles/c9d65nqgd5zo?at_medium=RSS&at_campaign=rss) |
 | The £5.30 orange juice that tells the story of why supermarket prices are sky high | [阅读全文](https://www.bbc.com/news/articles/c397n3jl3z8o?at_medium=RSS&at_campaign=rss) |
 | Jaguar Land Rover hack is costliest cyber attack in UK history, say analysts | [阅读全文](https://www.bbc.com/news/articles/cy9pdld4y81o?at_medium=RSS&at_campaign=rss) |
+| Six dead in Russian drone and missile strikes on Ukrainian cities, officials say | [阅读全文](https://www.bbc.com/news/articles/czjpe0193geo?at_medium=RSS&at_campaign=rss) |
 | Gaza health crisis will last for 'generations', WHO chief warns | [阅读全文](https://www.bbc.com/news/articles/cnvezzdnmrno?at_medium=RSS&at_campaign=rss) |
-| Ukraine hits Russian chemical plant with UK-made Storm Shadow missiles | [阅读全文](https://www.bbc.com/news/articles/crmxjverzzro?at_medium=RSS&at_campaign=rss) |
-| Israel identifies bodies of two hostages returned by Hamas | [阅读全文](https://www.bbc.com/news/articles/cd675jygwp1o?at_medium=RSS&at_campaign=rss) |
 | Eurostar orders first double-decker trains | [阅读全文](https://www.bbc.com/news/articles/cz6n1w80z1zo?at_medium=RSS&at_campaign=rss) |
-| Ab Fab stars Jennifer Saunders and Joanna Lumley reunite for Amandaland | [阅读全文](https://www.bbc.com/news/articles/crkln7n8drvo?at_medium=RSS&at_campaign=rss) |
+| Six arrested after violent protest outside Dublin migrant hotel | [阅读全文](https://www.bbc.com/news/articles/c629zg8v8jpo?at_medium=RSS&at_campaign=rss) |
+| Israel identifies bodies of two hostages returned by Hamas | [阅读全文](https://www.bbc.com/news/articles/cd675jygwp1o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Trump says he doesn’t want ‘wasted meeting’ with Putin, delaying summit - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOd2VuSFAxdTM4TEs0TkozRExFeklEeVh0VkJDVkswcTJzN0lIQVlLMjNWeHhKTTBvWFB4em0tZUlmcU9KcFRlamRSWE5paWpxNXdacGxGckFsNTZwQjF4T0lQcXFJd05SZXhqaWM1ZU9qNzNWMjJsNElVWWVGWWpJMVN4TTc4aTdoc1p6REFKeVducW1ZNnc?oc=5) |
 | Historic preservation group urges pause on East Wing demolition as Trump pushes ahead with his ballroom - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPaXBFLWxWQlRpQW5MZ2RKRWhaM0tJY0xWc2loc0ZZYzI4Qjh0YnZKcnptbFhIbXd3R3ZMOEpJai1LQmREalBXa0hKSEJ6cmdKME9KVHFTWGlwOVk1YXpfRDlKOF9nTlB6SHZpX1JtYzBRcC1yNkYwMnZuS3prQ3VoSGpqdEpSX0MzOGx4d0tMeEdEenpOMVJKQ21n?oc=5) |
 | Trump pick to lead watchdog agency withdraws after offensive text messages revealed - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOVGtfOUppQkxqd3FBcEFqb21aQW1qQ0VLa3NCRHNGVG1qUmV4ZExkaUU3dzNXeUVEMThuWXVNYUtxYXhSNVBxWTVSQU9kcGc4MWx0azZjeDZFdHBSNDNYSGw1QmlqMlN3VnpCR1FmeEgwTHVrODFsQ29ucWZQa0tUOGNHN2d0bXkw?oc=5) |
-| Trump says he doesn’t want ‘wasted meeting’ with Putin, delaying summit - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOd2VuSFAxdTM4TEs0TkozRExFeklEeVh0VkJDVkswcTJzN0lIQVlLMjNWeHhKTTBvWFB4em0tZUlmcU9KcFRlamRSWE5paWpxNXdacGxGckFsNTZwQjF4T0lQcXFJd05SZXhqaWM1ZU9qNzNWMjJsNElVWWVGWWpJMVN4TTc4aTdoc1p6REFKeVducW1ZNnc?oc=5) |
 | U.S. Marshal and Mexican Immigrant Are Shot During L.A. Traffic Stop - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQVk9PeW5ZLUtLU2lfbjFQQVFRVXJWeThsaGJENlN1eWczSmV6ZWxLU3dmYmtrdGFlbjkyUFREaUltSzF4Rm8tLTdhNkpwRnF2blFic3FrRjRGUi1naGRSQVVZcEFPSzl5dGw0M21mOE5oNzBpUGhZTEJ5emtKTDJ2QTk0cTUtU0o0aHRSdg?oc=5) |
 | Protests erupt in New York City after Ice raids Chinatown over ‘counterfeit goods’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPb1FYODJNZmVjNjNtTnFmMF9KX21TYXFfOXNwWlJvX0hZNUV3dnBETWdPdjB3ZGUzM3BMTjBRZUVuY18yaU8zUElZS3FZN19KeHNrdGo1OXZSWHNNejBQX0xnN2JFMWtlMzVHdFpGdGQ3Rk85ZFdxblpPZTFRdFNWYk5UNmR6cnJ3S0t6N09kYTEtdENU?oc=5) |
 | Vehicle crashes into White House security gate, Secret Service says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOc0Y2eE5mUmNHYlA4QU9waHBIZDgxQjUxdHA0ZzlvdXJ1TFUtbTBPSlpFQ0szSVVKaVk0c1JSLWxwVFdnZVNodGRDZ2ctQ0xTV29FNEMyUWFybkhwMGxLdzZ1aHd6eXdWS3dWOFRLQ1lkcTFxdWFDdUdsa0gyNERGZU5naUdGUjFaalNEdjlLaWRXOHc?oc=5) |
