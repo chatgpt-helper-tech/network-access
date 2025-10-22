@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 02:48:14（北京时间）**
+🕒 更新时间：**2025年10月23日 03:00:32（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | White House says it will submit ballroom plans for review, with demolition already under way - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNNXpUZVBmRUJCMG5GRnhFT2hILUxVTGJ3am1Pa0NlTFhhR3BydUN3WlNlZ0hYMURtT3dYYm5zWWNJaU1SbHV5LVRIV1k2WXVyMTZBMnE0RFJrZWEzeFdXYXFqNDFJQnZRTm9sSmJqQm5GX21Pa3hhMW03N0Z2SGRBSl9WaHpJcUtEaWtpN2xUYXRrV09MNEdibDc5cDlOY083WEtNVndVdnRZNnpUUy1DNlhqU1FjbXRVeUFXeTVtbw?oc=5) |
 | Democratic senator’s floor speech condemning Trump enters 19th hour - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQSDA1QlRRb19HNXBadXFxNjhmeGV4SlFsaVRJdkI1d3doRm1GbW1hWlJra2c3alF5cGFuVlQ4QnBUb0tiQUhudnV2Z2Vxb0pQVnVON0pzT1FfNmJ4QmdWZXBUVnhISllyZExDTzYwUUVUYVFGc1pmbmlyLTgyMFFxcXg5T1hFZ0ZrN1VObE0zVHc?oc=5) |
 | American 'Bibisitters' try to keep the Israel-Hamas truce on track - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9mN1hSaGd3M2xCMUM3SmxULXhTWWs0anBHVWh2bXFoeXl0OHFjQ0RSV2laUkxRM1dMSE9qNDdzQzlqYi1rZXZvYVRXUzJEQUhPTGVlemR4YThxdGtBdlRYSGZQWGNvNGI5cWpONGRmSUFybVl4cnplS2h4bWE?oc=5) |
-| Trump sought $230M from Justice Dept. to settle past investigations of him - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMkoxMHpUU0UzVnlxV3VnU2dlZVFhNV85TWhudVNKV3Q4TmNBVWt6S2ZKVldMVmFoRnQ4QV9JY0RuZXo2QzhsejYxTEFka3M2dWZvRHJUbnNleUlDTEs0WlNLSWUxdDVKNS1xWUNOY285QVlXNDlrRXEzZjFkaF8wRnRoTW4xNWc?oc=5) |
+| Trump says he has final say on paying himself $230m for past investigations - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOV3FGaFpTLW8zakpQa0FlR1B5TkRHaENGYktDVVhkaFpoY1FsblE4ZVlWa0k0bTBsaEctd3RjQUNFdEJnTzVsdUdlRkxLTEtUdi1yazNHOWNJMzNKQlgxbkVFY2FJZFZsaWlId2RNRFcwTy0tSHRCZWZDTlVQSnZFSXRLYmFYZjdYd3JmbE1ObDk2dmN5bGc?oc=5) |
 | New York officials condemn Manhattan ICE raid: ‘This creates fear and chaos’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPQUZyam5vX1o4Y0FYNGZ6T2JGTExSZnVuY2pQVDZsZHBvdzBuVFRPSmlqOGwxOG8ycVdadXU0dnpQd0NkWkJHLWhMRE1DY0tkRUJTNUoybVdFajMyUzB0SWg1TjM4SlJGTnZTQ2hPQUMyRzU0aDdtd1U0NzdIMXB4STU2ZEUweE41TzEwMA?oc=5) |
 | Maine Senate candidate Platner says tattoo recognized as Nazi symbol has been covered - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPRHdLUDJHa3pkdTA0WW1nM0ZjMElWRDJDRnNFdllER0ZNaXdTZ1dSbjhrSTd1ek9ORzF5WkxTMkhHc01XUGZhZ3dKcmJKbmFzSWlPcG9XRVdfR0NFNWJZZ3VPYjdSU0xJazFNSTktWUpfM0tMRzhkWERJM2JlTmJVek5mMl9QWk5GMUFtbEJfeG95RDVmTmN5VjFKUFJpNVpTb0ZJTFhnTjBRYzA?oc=5) |
 | Sheriff’s deputy ‘got mad’ and fatally shot Sonya Massey without justification, prosecutor says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5SX1EtclB4elNiMXRXbUo1b0tPZFhvVVlHcU5NNHl0a21kMmlwTHBleHVRZXU4cFptMm8yVlNsMVBYN1BGRkozZFpHXzROWFRTaGRrSC10NDBBb3RVV3NVZy1fenFkeXVWWnJiRC1sSVFhSHlmXzQ2ZXFsUUxnY28?oc=5) |
-| Nancy Pelosi Hasn’t Announced Her 2026 Plans. Scott Wiener Is Running Anyway. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE51R0k4VG9GT1o0aFFVVmxzZGNKMGR5c1JZWU93SHdrLVZUdzgyXzlBOHRFOXZ5NmpzcDhPVnpfTzBhQ3JteTJCVjNwLTB3UXR0bW5zNjN0LVRhWU9wNEJRc1JQVGhUcHBfb0ZTbEkwTnRXU09EWnJqQno3OA?oc=5) |
+| Trump nominee Paul Ingrassia withdraws after offensive texts allegedly emerge - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1SekgzeE4wcmRobzJKME8tdWRaczU2LTE2VWd0NjRpQWlhNWZfZWRTVzMwaFVxUXR4SmdfeXFrcndkMlpoM2R1bm01cjhwcWp3N2xGMUstY015d9IBX0FVX3lxTE10bjlCLXkwOFY3a1dEM2JFYzl5N21Ed3NacWlZemNlQ2NkaE5CblRPOVh1NGtaQUk5TEdmenE1UVVXeENKMG9HT0x0em1vR2RJdGtOSFVSVXh1cXBTczFZ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
