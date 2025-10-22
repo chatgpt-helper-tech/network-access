@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 02:25:00（北京时间）**
+🕒 更新时间：**2025年10月23日 02:37:50（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| US forces said to strike alleged drug boat in the Pacific - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE0tcEE2c1lnTXBuZm93cEZmLW50OEt6ODZ3SlZoNC1rd2pucDVNU041TWV0WkNIQm85U211aW1yLXhUZnJXNzRfeFdYd2hLRlh1ODlhd3k0blF5UdIBX0FVX3lxTE9FVlRxbm5ZTXdUSUJTQTJOSEZDZW9wMlVGMVlDUnJTU0FMaElnRm9fR2V2RFdJNXlLVXB5RHFOQWJaUUJTcHB2djk2cWQxbXlVV3ZjNU5OajVfcVpGMFlz?oc=5) |
 | North Carolina lawmakers pass new map designed to give GOP an extra House seat - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOQVNycG01YktlMzZETy1RTUJKMVZ3M2ozckRfeG1YTmtJLVNIOHl0REdzcXZ4QjIzNExVZ3loMUZKZWhtbW41Q1dPNXRUMEd0dzlFUUZDcldqR3BIUVdfeEgxdUZQdVB4aVBkU2lDOURIdmZqZ0plRDI2S1FlNGtyanI4V2xmNDNwcVVzaFRsdVNTNzVGZzNIQ0xoMkNaV1V6Z0E5alBPR0Y1VkNZVndNSlB5ckpNMlhFVHFHMFk5Y05WZ9IBVkFVX3lxTFAxTzUwNFRZUjV3VW1lblVRMzV6ZVoxaGdacFRPTklnNjI1WlVwWWlmd3RPeTJuYWVSUkVwOEJmbTBzRC1FWHVjWmlocVhZeTNZNVVTUWln?oc=5) |
 | White House says it will submit ballroom plans for review, with demolition already under way - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNNXpUZVBmRUJCMG5GRnhFT2hILUxVTGJ3am1Pa0NlTFhhR3BydUN3WlNlZ0hYMURtT3dYYm5zWWNJaU1SbHV5LVRIV1k2WXVyMTZBMnE0RFJrZWEzeFdXYXFqNDFJQnZRTm9sSmJqQm5GX21Pa3hhMW03N0Z2SGRBSl9WaHpJcUtEaWtpN2xUYXRrV09MNEdibDc5cDlOY083WEtNVndVdnRZNnpUUy1DNlhqU1FjbXRVeUFXeTVtbw?oc=5) |
-| US forces said to strike alleged drug boat in the Pacific - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE0tcEE2c1lnTXBuZm93cEZmLW50OEt6ODZ3SlZoNC1rd2pucDVNU041TWV0WkNIQm85U211aW1yLXhUZnJXNzRfeFdYd2hLRlh1ODlhd3k0blF5UdIBX0FVX3lxTE9FVlRxbm5ZTXdUSUJTQTJOSEZDZW9wMlVGMVlDUnJTU0FMaElnRm9fR2V2RFdJNXlLVXB5RHFOQWJaUUJTcHB2djk2cWQxbXlVV3ZjNU5OajVfcVpGMFlz?oc=5) |
 | American 'Bibisitters' try to keep the Israel-Hamas truce on track - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9mN1hSaGd3M2xCMUM3SmxULXhTWWs0anBHVWh2bXFoeXl0OHFjQ0RSV2laUkxRM1dMSE9qNDdzQzlqYi1rZXZvYVRXUzJEQUhPTGVlemR4YThxdGtBdlRYSGZQWGNvNGI5cWpONGRmSUFybVl4cnplS2h4bWE?oc=5) |
 | Democratic senator’s floor speech condemning Trump enters 19th hour - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQSDA1QlRRb19HNXBadXFxNjhmeGV4SlFsaVRJdkI1d3doRm1GbW1hWlJra2c3alF5cGFuVlQ4QnBUb0tiQUhudnV2Z2Vxb0pQVnVON0pzT1FfNmJ4QmdWZXBUVnhISllyZExDTzYwUUVUYVFGc1pmbmlyLTgyMFFxcXg5T1hFZ0ZrN1VObE0zVHc?oc=5) |
 | Zelensky Says Strike on Kindergarten Shows Putin Isn’t Serious About Talks - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOTV9KZWNRbjRGT3IzU0U4T2MtLXN3d2NvOEVDbkhLeF8wWVJ1RDk4STVFNGNRNXh0eGthX2pBWm11QnRWWC1lZEFNQ2NlU3ZNVGRRWV9EOWJOSXY1c0lNcTVpeHRaUzVtN0kxUVZDTVFuSGR5SHF1WHdnc0FqRzIwMWFKbnJodw?oc=5) |
