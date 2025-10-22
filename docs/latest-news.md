@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 10:49:51（北京时间）**
+🕒 更新时间：**2025年10月22日 11:01:28（北京时间）**
 
 ---
 
@@ -12,11 +12,11 @@
 | Trump says he did not want 'wasted meeting' after plan for Putin talks shelved | [阅读全文](https://www.bbc.com/news/articles/c4gjp73gp41o?at_medium=RSS&at_campaign=rss) |
 | Effects of antidepressants on physical health ranked for first time | [阅读全文](https://www.bbc.com/news/articles/c9d65nqgd5zo?at_medium=RSS&at_campaign=rss) |
 | Ukraine hits Russian chemical plant with UK-made Storm Shadow missiles | [阅读全文](https://www.bbc.com/news/articles/crmxjverzzro?at_medium=RSS&at_campaign=rss) |
-| Why Trump made breakthrough in Gaza but can't with Putin over Ukraine | [阅读全文](https://www.bbc.com/news/articles/cx2y9je4d3go?at_medium=RSS&at_campaign=rss) |
-| The deal that means Prince Andrew can still afford to live in Royal Lodge | [阅读全文](https://www.bbc.com/news/articles/cgmx1gxv1e7o?at_medium=RSS&at_campaign=rss) |
 | The £5.30 orange juice that tells the story of why supermarket prices are sky high | [阅读全文](https://www.bbc.com/news/articles/c397n3jl3z8o?at_medium=RSS&at_campaign=rss) |
 | Staff skipped checks and said a vulnerable young woman was safe. Days later, she was dead | [阅读全文](https://www.bbc.com/news/articles/cz91e1e23wzo?at_medium=RSS&at_campaign=rss) |
 | Arrests after violent protest outside Dublin migrant hotel | [阅读全文](https://www.bbc.com/news/articles/c629zg8v8jpo?at_medium=RSS&at_campaign=rss) |
+| The deal that means Prince Andrew can still afford to live in Royal Lodge | [阅读全文](https://www.bbc.com/news/articles/cgmx1gxv1e7o?at_medium=RSS&at_campaign=rss) |
+| Why Trump made breakthrough in Gaza but can't with Putin over Ukraine | [阅读全文](https://www.bbc.com/news/articles/cx2y9je4d3go?at_medium=RSS&at_campaign=rss) |
 | Israel receives two bodies Hamas says are dead hostages | [阅读全文](https://www.bbc.com/news/articles/cd675jygwp1o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
