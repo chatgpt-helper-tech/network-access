@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 22:48:42（北京时间）**
+🕒 更新时间：**2025年10月22日 23:01:27（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | The £5.30 orange juice that tells the story of why supermarket prices are sky high | [阅读全文](https://www.bbc.com/news/articles/c397n3jl3z8o?at_medium=RSS&at_campaign=rss) |
 | Relief over inflation, but what now for the Budget? | [阅读全文](https://www.bbc.com/news/articles/cvg4d13p33yo?at_medium=RSS&at_campaign=rss) |
 | Woman fined £150 for pouring coffee down drain | [阅读全文](https://www.bbc.com/news/articles/cg435gg66gpo?at_medium=RSS&at_campaign=rss) |
+| UN's top court says Israel obliged to allow UN aid into Gaza | [阅读全文](https://www.bbc.com/news/articles/c17pqxzl0yzo?at_medium=RSS&at_campaign=rss) |
 | Prince Andrew should face MPs over Royal Lodge lease, says Davey | [阅读全文](https://www.bbc.com/news/articles/c0exgrgd9w2o?at_medium=RSS&at_campaign=rss) |
 | Apple may be forced to allow rival app stores in UK | [阅读全文](https://www.bbc.com/news/articles/c04gz1wx706o?at_medium=RSS&at_campaign=rss) |
 | Storm Benjamin to bring gusty winds and flooding rain to UK on Thursday | [阅读全文](https://www.bbc.com/weather/articles/c1d043xek30o?at_medium=RSS&at_campaign=rss) |
 | Can you spot a traitor? Take our quiz to find out | [阅读全文](https://www.bbc.com/news/articles/cx20545pdedo?at_medium=RSS&at_campaign=rss) |
-| Can shampoo repair hair? Four haircare myths get the chop | [阅读全文](https://www.bbc.com/news/articles/c0lkrnzpzl1o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,9 +30,9 @@
 | Louvre reopens three days after French crown jewels stolen - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBuUVFnTVhYTkxPTGc1WU54ckJmQmhfNm1ZWHJ1STNDWVNhTVBfWFVzZnhUc1RZdGxsV2FqdHgzZFVWRTl0OW1qR3hJMDFfak50Q1JpWjBnTktnZ9IBX0FVX3lxTFBrYldsNmhiUWx5dEJjNjRDMXd5S04xT0RxbTdqaDRkcjJpVVN4M1YwOElCbTlpdVZLWF9WQU1wcUNKZjVxNXQyYjZ1dERqS0U3RGRHLXU3Q21mbXg4RDNz?oc=5) |
 | Arizona AG sues over Speaker Mike Johnson refusing to seat new House member - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQOHgtQlB6TmRuSFNPYmFvQkp4YnBOUFhZX1dla0NvVDFhaG5SN3RHSnJjZFBaN1h4YldxUDEzZWFSU0xGbm5rbU80UkY0SXIyYlJFWFlyVHFUOVJFV0w4OVRJdndzVHlVdXc4RjRIcFFndnpPTnkwYWh5enpBUVY0eDZIME13V3BiU2pr?oc=5) |
 | NY mayor and police distance themselves from Ice raids amid Chinatown protests – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxNNzZmZTZhRU5SdkJqZ0Y3VUpNUzI2bktOUXd1V3YxbGxVYVVKUHJKWEtLaG1neV9jUlZrY2lkTkxzc0pkYy10WkM4dnFLYjE2dUZGdjhxVkc5blBWdVN6dDRsNFdIaXJYbW9hdHhUMlJWWFlPVFo4dDc1ajJUQnpyYVE0V2tpYkdXREJuYmxvVzVlc1RjUUV5c2tNdW4tTWUzRHhWa0NJRkhKWDU4SkxaTTNSbVJrNzRrdmhicGxzb3pHRnNleUpvYkhGa3A?oc=5) |
-| How John Bolton’s criminal case stacks up to other high-profile classified docs probes - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPY3dfMlo3SXRmNmRkNk9fZlY1MlM5U2dadmlvak9Zb2VzTVVRSVEzUndvX2JxTjJ1cG9vNTB2R2hfMWUxZ09mRmIwdU51UUVYRHBlR1l0T0w5TVR4ZXhHdml6c0xkNlg3d21YNnRsTzBzZ2ZEV3QyRzhobVFOWTdyeUZwSTRJWkNnOFhlc0h0Y2Q3U0FZQmFOVnMtb3FVeFU?oc=5) |
 | Trump nominee Paul Ingrassia withdraws after offensive texts allegedly emerge - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1SekgzeE4wcmRobzJKME8tdWRaczU2LTE2VWd0NjRpQWlhNWZfZWRTVzMwaFVxUXR4SmdfeXFrcndkMlpoM2R1bm01cjhwcWp3N2xGMUstY015d9IBX0FVX3lxTE10bjlCLXkwOFY3a1dEM2JFYzl5N21Ed3NacWlZemNlQ2NkaE5CblRPOVh1NGtaQUk5TEdmenE1UVVXeENKMG9HT0x0em1vR2RJdGtOSFVSVXh1cXBTczFZ?oc=5) |
-| Ex-US Sen. John E. Sununu enters GOP primary race in New Hampshire for the seat he lost in 2008 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUk85c3h4dkFsUjJoUHBxWjd1MWpjNlVyaEg4emdCeWpNaWQ0eXhBQlFNSklwQndVM1RDMW9tOXF3QnRjd21MOUo4Sml1UnZkaHo1T2c2cUlrRVRXY1U1N21MTHJqaXpmeTc3dngyN0lNU0xXX1BVSmxvZVBoaHNNNHJZWnRVWkdiMG9COVNtaUQ?oc=5) |
+| How John Bolton’s criminal case stacks up to other high-profile classified docs probes - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPY3dfMlo3SXRmNmRkNk9fZlY1MlM5U2dadmlvak9Zb2VzTVVRSVEzUndvX2JxTjJ1cG9vNTB2R2hfMWUxZ09mRmIwdU51UUVYRHBlR1l0T0w5TVR4ZXhHdml6c0xkNlg3d21YNnRsTzBzZ2ZEV3QyRzhobVFOWTdyeUZwSTRJWkNnOFhlc0h0Y2Q3U0FZQmFOVnMtb3FVeFU?oc=5) |
+| Merkley holds Senate floor, saying it's to 'protest Trump's grave threats to democracy' - KATU | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxOWFhWbF9kanhneXJnRkpzNXV1NzZ4NHdPckE3NFpOZDdFVnR3V0ZOcE03b3otblFNMmdlc2xEQkx1OUh4bG1VOVNGNWdfakozWS1za1VnaXB3UjhUQzlEaWsyTFpuYUFmZUI1U2ZnYlAyM3lWNV83dVdQcTJmWUg2OG1rU1JpZ0JjYjVfR3puVEFRcUFsMTRIaElqaWluQmYyQ3VVQW9DNzR4UnV2RGZKOGZEdGFpVHR4TGd4d19mR2hJSDBpa05SYXFnUDhpMndvZUYzTg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
