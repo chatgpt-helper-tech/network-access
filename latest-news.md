@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 14:13:37（北京时间）**
+🕒 更新时间：**2025年10月22日 14:25:46（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Vehicle Crashes Into Security Gate Outside the White House - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5YemN2Wk1PaGpuaUs4NVo3aDNkSmtMc3pIdUFNYUpMdzBnVjROT3RDR3RfTE5DaTRYZ0hfa3NhSUZJVV96OVVPdFZTSDhRSHVlY3VaRVFXMXlZdlhXdmF3bHhaTTVvT2ZZY0xiRnhRVFBDdw?oc=5) |
 | ICE raids target vendors selling counterfeit goods on NYC's Canal Street, DHS says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1tZmNRWGt3cWVUaEVySnMtb21rYUN4YXlncV9CNG1jeEEtWG5jaTF3T0pyeC1YWW9BbTVxTHM5cV90ZUp4X0RxdGd5VkZiUmhYZ2Z5cFMzNmNvVGVpaTNSUlJUR2ZCUUc2TXdnbXlITVBVbEhFTEVR?oc=5) |
 | Arizona AG sues over Speaker Mike Johnson refusing to seat new House member - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQOHgtQlB6TmRuSFNPYmFvQkp4YnBOUFhZX1dla0NvVDFhaG5SN3RHSnJjZFBaN1h4YldxUDEzZWFSU0xGbm5rbU80UkY0SXIyYlJFWFlyVHFUOVJFV0w4OVRJdndzVHlVdXc4RjRIcFFndnpPTnkwYWh5enpBUVY0eDZIME13V3BiU2pr?oc=5) |
-| North Carolina lawmakers vote to add GOP House seat, in win for Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQMFhEZl8yWGxVVmtTNW9LUi1nN2lNRVE1a2c0Q0xsRXpTZTVLTWwxdXk5T0hqMTNFdVBCWDM2UTFYcXlZdTdySXFLdkdhck9YUjlyYkx3eWhmaGhBSk45by1jTlNQbDNLMmYyOE5faTZ6eWRra1dCcnFBdmdmc3h0YVhkTGM4M0k0SmVwUXd4MHAzbEppenc?oc=5) |
 | Billy Joe Cagle: Criminal history of man arrested at Atlanta airport - FOX 5 Atlanta | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPbFhMUVR3cDBVWEtRNVBlWjlsdGJvbmlFVHBsNXJMZXZTWVFmUWhXazViTEY4SGFyeFMxajhRMGhXcVpyenJnSm9fb0FwWU9EWGtQOVRZRGpaeDBxeE5oNUQwYzdWNkYta1cxUjlEMkpUOXdEZFFDX1IxbElrdHdlcWh1RTlZM2RDNGpzVTJJSno3ZXRxWlZnWkJR0gGfAUFVX3lxTFBuMlgyMUtLNTlXMS1vVWNGdGo4UlNSQ0hjYjlhanl4N2t1SGRGb1pGVzBEeTBkd0luVjRnMVZVUzQxc0pKbzVLRG90Uk91a2t1eVBaQlBRYUdRNGtlVHRJcjVYVVA0bU5jbkFCLUxUbW5jV2RhamhHRmlnWkRTZWhMaVEtXzhVYVJEMndMRExOcmhoNEtHRXVaWldRZTNVYw?oc=5) |
+| North Carolina Senate Approves New Map in Effort to Add G.O.P. Congressional Seat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPYkQtRU9lTHhUUTlweXlNSUdveE92QkktWTIwTFBLWmM2dWVSWE0zT0lCVUlQUGhPV3ExTVI5dnA5aEZQdGozcjBnNWRWVmROWmRDU2lfT20tc29wOXpNa3k2dVNkRkNaeWFyOTVYV1dsbWYyUlBQNW5xQTl3VXFPV3k2Q1A4VTBYWGd3NmpkeFM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
