@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 14:36:25（北京时间）**
+🕒 更新时间：**2025年10月22日 14:49:36（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| In a shift, White House says no plan for Trump-Putin summit - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOUEdmTjlNMWpWanFoeVlfY2lQWnl1VksydEg1WnRfWnM0NDdCWmM1U1V4UlZyX3BZdHVlT0tYVlZoX3VTVWZfaGo0aGZ2RUl3TE53LTZJN0x5SGJEOTZpMEE2VFk0dHlxQk5Yb2NCRjZlTHN5NS1vOHA3dy1DLWZ6Sy1rXzU?oc=5) |
 | Historic preservation group urges pause on East Wing demolition as Trump pushes ahead with his ballroom - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPaXBFLWxWQlRpQW5MZ2RKRWhaM0tJY0xWc2loc0ZZYzI4Qjh0YnZKcnptbFhIbXd3R3ZMOEpJai1LQmREalBXa0hKSEJ6cmdKME9KVHFTWGlwOVk1YXpfRDlKOF9nTlB6SHZpX1JtYzBRcC1yNkYwMnZuS3prQ3VoSGpqdEpSX0MzOGx4d0tMeEdEenpOMVJKQ21n?oc=5) |
 | Trump pick to lead watchdog agency withdraws after offensive text messages revealed - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOVGtfOUppQkxqd3FBcEFqb21aQW1qQ0VLa3NCRHNGVG1qUmV4ZExkaUU3dzNXeUVEMThuWXVNYUtxYXhSNVBxWTVSQU9kcGc4MWx0azZjeDZFdHBSNDNYSGw1QmlqMlN3VnpCR1FmeEgwTHVrODFsQ29ucWZQa0tUOGNHN2d0bXkw?oc=5) |
-| In a shift, White House says no plan for Trump-Putin summit - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOUEdmTjlNMWpWanFoeVlfY2lQWnl1VksydEg1WnRfWnM0NDdCWmM1U1V4UlZyX3BZdHVlT0tYVlZoX3VTVWZfaGo0aGZ2RUl3TE53LTZJN0x5SGJEOTZpMEE2VFk0dHlxQk5Yb2NCRjZlTHN5NS1vOHA3dy1DLWZ6Sy1rXzU?oc=5) |
-| Man shot by federal agent charged with assault after alleged ramming during ICE stop in LA - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNLThxZTNhQWdzLVpUUDZ6b01LME81MGlyWldmWHdSN1M1NUR3NG9WSG9kV0s3WDgxTGZ1bUtSZ0F2SWNYdkZ2RjVzd1lKdGZ6aU9tNWVzZ1NDSmxram5LNG1ZOFB3eUlaWmxWbjN4S01YZ2JmMjdDSEZqc3QtVV9qNmlGeWpyOVZuRmd1X1ZoTzV5N0c2UWRsYjZuZUlNS3pFa0lVYmNVZVZvVkJKOEFZ0gG0AUFVX3lxTE1xQk4xYXBkVE5rcmlDd1Yxdnd4NWtkcWZvZHVyYTByT1ROOTlNbzFTYUxUUFJRQWZaS0xvV29ha2c4Z25aZW5lWVdwYW1MVXBjdEtVbW5rNGVIZENvZHdQc254WTdySHNMLWxyRUNEMWN5LVVMZWQ1RjlpbmtsWE5McnN6d1VCRWVTbTlUdU9hNkRiR1A4RFZVZlFKN2UteGZDaDFvbjFiTmE4UTdKWmhOM3NGTw?oc=5) |
+| Shooting by ICE officer in Los Angeles wounds motorist, U.S. marshal - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQeWd6VTVWUFI5aTRPcWJrOWhzQVhhWXAtVVJBN2lxLVV0UGJtYmk2NzhqUzhSQmJhYndwZTB4dDNzaFVPOW9rc25GX1dxckhNR3RlbkZnbTVzbTZINEV5TjFweWNPZkI2R3J0dmFqT2M1S3lETlZkTWFKbGJSTTVpbQ?oc=5) |
 | Vehicle Crashes Into Security Gate Outside the White House - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5YemN2Wk1PaGpuaUs4NVo3aDNkSmtMc3pIdUFNYUpMdzBnVjROT3RDR3RfTE5DaTRYZ0hfa3NhSUZJVV96OVVPdFZTSDhRSHVlY3VaRVFXMXlZdlhXdmF3bHhaTTVvT2ZZY0xiRnhRVFBDdw?oc=5) |
 | ICE raids target vendors selling counterfeit goods on NYC's Canal Street, DHS says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1tZmNRWGt3cWVUaEVySnMtb21rYUN4YXlncV9CNG1jeEEtWG5jaTF3T0pyeC1YWW9BbTVxTHM5cV90ZUp4X0RxdGd5VkZiUmhYZ2Z5cFMzNmNvVGVpaTNSUlJUR2ZCUUc2TXdnbXlITVBVbEhFTEVR?oc=5) |
 | Arizona sues Mike Johnson to force swearing-in of Democrat who could sway Epstein vote - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOZVlUbnhpNmZNREZzS3luMXRDcG45Yy1tM3liQjd3dHJaUWZuSnpKYnotX3NTS1Y3a1J4cjg0ZGRpd1MybXd2YzhBc3VtRG9SQkRRNk1JeHhzT2ZNZ09tbDdTU2U4YUl0TTZINmVZbzc4NUFtQ0hCMkI4Rm5Da19aaDZOVGFpQ1RQU2ZnRXpB?oc=5) |
