@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 06:49:10（北京时间）**
+🕒 更新时间：**2025年10月23日 07:00:49（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Trump Demands Cattle Ranchers Lower Prices, Deepening Feud - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPeWJIeXlMa25iZHAzb0dBMi1hRmphbERyZWtseXE2ZVBBZXlxOTRIeldHQ2dYaWpjVkN0R1RxVTNJVEh1eWJDQkxwYzlrQ3IzWG1IcDA2eVZZY1VXVTNwN0tkQVFQNXJic3NMNWpaVXRDX3NYRGVXMzRMWnh6MU05anMwNGd4RE4yZDdkYUFrclFzMlR2c1FMaDBldVkwQW5UM2oyb3JEcFJxVkt1?oc=5) |
 | New York AG Letitia James launches portal for public to submit photos, videos of ICE activity following Canal Street crackdown - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPc282LThiaktwdHp4cGh5Q3ZsaHplQWI2MHgwZ2VSOWJFV2NTMmcyb2lZTkpYRk9EMmN2NFoxR2NsLXg3QmFodjVJMGwtcmplUndWbTk4eGgyVWJxaS1HaWdNV2k4eUZVdWdaMzZOOUQtcm9Hb3FBT09ab29GcWFqc1E1Mnhxdm5Ec3lXMUZTc0FnazBuRjl3YUlMb3cxWFd6NlY40gGoAUFVX3lxTE1oTzBVVFVQRVRhelhua0FFT1J0dlRuZVlxc1RrbHMwTWl5SXlvZUl0ZlMxMHgzMUx3TUFDZE1SRGlMQ2pjY0dYZDE5dUxfNUtCOGQ5Um9Zc1lhQTJSR01FT0NnRzJ5TDhDeFZoNkcyNUw3VW1BX1lCelhLSDFDZFY1WWJjMmRSUWFLQmZuY0x1b2x5SnNaVXM4amlIOHc0OHlvVlNzazhVQQ?oc=5) |
 | America’s government shutdown is its weirdest yet - The Economist | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQYlVkTVpBVEQtemtUTlA5d1hXZ2JYbXFNOWJNS2NwU2h5X0pZNU0zeTlBakhHcXcwcHYwMFJtWlRjekdqMkJpbTNlN2R0ZzVUMnlvTk90eklJTzdhcGRPYUJDU19TV1p6X0tvZzA3MDFTOXh2QWRCNlR0MlF2QUNiaEIxNUhFbXZjWk5kdGtLWF9BM2xIYy02QlZyYTNtMUgt?oc=5) |
-| Sheriff’s deputy got mad and fatally shot Sonya Massey without justification, prosecutor says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPTGJLSUxBQ1RMeEdkS25nTDdGX3U4dUVndEQ2c1g2Z0VuMFRlX2xrX2Y1cVRsazhCXzZ6bzRITDI2Uk9LN3dfSGVCV2NkNU52RktJMmlCb0ZXTVYtV0Q3LWtqclVZTE1WUkRVV2oxOTBkWXRKWTFYeU5BeEp3N0pXZlNSRUFxZ25JbXZaUk5PWjFuVDZaRm9kTllLd3dRNENiTU43NTRvaU0zLUE?oc=5) |
+| Trump administration announces settlement with UVA - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOWGFwSU1EdmtQRzVhSk9lcVpzbng1VWxtXzYtZGNTeUFlWkg1V09Qakp4Vkd4OGdEQlY4Q1NTMmhWRVZwaDRpMjYyMThkWXpXQUZVcXdOYnhTSHd2NUZwZW5ENnhCVlk2eGJpMXlOaXJfeTFReXFKSXltNmd5c0kzSA?oc=5) |
 | CBS News poll finds California Prop 50 support motivated by national focus, opposition to Trump - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNVVNlM0NINlZZdjl6LVphcnBLU0FYR3J2ZmpUUzdlemUxaXBaNFVLeHVCYl81ZXdFM1ZlajdBOVJ2LUJteFFqa18yOHAtcVRLWEMxVC1HLUNMaHZOZERtSkI5a0lYaEJPc0pZZFNYM2x6NWVwTG1Da0x3NGpnbDk3THBXbkVuNGpvV2fSAY8BQVVfeXFMTXljMmJNYWJpM1k1WDZTcTRkRk5CNUlLYkxYcXZpNmNwUl9VM05HdF9TcVFQNmpSenVZdGg0dlB2emtfTGpzTllrU1RMQTZRekdWUkp6aUNVZHpuTFYwZHZoSG9hUi1yRzRHX0NBSFdxak5BVExUSzZTVkNYYUV6blhmMk84Y29fOWtKd0tzOVk?oc=5) |
 
 ---
