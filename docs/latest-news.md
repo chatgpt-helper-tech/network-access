@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 07:49:01（北京时间）**
+🕒 更新时间：**2025年10月23日 08:01:03（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Harvey Willgoose killer sentenced to at least 16 years | [阅读全文](https://www.bbc.com/news/articles/cvg7ezmly8lo?at_medium=RSS&at_campaign=rss) |
 | I thought my insides were falling out – what I didn't expect after childbirth | [阅读全文](https://www.bbc.com/news/articles/ckgk0y18mrvo?at_medium=RSS&at_campaign=rss) |
 | Migrant removed to France returns to UK on small boat | [阅读全文](https://www.bbc.com/news/articles/clykzx43v0po?at_medium=RSS&at_campaign=rss) |
-| No camera covered Louvre wall where jewel thieves broke in, director says | [阅读全文](https://www.bbc.com/news/articles/c9d6e2wv884o?at_medium=RSS&at_campaign=rss) |
 | Two officers hurt and 23 arrested in second night of Dublin disorder | [阅读全文](https://www.bbc.com/news/articles/cgr42dw57ljo?at_medium=RSS&at_campaign=rss) |
+| Agatha Christie meets Mr Men in new children's books | [阅读全文](https://www.bbc.com/news/articles/cdx42rv2wgqo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -25,13 +25,13 @@
 |--------|-------------|
 | Ballroom construction paused White House tours for months, but they're likely to resume soon, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1rU1pRTS1iMjlxdHhXSUZtWWFndVNQdVdLWEs5S09uUkI2VUEyRVBMTmRmakJkM3F0UFNmN0pCQWtpbW9XcHk2eFJjeWFqNHJpcmFkQXNQSGNWNlpoUm1wNHV2NVFTVmlZa1dIN08wYVljNkVQVDBRStIBfkFVX3lxTE90cnIxS2ZwaW55dDRRN0JwdGR6bW5EMmU2NzBlZE85SUxrQVRRbE1zcm9SY05tbUV5N0RXOWJtXzhBeXI5Z3V2OTMwaGtXeEYtME11YWRUT0o5S0dTUF9JMHI0a1FHTmV2cDd0LW1lNllWUUN2ckFSdTlqR0FOdw?oc=5) |
 | US imposes sanctions on Russian oil over Putin’s ‘refusal’ to end war in Ukraine - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNVVlBQzh3VFFpQ0JnM1ViTzNZMTVYeWVrWldOejJ0amlmV1BZT1FCZ3FaT0x0c0s5aXV3ZEI3SV9WcnBrX0dySHRVVzNON1Z0UGF5WW0wQTFtcGctUjFOekxjYWV5TVIzbE94XzB3NC1pN0ZROTY5amlDcFd4aTllYlg3ZS1WLXd6X21vTU9EdFREMFJncXpkOUdjSUdYWDB6anhwV0N0U3UxUQ?oc=5) |
+| U.S. kills two aboard alleged drug boat in Pacific, widening Trump’s campaign - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNV09qT0hDMERPQm9QbmpQS0FVbENzVjNjdnp4c2U5QmVmS05rM2ZIdUp1bzM0YVBEZVFxcDY2OHpkQVRDT2U5OWptRTJ2b3hMNS1hRW9HQkZtY1NnUURQal9ibG1lZ29qWHEzcmxZUVdYajNRd0pYemNfS09XUW1fYnBxTzAxTFdyOHh0M0RDejU1VXBtR1QzeWdnWWxkdw?oc=5) |
 | Trump administration news: Senate Democrats again block GOP-backed funding bill - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPcmZidXFoLXdqelFzV2dqelNMelo2Njd1YlFuSWpZckhaS21sZFlmbXdxcFpCelNMU1ZTbWFfN2xkc1BqR3FXbUxhdTlVWTFiYnFUbGJ4NWdGdXRrWlEwdDZTS2NFU1hLdDg2UE1kMkZKNzg4Q3Zvd0FjdzA2LW9tUVhPeTU?oc=5) |
-| US forces kill two in strike on alleged drug boat in the Pacific - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE0tcEE2c1lnTXBuZm93cEZmLW50OEt6ODZ3SlZoNC1rd2pucDVNU041TWV0WkNIQm85U211aW1yLXhUZnJXNzRfeFdYd2hLRlh1ODlhd3k0blF5UdIBX0FVX3lxTE9FVlRxbm5ZTXdUSUJTQTJOSEZDZW9wMlVGMVlDUnJTU0FMaElnRm9fR2V2RFdJNXlLVXB5RHFOQWJaUUJTcHB2djk2cWQxbXlVV3ZjNU5OajVfcVpGMFlz?oc=5) |
-| Trump Demands Cattle Ranchers Lower Prices, Deepening Feud - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPeWJIeXlMa25iZHAzb0dBMi1hRmphbERyZWtseXE2ZVBBZXlxOTRIeldHQ2dYaWpjVkN0R1RxVTNJVEh1eWJDQkxwYzlrQ3IzWG1IcDA2eVZZY1VXVTNwN0tkQVFQNXJic3NMNWpaVXRDX3NYRGVXMzRMWnh6MU05anMwNGd4RE4yZDdkYUFrclFzMlR2c1FMaDBldVkwQW5UM2oyb3JEcFJxVkt1?oc=5) |
-| Jeff Merkley "filibuster" live: Senate floor speech passes 11 hours - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQdVkyRnhhWjE4WjQtTF9aRkJBOVRONWFlTXdEdUVzUERkYVBFVW1QSlZwZEpnM08zSlZvVUNYSmZUR3Vma2FRQVBxOU0yNjBYaWhYYmxwcTQyQ3M0RC1DbzNhTDcxckRIZTFiOUVjRXB6dWRIbEZuczVTdlVBMDdSaHdjT1dUODI5YzFBVzNXNGVfUQ?oc=5) |
+| Trump prods American cattle ranchers to 'get their prices down' amid tariff battle - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNYlh4bE10WXpncDlnQU5pWTFfNzJYZkx6T2dfY183NDVDNk9wbUdHUm02Y0hONDNfMm12VURSVUFuZlhnbkozaDhiRk1UdFFOQUhnZVBNWl9tM01xekppWlp3LWtqSWhPMjN4MkZGam5kUFFZZ1F6eUc2aTBVOGtDdWgwLXVPRVRMblN6V2pMTnZaMW05Ui1oYmdvZUVyRDBSNEHSAacBQVVfeXFMTTI0TUwzQ3RTd2tHSEE2WTlPUUxfa21EOHUyVGF1dk1LMmR5WHhrNjR1bkpXczBLZ0lLQVVmNEJXa3B1TDdzMnZ4ZHU4cF91UjhVTEItajVlbWFPTDgzOVZtTVQ4WTVySmtnRHZwaHpmSVh6YnVJaU9fUm9VdHdPV0pWTno0cWR5a1lUeEhCejdKNk1tWG9JT1hJOWhYX0p1YVV1eTVLMkk?oc=5) |
+| Exclusive: Major federal immigration operation headed to San Francisco Bay Area - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNN3ZPSWZVTURaNTBhaGZkNk5pWm54WnFKY1ZObEUzNTRDdVdPSkpSTFVqS3hLaG5pTmJNaFlQc0d1OG5YVnRxTnY4RHhZYkQyNnJXbnhIYWhjRlpFUFJXa0Z1WFRLYm1SWkRXRHNvLUZMdEw5ZmYtTGNGODVsczFPRkk4MHRuMW9z?oc=5) |
 | ICE Agents Arrest Nine Immigrants in New York City Raid - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE5fZVQ4M3NHV192ZlJ2ZXc1SzdGekQwQ2ZraTJiR3Nia0JiM2dkUjlCNU0weThPd1JQWlh2R1JGekNBLWtLbXN4dG05aE9GeXVuZUZCR1VKbUM2MGdQMDI2SEZzMmg4RUkyNUpFWXpyTQ?oc=5) |
 | University of Virginia Makes Deal With White House to Halt Investigations - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQdktYNDlhclJfMUpHZVhSQkQ0a3RyY0VHOUZjT3hMQllzcXJTRE01UG5lQzVCYnhrSUhac2lFQnZBQnlPSjlTb05KNWlCSjNSRmVUV1VCUWptaXJBR0xOb19faFlwSGxnZk1Kd1RtaE9lbHRUaDAySTVOQy1DTlFiLUpNYkp0V2x6aTl1SlBmN3UzUFBF?oc=5) |
-| Maine Senate candidate Platner says tattoo recognized as Nazi symbol has been covered - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPRHdLUDJHa3pkdTA0WW1nM0ZjMElWRDJDRnNFdllER0ZNaXdTZ1dSbjhrSTd1ek9ORzF5WkxTMkhHc01XUGZhZ3dKcmJKbmFzSWlPcG9XRVdfR0NFNWJZZ3VPYjdSU0xJazFNSTktWUpfM0tMRzhkWERJM2JlTmJVek5mMl9QWk5GMUFtbEJfeG95RDVmTmN5VjFKUFJpNVpTb0ZJTFhnTjBRYzA?oc=5) |
+| Jeff Merkley wraps up marathon speech warning of ‘authoritarian’ rule - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQaXZqVDkwemliWW9qYy1NQXp5WGxRU2Vmd1N5b0pTTlNrcEs0cTh2S3A4blV0ekZyVXFzLTR1dDlVNXVPT0dZR2hyYUp4dnAzY0ptb2FEVTJXdkh2QmxtVGdxdElDTjMtNnVpOFlMZVV5Yk1hTk5mZ2NYZVFsMTVfVGxSVHAwYmJnM3hqTW1ISWhvSWREMjZ0WTZ6MA?oc=5) |
 | New York City mayoral debate live: Zohran Mamdani, Andrew Cuomo and Curtis Sliwa face off for final time - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOSXlEZU9sYXdlc1NYNldJTXR6T0FpTlFFa0NWWlNlT3FkV21vam83SmdQZ2Q2bERpTHRKbHF0b2VTMi1QUFd5MVVUZlhpbUh1UHpabmZ5b2M0YjhNTmRQQ05MeVF2MEpMVFNWOWpzZjBCN0pRSHROeFM4czVHSlFxTFpDVGsyellTSkprVWJNbDJrRnVrV2dWaFRGZ2gzeFU?oc=5) |
 
 ---
