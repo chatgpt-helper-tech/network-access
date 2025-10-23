@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 09:12:56（北京时间）**
+🕒 更新时间：**2025年10月23日 09:25:39（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Pressure to find Traitors reaches fever pitch - but are they turning on each other? | [阅读全文](https://www.bbc.com/news/articles/c87415422zdo?at_medium=RSS&at_campaign=rss) |
 | I thought my insides were falling out – what I didn't expect after childbirth | [阅读全文](https://www.bbc.com/news/articles/ckgk0y18mrvo?at_medium=RSS&at_campaign=rss) |
 | Mahmood says Home Office 'not yet fit for purpose' | [阅读全文](https://www.bbc.com/news/articles/clyl20gw4y2o?at_medium=RSS&at_campaign=rss) |
-| Harvey Willgoose killer sentenced to at least 16 years | [阅读全文](https://www.bbc.com/news/articles/cvg7ezmly8lo?at_medium=RSS&at_campaign=rss) |
+| Migrant removed to France returns to UK on small boat | [阅读全文](https://www.bbc.com/news/articles/clykzx43v0po?at_medium=RSS&at_campaign=rss) |
 | Agatha Christie meets Mr Men in new children's books | [阅读全文](https://www.bbc.com/news/articles/cdx42rv2wgqo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
