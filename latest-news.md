@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 08:01:02（北京时间）**
+🕒 更新时间：**2025年10月23日 08:13:49（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Harvey Willgoose killer sentenced to at least 16 years | [阅读全文](https://www.bbc.com/news/articles/cvg7ezmly8lo?at_medium=RSS&at_campaign=rss) |
 | I thought my insides were falling out – what I didn't expect after childbirth | [阅读全文](https://www.bbc.com/news/articles/ckgk0y18mrvo?at_medium=RSS&at_campaign=rss) |
 | Migrant removed to France returns to UK on small boat | [阅读全文](https://www.bbc.com/news/articles/clykzx43v0po?at_medium=RSS&at_campaign=rss) |
-| Two officers hurt and 23 arrested in second night of Dublin disorder | [阅读全文](https://www.bbc.com/news/articles/cgr42dw57ljo?at_medium=RSS&at_campaign=rss) |
+| Source of Miliband's energy bill pledge casts doubt on savings | [阅读全文](https://www.bbc.com/news/articles/cwy7gj181k0o?at_medium=RSS&at_campaign=rss) |
 | Agatha Christie meets Mr Men in new children's books | [阅读全文](https://www.bbc.com/news/articles/cdx42rv2wgqo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -31,7 +31,7 @@
 | Exclusive: Major federal immigration operation headed to San Francisco Bay Area - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNN3ZPSWZVTURaNTBhaGZkNk5pWm54WnFKY1ZObEUzNTRDdVdPSkpSTFVqS3hLaG5pTmJNaFlQc0d1OG5YVnRxTnY4RHhZYkQyNnJXbnhIYWhjRlpFUFJXa0Z1WFRLYm1SWkRXRHNvLUZMdEw5ZmYtTGNGODVsczFPRkk4MHRuMW9z?oc=5) |
 | ICE Agents Arrest Nine Immigrants in New York City Raid - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE5fZVQ4M3NHV192ZlJ2ZXc1SzdGekQwQ2ZraTJiR3Nia0JiM2dkUjlCNU0weThPd1JQWlh2R1JGekNBLWtLbXN4dG05aE9GeXVuZUZCR1VKbUM2MGdQMDI2SEZzMmg4RUkyNUpFWXpyTQ?oc=5) |
 | University of Virginia Makes Deal With White House to Halt Investigations - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQdktYNDlhclJfMUpHZVhSQkQ0a3RyY0VHOUZjT3hMQllzcXJTRE01UG5lQzVCYnhrSUhac2lFQnZBQnlPSjlTb05KNWlCSjNSRmVUV1VCUWptaXJBR0xOb19faFlwSGxnZk1Kd1RtaE9lbHRUaDAySTVOQy1DTlFiLUpNYkp0V2x6aTl1SlBmN3UzUFBF?oc=5) |
-| Jeff Merkley wraps up marathon speech warning of ‘authoritarian’ rule - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQaXZqVDkwemliWW9qYy1NQXp5WGxRU2Vmd1N5b0pTTlNrcEs0cTh2S3A4blV0ekZyVXFzLTR1dDlVNXVPT0dZR2hyYUp4dnAzY0ptb2FEVTJXdkh2QmxtVGdxdElDTjMtNnVpOFlMZVV5Yk1hTk5mZ2NYZVFsMTVfVGxSVHAwYmJnM3hqTW1ISWhvSWREMjZ0WTZ6MA?oc=5) |
+| The longer the shutdown lasts, the harder it is to mask - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPY3VyLTN5T2UwcGZuTTFHQ0lpM1psdXpQV0ZZbktDdHNhZGpXMTdsTHlfZngwaGpEdFd5TzZkWFFDZU9YUXpmZHY4X09oeTFwOXBDZjgzYXRXSE1tTW5PdFFXSzEwdUNlY0x6c3BmdjVsWVJNdXM2RlJueU4tczBFSEJVWUhkeFFLWUgwb0F6M1NqbDI4bl81a1VlR2ZUam85MEpjUzZUUQ?oc=5) |
 | New York City mayoral debate live: Zohran Mamdani, Andrew Cuomo and Curtis Sliwa face off for final time - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOSXlEZU9sYXdlc1NYNldJTXR6T0FpTlFFa0NWWlNlT3FkV21vam83SmdQZ2Q2bERpTHRKbHF0b2VTMi1QUFd5MVVUZlhpbUh1UHpabmZ5b2M0YjhNTmRQQ05MeVF2MEpMVFNWOWpzZjBCN0pRSHROeFM4czVHSlFxTFpDVGsyellTSkprVWJNbDJrRnVrV2dWaFRGZ2gzeFU?oc=5) |
 
 ---
