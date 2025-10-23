@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 19:00:12（北京时间）**
+🕒 更新时间：**2025年10月23日 19:12:53（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Metal detectorist digs up massive haul of Roman coins in 'virtually untouched' area of Wales | [阅读全文](https://www.bbc.com/news/articles/cd67vv66wxxo?at_medium=RSS&at_campaign=rss) |
 | France backing away from pledge to intercept migrant boats, sources tell BBC | [阅读全文](https://www.bbc.com/news/articles/cn8vr95n5n3o?at_medium=RSS&at_campaign=rss) |
 | EU set to endorse deal to turn frozen Russian assets into support for Ukraine | [阅读全文](https://www.bbc.com/news/articles/cwykd4l3dy1o?at_medium=RSS&at_campaign=rss) |
-| Polls open for Caerphilly by-election | [阅读全文](https://www.bbc.com/news/articles/c993nlyrdglo?at_medium=RSS&at_campaign=rss) |
+| Polls open for key Caerphilly by-election | [阅读全文](https://www.bbc.com/news/articles/c993nlyrdglo?at_medium=RSS&at_campaign=rss) |
 | England's water companies get worst ever score over pollution | [阅读全文](https://www.bbc.com/news/articles/cdjrymnx1e8o?at_medium=RSS&at_campaign=rss) |
 | Having autism should not mean having to fight for our education | [阅读全文](https://www.bbc.com/news/articles/c891y5n2de8o?at_medium=RSS&at_campaign=rss) |
 | I thought my insides were falling out: The condition affecting one in 12 mums | [阅读全文](https://www.bbc.com/news/articles/ckgk0y18mrvo?at_medium=RSS&at_campaign=rss) |
@@ -31,8 +31,8 @@
 | Pelosi Says Police May Arrest Federal Agents Who Violate California Law - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQWTQybWdtdzkyTWJmMnBVZWtkclJZaXRZTHFmM2ZTcTBSZXJHMnd2Qk8yTjZnUklsaU5xcjEybFVqdEtzYnFDMm16NnJiRXl6ejRacnF3S3VMSnUzZVpVX1dpNEdHbTV2UTF0M0V2NEhfZ1JaZDk2M0FIUU5rbXAwV2FjbC1UWjFS?oc=5) |
 | 7 Takeaways From the Final N.Y.C. Mayoral Debate - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNTjJOVmlVSGpOUk14aU1McUo4RmNlOEtteXhWN1JsVklrX2VpdHRLcmFJWU1rM1h6bVVzUWhnM0xYSDRNNl9DWHFMaUphSTJUcmpaZXh5b0hPVU5OVXowM3hfQ0Rnd2RKLUdod1RLNGxzYXk2NHdXSVhCR0Y5WFVVbA?oc=5) |
 | How Senate Republicans finally said 'no' to Ingrassia - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNSm5aMW00dEtBSWU2cDBYSjliWkpfOWNiMDdjZ3NxRHVmeTN3ZHFzSUttXzRKNEhJNS1nTDBzVGlCUEU2bjJqdEhQVTJ6MlhsQm13SUh6SGNFWVNPLWdaWEV1SXNQOVEwb0ZyYjQwTE9iekdzN0FkamRqT014ZTBidlRZdnk5Z3hNUDNCT0kwMmlqdDBNTzM2eFBPN3hFNmhZdGc?oc=5) |
-| At least 25 states plan to cut off food aid benefits in November - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQTlgwazVteXpkY0hkVlZqemY5X041dVhGbGczVndwRkxzRWlRQ3VwNFNNX21lejRNNk41V1U0TzV1N2FQSzhyekUxZlcwU3hWRGdabzY4eWRJQ2RhQzllZmFTWG1PUmtVNGxTaU5tdDNCejVxdzBJTmxqelNjRFg0MjFvaXV4MGd1dGRuRDIzLW9nclNhRW5JQjJHWEIxNXYt?oc=5) |
 | TikTok creator and US marshal shot during LA immigration raid - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5vbXV0Y2J1bWhJWVNqOGdLTDFfLTNERmFaWVZKTnJ2Q2x6aU9aVmhpd19ZdWJld0x6VGRiblBuTHFucDZCdXB0cHpIcWgzanJ6WTVDWFdyUjY3UdIBX0FVX3lxTE9yeUtVc2NQZ3BTS19Bakp0YkRZdmQxRVg2NGZxUFVzOEJNSkZqTkhOamJ0S0dsMnYtWVVQYlEtelNRUUFJWGZFM00wVk1JbjV5MWtyVm1HZ2MwcnhNZWFV?oc=5) |
+| At least 25 states plan to cut off food aid benefits in November - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQTlgwazVteXpkY0hkVlZqemY5X041dVhGbGczVndwRkxzRWlRQ3VwNFNNX21lejRNNk41V1U0TzV1N2FQSzhyekUxZlcwU3hWRGdabzY4eWRJQ2RhQzllZmFTWG1PUmtVNGxTaU5tdDNCejVxdzBJTmxqelNjRFg0MjFvaXV4MGd1dGRuRDIzLW9nclNhRW5JQjJHWEIxNXYt?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
