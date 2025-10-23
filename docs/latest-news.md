@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 18:13:04（北京时间）**
+🕒 更新时间：**2025年10月23日 18:24:21（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Weather warnings reduced as Storm Benjamin moves east | [阅读全文](https://www.bbc.com/news/articles/c797899qdndo?at_medium=RSS&at_campaign=rss) |
 | I thought my insides were falling out: The condition affecting one in 12 mums | [阅读全文](https://www.bbc.com/news/articles/ckgk0y18mrvo?at_medium=RSS&at_campaign=rss) |
 | Polls open for Caerphilly by-election | [阅读全文](https://www.bbc.com/news/articles/c993nlyrdglo?at_medium=RSS&at_campaign=rss) |
-| Thames Water given lowest one star rating for repeated sewage spills | [阅读全文](https://www.bbc.com/news/articles/cdjrymnx1e8o?at_medium=RSS&at_campaign=rss) |
+| England water companies get worst ever score over pollution | [阅读全文](https://www.bbc.com/news/articles/cdjrymnx1e8o?at_medium=RSS&at_campaign=rss) |
 | Having autism should not mean having to fight for our education | [阅读全文](https://www.bbc.com/news/articles/c891y5n2de8o?at_medium=RSS&at_campaign=rss) |
 | Sam Ryder: I lost my self-esteem, my positivity and my optimism | [阅读全文](https://www.bbc.com/news/articles/cj0e2n69gv9o?at_medium=RSS&at_campaign=rss) |
 
@@ -27,7 +27,7 @@
 | What do US sanctions against Russian oil companies mean for the war in Ukraine? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE56MDM5cmgyTExGcmgtR3RucTFydk1oZlNHdmVTMlRMQlpnSkhsdUxUbThhNV9JWk8waTZiOXNmLThGNVF0dWhrbW1TRXVGLUVJZHZZT0ItX1VBZ9IBX0FVX3lxTE5LMVBLV2NDUnJJR0tPRjVUVkNPYmFrWUllc1FzcmlqcXJsbURLY2RDUlVsUDlqcmtEM2x6SEZsR0pMOFVUNE50aVlRNTlhR0ppZ25BQThRS0dUc0NwNW1N?oc=5) |
 | 7 Takeaways From the Final N.Y.C. Mayoral Debate - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNTjJOVmlVSGpOUk14aU1McUo4RmNlOEtteXhWN1JsVklrX2VpdHRLcmFJWU1rM1h6bVVzUWhnM0xYSDRNNl9DWHFMaUphSTJUcmpaZXh5b0hPVU5OVXowM3hfQ0Rnd2RKLUdod1RLNGxzYXk2NHdXSVhCR0Y5WFVVbA?oc=5) |
 | Semi-truck driver arrested in deadly crash on Southern California freeway was in U.S. illegally, DHS says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPbTZoQVMzOXNUODdPclBlZzJlREV1TW1PNDRmVjVOQXE1UEJNdXJOSzVVOVdfU0dCUGJvQXdLNzJuU1F3ZU9qWEtQMkVnNlhwa1VJSUthdWpkc0U4NU90T2w0T2wzSlNZYnNqaWhyZmpfNElwVVVaWjNoN2JVcUJEYVpMOXlodFFQX3U5dTNsY3dkVXR3UklRUlJ1c0xJcTk2REpr?oc=5) |
-| U.S. kills five on alleged drug boats in Pacific, widening Trump’s campaign - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNV09qT0hDMERPQm9QbmpQS0FVbENzVjNjdnp4c2U5QmVmS05rM2ZIdUp1bzM0YVBEZVFxcDY2OHpkQVRDT2U5OWptRTJ2b3hMNS1hRW9HQkZtY1NnUURQal9ibG1lZ29qWHEzcmxZUVdYajNRd0pYemNfS09XUW1fYnBxTzAxTFdyOHh0M0RDejU1VXBtR1QzeWdnWWxkdw?oc=5) |
+| US strikes 2nd alleged drug cartel vessel in Pacific, in expansion of attacks - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQNkNMcEh0VHdJdHRrRFY5b3pkS2VLbUtNNnR4ZktpOElSd0ZQWTM1aTNIQkYzcGlDQ2tCWnpocTdSQzhsS3M0NVFpVmJpOVhwRE1Lb2JFaTNnZmZIMlgxcTJwZnlQY3RmTVpzTE9ta2pJUElnZTdsWm9FN2VSX2o4LTFqUXFPWHdfQjB3ckFmMDQ5cnBuTnVqVXVKcnlzYllaMl9z0gGoAUFVX3lxTE9EbEtMVUFWeHhON1JhbWQ4LVY2U2ctbTQ5dFhRUDduWnBKbDNCRFViNmVQOTdLN0RMNEZGNWtWV3dPWDNDZ2lTNFVaWTNFeVREcjF5d3c0RHdEbW5Db2dkQ2ZoUFF2V01MZjRXQVZxOWRIWDc1UEJsc2g4ZW92akRPZ3lXYlhSamJkc09LNlJyTDl0UWNPcWppNG00d3lUZGFFbUNXc1lqYQ?oc=5) |
 | Trump's multi-million request puts DOJ integrity to the test, legal scholars say - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOeWk4dXppUHZCcW8xNnlZelYyTnhKM3QwcE5GOFR3S2p5S1BBLThFSkdyZkt0ZHU3RmlpZUp5VTNqNXhZd1l4cF9vQ2xldEYtOGRESTR6WXRDcHJrZUFNbUJlUnRhTXVaTmRSbzBXX2pwTXhuNXB6bi1fMmp6dTRJUEZEaDNpWXRZa0E?oc=5) |
 | Pelosi Says Police May Arrest Federal Agents Who Violate California Law - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQWTQybWdtdzkyTWJmMnBVZWtkclJZaXRZTHFmM2ZTcTBSZXJHMnd2Qk8yTjZnUklsaU5xcjEybFVqdEtzYnFDMm16NnJiRXl6ejRacnF3S3VMSnUzZVpVX1dpNEdHbTV2UTF0M0V2NEhfZ1JaZDk2M0FIUU5rbXAwV2FjbC1UWjFS?oc=5) |
 | How Senate Republicans finally said 'no' to Ingrassia - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNSm5aMW00dEtBSWU2cDBYSjliWkpfOWNiMDdjZ3NxRHVmeTN3ZHFzSUttXzRKNEhJNS1nTDBzVGlCUEU2bjJqdEhQVTJ6MlhsQm13SUh6SGNFWVNPLWdaWEV1SXNQOVEwb0ZyYjQwTE9iekdzN0FkamRqT014ZTBidlRZdnk5Z3hNUDNCT0kwMmlqdDBNTzM2eFBPN3hFNmhZdGc?oc=5) |
