@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 09:25:40（北京时间）**
+🕒 更新时间：**2025年10月24日 09:36:18（北京时间）**
 
 ---
 
@@ -25,9 +25,9 @@
 |--------|-------------|
 | White House List of Donors for President Trump’s $300 Million Ballroom - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPQ0hsSzhuajJRdFVib0RzV3ZzdFl4Q2Fubm9kc3czU1R1OWxnVjJqS200R2xSVTV4V2ZxQVJZRFhfRGxpR2xRN1RjcG1HbFJyaHkzN1IzLVdfd0NZZ1JPUlFvUmpXYUdKQzJ4S0wyUExLS0VybjIwZEw3REJNZTNCOWZPQUg?oc=5) |
 | Exclusive: China state oil majors suspend Russian oil buys due to sanctions, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOekNaamlpYTg4Y2I0TFBFbWlpV2RvQ3FiRnRuOVRWRUozenRha1IwODZ0eGVXZ2JmZUtsT0RPV191ZVdTZ1BfdzFMd3BtVi1hcEtyT3JndXlVT1llNlVhZ1d6Yk9SOW5OM3k4aHBmTUxSTVNuR1djNDlveURDM0FyWGVTd2x3WXdCdmZQdnBiMmUyN0pkVmg1S0U0WFh2QzIxOXUzOTZHWkw4Z2lKWXVYQjdIVGlvMUpRSmpPRjRyWHNuRXc?oc=5) |
-| Trump says federal deployment to San Francisco called off after conversation with Mayor Daniel Lurie - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPRTREcC1OZDdfV1NXaXc3clJ1ZkJTc1R0TmdXcWR1SVJwbFVYZFV5aEk1eklrR2h0N0dSVTFvcFpXcFl0TW1HY3RILVNNN0F5b1FFNW5yUk5jbXNndWlRZWJZcUlXSlBxVlBRY1NlMDZIQWFiSkhJaTF6WG52T05ycExsU2NJcG1fN3V2QWpHT3J4NC1zMXV0VHZ5cFJNMlZXS1B4dDgyMHdWcHl4Ym5YR0xGNXB0UmVjYkx1VU1JeS1lbVVUSkpzZQ?oc=5) |
 | Effort to pay at least some federal workers fails in Senate - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBOOHhJZkFSZGRyTklQMnl4d0k4MVkzc1JQdThuTTZBeTZ6U3BLMGhlZHZtekFzUzFZVU1NNGtySVBmQ3dNNXRsVERfVUNBdk03blNZY215aEFWb2RQWXpfOXo2SnZrVF9qaUkxY0hydjZRbG03S3c?oc=5) |
 | Governor Glenn Youngkin Declares State of Emergency to Protect Hungry Virginians from Democrats Blocking Federal Funding for the Most Needy - Governor of Virginia (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOMTN4eElkS19YVngwdkNiazFxX3FWMC1kQndGNXY2cXFiRGw0eWw3bksxXzIyU3RpTl9jZXJKb1B4UkpCQjdjQURDQmJaMXdhbjJJeHdSVXBZY2t3RzdPNzBxX3didmZDOE5qNjQtX2NLQmh0LWhPTHdxRkJwMzZkUE9YWGo2WU94eEpVcWdsZm9OTjdM?oc=5) |
+| Trump says federal deployment to San Francisco called off after conversation with Mayor Daniel Lurie - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPRTREcC1OZDdfV1NXaXc3clJ1ZkJTc1R0TmdXcWR1SVJwbFVYZFV5aEk1eklrR2h0N0dSVTFvcFpXcFl0TW1HY3RILVNNN0F5b1FFNW5yUk5jbXNndWlRZWJZcUlXSlBxVlBRY1NlMDZIQWFiSkhJaTF6WG52T05ycExsU2NJcG1fN3V2QWpHT3J4NC1zMXV0VHZ5cFJNMlZXS1B4dDgyMHdWcHl4Ym5YR0xGNXB0UmVjYkx1VU1JeS1lbVVUSkpzZQ?oc=5) |
 | Trump to meet with Xi on Oct. 30 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQTEVaRURFN0hISld3a2wzSHpZLXFPZkh5VHFCLVpDR04tVk1XTW9JS2lial84UjFfWHRRMHc2NEpZNnhuZjlSaFBpUjRRVGdCZ2tsVjdjZnBJM1JQNDNfVXUzdC1uOG5kYjJsUkNhcmNTZ253MzVTUFhJMXNrUkFaY2tIeWRralk?oc=5) |
 | U.S. Charges N.B.A. Coach and Players in Gambling Schemes - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQVlNJY1F2TFN2V0VRVC1MM3JUUk94Yi1kVTFsTXFkS0p2azhDbEJGNU93VEhBNlZUT29yTU84T0RkbkhkS0Fmd1RDZzlMdURsUXk0OWtpdHZtSjIwYWNuZUdYd3dMSmZnTEcxTWgyXzJjVVF4WllqVW9HVFZPcUhlTTFFQQ?oc=5) |
 | Maine U.S. Senate Candidate Says He Covered Up Tattoo That Had Nazi Imagery - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQQWpzVXlaS3hDVnprSGlBOTBwZWVDNmw2Z0FKYzVqMjhYR3RnQnVLY1llX0tqVUVJVU5sQkQyY19WTmJNdzFuVUFWbWk2Ukt4ZEJaSnVjejRHNElIcWQ1N2pjVVBCSmliUUhrT0pENFNQbXZ0ei1xNk9tam5jUnhvcEpxeHRsdU55ZTN3Vg?oc=5) |
