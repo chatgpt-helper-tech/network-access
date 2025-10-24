@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 21:36:33（北京时间）**
+🕒 更新时间：**2025年10月24日 21:49:17（北京时间）**
 
 ---
 
@@ -9,14 +9,14 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Plaid wins by-election as Labour loses 100-year grip on Caerphilly | [阅读全文](https://www.bbc.com/news/articles/cd9klevy28qo?at_medium=RSS&at_campaign=rss) |
-| ‘OCD is a bully’: Why more under-25s are reporting symptoms | [阅读全文](https://www.bbc.com/news/articles/cdr612zrl0no?at_medium=RSS&at_campaign=rss) |
-| Key China spy case witness removed reference to 'enemy' from evidence under Tories | [阅读全文](https://www.bbc.com/news/articles/cn095n9qd87o?at_medium=RSS&at_campaign=rss) |
 | Sheffield Wednesday, one of England's oldest football clubs, placed in administration | [阅读全文](https://www.bbc.com/sport/football/articles/c1lqmmml533o?at_medium=RSS&at_campaign=rss) |
+| Key China spy case witness removed reference to 'enemy' from evidence under Tories | [阅读全文](https://www.bbc.com/news/articles/cn095n9qd87o?at_medium=RSS&at_campaign=rss) |
+| ‘OCD is a bully’: Why more under-25s are reporting symptoms | [阅读全文](https://www.bbc.com/news/articles/cdr612zrl0no?at_medium=RSS&at_campaign=rss) |
 | Prince Andrew paid by businessman tied to pension rip-off company | [阅读全文](https://www.bbc.com/news/articles/cy5qrp2wne4o?at_medium=RSS&at_campaign=rss) |
 | Gaza doctors struggle to investigate 'signs of torture' on unnamed dead returned by Israel | [阅读全文](https://www.bbc.com/news/articles/c4gz3r46e37o?at_medium=RSS&at_campaign=rss) |
 | Trump says trade talks with Canada 'terminated' over anti-tariffs advert | [阅读全文](https://www.bbc.com/news/articles/cdjrlmd4pmeo?at_medium=RSS&at_campaign=rss) |
 | 'Huge noise then I yelled to get out' - Louvre attendant recalls shock of heist | [阅读全文](https://www.bbc.com/news/articles/ckgk2ppvl5wo?at_medium=RSS&at_campaign=rss) |
-| First snowfall of season possible for some as weekend cold snap arrives | [阅读全文](https://www.bbc.com/weather/articles/cn40jdp7v98o?at_medium=RSS&at_campaign=rss) |
+| Lily Allen is 'vicious' and 'raw' on her tell-all break-up album | [阅读全文](https://www.bbc.com/news/articles/c5ypgze4l2zo?at_medium=RSS&at_campaign=rss) |
 | 'Mind-boggling' poker fraud used X-ray tables, high-tech glasses and NBA players | [阅读全文](https://www.bbc.com/news/articles/cz6nd9wnzn6o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
