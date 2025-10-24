@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 06:48:55（北京时间）**
+🕒 更新时间：**2025年10月25日 07:01:49（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Pentagon deploys top aircraft carrier as Trump militarisation of Caribbean ratchets up - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNeDVYaFRlcGoxVHRkbEd3bmd4eUxmcHRyS1pKX1Z5eTFZSm4zOXBSWkZCWjVyQjJ3dTBod1BTaXNaUm5aM19kRTBfTXVScjZ5aWFDS0M0blpaWWhtcGdIOEZDNEhnaUtfbUR2MWJCVUNJdUlLZW9zRkJZOGFwOE9zelprQjlYU1hBUURrczlRaWo?oc=5) |
 | Federal Immigration Enforcement Surge Called Off Across the Bay Area, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOTVhZTWk5SEdMTzF1T2NzRVBraEhSUjEyU2htdk1Ta1BWZXJGN3FnZVFSYWlsQjJQdEZnQlZmUGZJd29mcXUyaTBialdaUVRSZDFlVmVHc3VpS2NSYURsNGkzbExCUUlvN1ZpVXQ0QjhaWm51UU1nd1FaaDQzY3Fyb3ZTOGZKVGM2dy1F?oc=5) |
 | Government shutdown live updates as impasse hits Day 24 with no deal in sight - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbnJOUFBPWkRiTHRfU0VVZnZ1Z0hrVHM5bmN0S2ZWc3JhRDE1Zm1jSWt1cFZGS1Y4ZFNtRVRFcFdJYjZqVEZvRkxvY01UVEpVMVN1UnBHaElpNG1vT1E2Tm9IR2tUOHJiMTEzd09WTXV2UXk4Y2U1c0cwLUgxQjh4RDg1TG7SAYoBQVVfeXFMUGFyWF9RbXlTbkE4cmZ5UDZhUXVXNUVlbFNVajdteUFTbGtxcFNCdExyeVJlcXFENDBhaVB0MXItTG9pWFhtTGRYdUxqMUplekNPOS1mN3RmOFAwQkM2NTJzWkVQSGZTb2hXa2Q0Y0ttUVBtY2Z6RmtHdTlfcWxIdzJwUE54MFMxMkV3?oc=5) |
+| U.S. kills six in latest strike on alleged drug boat, Hegseth says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQczlIVEN2YnV0Mlpib1Y4cDNNbkowZWd3c2FQSVFmOVY0STVtWElBTER0WUNRLXRUSmZTRm93aF9rN1laNnMwVWtkRjIzSFdPcWtNV1k1aklSN1N2YWNwV3h1N2lLYkpzX0UzNjY5UDBCV0VVcEM1aDVSZXdIaHpLejFZLUxxU0tpZk9uZnRxVFpYT3JBTmlGcw?oc=5) |
 | Shots fired, driver hurt and held after truck rams into Coast Guard base in San Francisco - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQX3NnV1FwLXkycTdKdUFrQlhzV3pHVWpSVC1sbzdSSHgwSFN4eFZxM20ySzF5RDJqT0I1VXRsNTBpNXNadUozdENtdEk0d0loMFExT24tVkJqNWp2ZzZ5ZVJ6elYtb3kyRVFJejN2ZlBIRC00amFqYU5ncWxaTlBxSmJRTkhYSl92eTQ0aTFlNk9xbUhIZEVpS1Ffb1hVbHQ3anFnb3Q0VlUxTjE5V1BFNzZfWQ?oc=5) |
 | US imposes sanctions on Colombia's president in row over illegal drugs - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOM0hSRWdhcTZXY3ZSb0dsQ2dIQjQwVjNuVTVZZFJwRV94aXEwNUxBWk40aWJ2eHBLdmhnS2Z3YzhiR1JRNEVBNlE2Mi1McFJ4N3JTUWNaQmJxZ1RIZE9vakVTMS1nSUwwSDNOSnlGQUJqVEozRldJR3Q2cHVacG1vbzdWNHBCaHFZTVM2SFZxd3pORTBQd083TVRjLWNsbUlhZURNemZBU0huRUFxTUs0?oc=5) |
-| Federal Judge Orders Border Patrol Chief Greg Bovino, Who Fired Tear Gas at Little Village Crowd, Into Court - WTTW News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOQmNZSTlpTVcyR1JiMDV0bThFbERrbDJicTh1SnplcUpEUThnckVYSnFEOEhhVW91UWI2Nl8wRXNkOVFJMGpmY2RLei04bW9YcUNTdWpLQ2NuazIwelBZWWs3Rmx4MFZjcVE0NjNINmJCRVdXNGxDcXhHMWFvM3VPYUFiZWZlSkNWeUZLRE55X1haNnlRemJ6NjNaOEZNTXM2NlF5TkhlN3V4OTlUazFTNENfSGJPcXVTX0ww?oc=5) |
-| Inspector Clouseau? The mystery man in an AP photo after the Louvre jewel heist creates a buzz - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNY3dsbERqYVJRQndVS3hRRnZvR0tscUF6UDJ5UV92ZUwzV1FKRFc3Y2lRT0tfeENVakdhU2pyQlhOTTMwUnpCN2VqYUR3LXlkN3dielJMa1BtblZoaVJteTFtSzFkNzFHdjd2ZnhOT3FBb3JIOUt2d0ptVW1jc1lTNnk0YUhfWjRHZG5PRmk4dWpRYmM0LTBDR0thSzRfTDBXd3FIZGR3?oc=5) |
+| Border Patrol Chief Gregory Bovino says agents' use of force in Chicago "has been exemplary" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQRk5PZVRFQ203RTAteUc1R0J4LXd4MDJtNG5UWlVyaW5KazBNRWZXejhPSkRHRDVBTHk1d2hCSktNUE1TVk1XeHI5Q0VFV0FmelZ1YmFGX2dUbmFjaGJ2dV85RTJ6YUhRTjB5MWZMWUlPSGEwMWJMaFNhdUlCaHQ0djduaXhIbzZMTDV1SFltamoxeHpNZUFab1B2VdIBoAFBVV95cUxNQXhNcVR0b3M3aU9WN2JYMG9lRFBTc0oxM3plT3Yzd1ktUTM5YkZqSVlia3RrbURMSkt0LUdDMzB1VVgzS1M3eXFRQmozWHlTT0FmUWl1T2FPbkRpNTNXby1zTEhOZjgydmRqME5zcVZjeVpPZHRUUzJxcXNEUHpEaE5YVDdrc0F6b2VCN1ZQLUhvaG5UTG4tRGFCNFNYVHZj?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
