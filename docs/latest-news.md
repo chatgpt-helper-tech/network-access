@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 14:24:51（北京时间）**
+🕒 更新时间：**2025年10月24日 14:36:57（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | Trump says trade talks with Canada 'terminated' over anti-tariffs advert | [阅读全文](https://www.bbc.com/news/articles/cdjrlmd4pmeo?at_medium=RSS&at_campaign=rss) |
 | Gaza doctors struggle to investigate 'signs of torture' on unnamed dead returned by Israel | [阅读全文](https://www.bbc.com/news/articles/c4gz3r46e37o?at_medium=RSS&at_campaign=rss) |
 | Bank of England chief tops 2026 Powerlist as UK's most influential black person | [阅读全文](https://www.bbc.com/news/articles/cwy7gn1979go?at_medium=RSS&at_campaign=rss) |
-| Retail sales hit highest level since 2022 | [阅读全文](https://www.bbc.com/news/articles/cdxrnz35k1no?at_medium=RSS&at_campaign=rss) |
+| Monthly retail sales hit highest level since 2022 | [阅读全文](https://www.bbc.com/news/articles/cdxrnz35k1no?at_medium=RSS&at_campaign=rss) |
 | Sabotage, Claudia's ire and the chess board is back as things heat up on The Traitors | [阅读全文](https://www.bbc.com/news/articles/c1m3epre5d9o?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Who on Earth will want to take on grooming inquiry now? | [阅读全文](https://www.bbc.com/news/articles/c2kpv4n7p09o?at_medium=RSS&at_campaign=rss) |
 | Starmer to push allies on long-range missiles for Ukraine at London summit | [阅读全文](https://www.bbc.com/news/articles/cd9kle5x10zo?at_medium=RSS&at_campaign=rss) |
-| Jaguar Land Rover cyber attack caused UK car production to slump by a quarter | [阅读全文](https://www.bbc.com/news/articles/cvgmp1prnv0o?at_medium=RSS&at_campaign=rss) |
 | UK defence secretary warns Putin: 'We're watching you' | [阅读全文](https://www.bbc.com/news/articles/cj0ezm8z1d2o?at_medium=RSS&at_campaign=rss) |
+| Jaguar Land Rover cyber attack caused UK car production to slump by a quarter | [阅读全文](https://www.bbc.com/news/articles/cvgmp1prnv0o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
