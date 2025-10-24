@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 01:48:08（北京时间）**
+🕒 更新时间：**2025年10月25日 02:00:12（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Prince Andrew's banner removed from chapel at Windsor Castle | [阅读全文](https://www.bbc.com/news/articles/c867j2wyxj0o?at_medium=RSS&at_campaign=rss) |
 | Lily Allen is 'vicious' and 'raw' on her tell-all break-up album | [阅读全文](https://www.bbc.com/news/articles/c5ypgze4l2zo?at_medium=RSS&at_campaign=rss) |
 | Reeves refuses to rule out income tax rises in Budget | [阅读全文](https://www.bbc.com/news/articles/cgr4g89g1x8o?at_medium=RSS&at_campaign=rss) |
-| Asylum seeker guilty of hotel worker's savage murder | [阅读全文](https://www.bbc.com/news/articles/cvgkpyr1ep4o?at_medium=RSS&at_campaign=rss) |
+| Asylum seeker guilty of hotel worker's savage murder at railway station | [阅读全文](https://www.bbc.com/news/articles/cvgkpyr1ep4o?at_medium=RSS&at_campaign=rss) |
 | First snowfall of season possible for some as weekend cold snap arrives | [阅读全文](https://www.bbc.com/weather/articles/cn40jdp7v98o?at_medium=RSS&at_campaign=rss) |
 | Fourth Charing Cross Met Police officer fired after BBC Panorama film | [阅读全文](https://www.bbc.com/news/articles/c4gp2nyxyglo?at_medium=RSS&at_campaign=rss) |
 
@@ -30,9 +30,9 @@
 | Hegseth announces another strike in the Caribbean - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE95QjlWVEVRemFUd1cwN3FMYl84RnVxNGlIUFNPbmZBamRCRmdCQm1jZllnQjNCZGFXM2ZlRU9KZDBtT1ZYRG1pV3V3dkNqS1NjcHhDeEVDeThxQdIBX0FVX3lxTE91VTREX25Rd0gwOEVGSkhUekdFZEhIZE94dDVKaXRaZEF6U0s3SG1Va19sRUEzOU5QVFJXWDZmNGU5OU1DczctMTJmVHFnM21Ud0hvVC1heDg0Zi1kOEJ3?oc=5) |
 | After a lengthy wait, Jeffries to endorse Mamdani - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQaEtUdHVvMWFzeV8zZncwdEdhYWZYZ3RaU2VrZzJybUlmYmxBQ2hPWUFDY0M5dnRLcEhiMjkxY0dFelNDV1RsRFBraVRBa3lXSFBoR0g3WjFfRVdLcTdmZXR1UTMyOEtDd2dUUlNjT3lIRmlUTU5seG43V2l3dlB2ZDU2YUhnbVpNSWM2bnVSZHhkZGlqVWFlaW9HU2pfekE?oc=5) |
 | Trump says federal deployment to San Francisco called off after conversation with Mayor Daniel Lurie - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPRTREcC1OZDdfV1NXaXc3clJ1ZkJTc1R0TmdXcWR1SVJwbFVYZFV5aEk1eklrR2h0N0dSVTFvcFpXcFl0TW1HY3RILVNNN0F5b1FFNW5yUk5jbXNndWlRZWJZcUlXSlBxVlBRY1NlMDZIQWFiSkhJaTF6WG52T05ycExsU2NJcG1fN3V2QWpHT3J4NC1zMXV0VHZ5cFJNMlZXS1B4dDgyMHdWcHl4Ym5YR0xGNXB0UmVjYkx1VU1JeS1lbVVUSkpzZQ?oc=5) |
-| US government shutdown live updates: No temporary spending deal in sight - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1XRXd3bjdnc3E3UlMxcFM2YVJKTkVWOHppQ2dqTmNZRnZ1SDduUEQxMDdoU0IxRXE3eUNvVmQ2TFhoSm85TW1jZFZreEw2Rm5SUFdRRQ?oc=5) |
+| US government workers miss first full paycheques as shutdown drags on - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1XRXd3bjdnc3E3UlMxcFM2YVJKTkVWOHppQ2dqTmNZRnZ1SDduUEQxMDdoU0IxRXE3eUNvVmQ2TFhoSm85TW1jZFZreEw2Rm5SUFdRRQ?oc=5) |
 | Republicans are barreling toward an Obamacare subsidy cliff — with no unified plan - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOLWJfYXZtVElPdWNyNDdBNDRhaU9MSnNXa1h4bEVjcTFBNUtrZkMxcWdyQzRZNm81RXR5N2VaZVFrZlpwbFBsNEFsNHJNelh5SWVrTGdLdWJxLXNhVV9xRS1GcGVTNzF3ZWVEb2JRV3E2VVl6R21yVG53RExzaUJBZkp0eGxiVDFnZjdWRmZ3UEYzX1B6MGppeXhjUXY?oc=5) |
-| Gold and silver coins stolen from French museum hours after Louvre heist - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOdkRYeXRCWlkwX2xmNFdqMFEycEhiMkwxMG10c0piM3ZQbWlNMFFuenBVOUwzYTVDUFlINUdxRk1ySUZpYV9ySWxIc1VQbDd6bTRSS0hkM0FacjFfUFRFVHpFczBNSUpSS1JJWlJuYTlKaUtPRGYxY3ZVWVJtWnZxWFFwWTRJQVlFU2piWUJSUkl3UQ?oc=5) |
+| Can ICE Stop People Solely Based on Their Race? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5kcTg1MjZNSllnUU9JaHQ5WGlTYllRZXRfZXd6NTBWLUJsWTVSMlRlbDJ0b25aM1BMMUtTWjMwUXJZekJEVk9rcW90LXhLTXFRQW40eE1sWDR2cnBYWUlDN2xMa0pQWFZGd3FwSXVja3RCTXNTVllrVkljbVZuQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
