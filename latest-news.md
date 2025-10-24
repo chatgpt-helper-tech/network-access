@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 06:12:13（北京时间）**
+🕒 更新时间：**2025年10月25日 06:25:52（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Exclusive: USDA says it can't use emergency funds for food stamps - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQV3RIYUxJaWxLY3NoM0NTQ2NCNjdDNGhPcldyZ21HQUlXTGFUZXNVaEFFOWt6T3lPeWl6aXN3VWNtSTVVUXJuUWtRa0I5SnlNS3JuanVaSU1qUDNGZllwd2lQRmdIbWIzemdGNnJZbjMzZjFIeTYzUDF6UkpXTWloSA?oc=5) |
 | Pentagon deploys top aircraft carrier as Trump militarisation of Caribbean ratchets up - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNeDVYaFRlcGoxVHRkbEd3bmd4eUxmcHRyS1pKX1Z5eTFZSm4zOXBSWkZCWjVyQjJ3dTBod1BTaXNaUm5aM19kRTBfTXVScjZ5aWFDS0M0blpaWWhtcGdIOEZDNEhnaUtfbUR2MWJCVUNJdUlLZW9zRkJZOGFwOE9zelprQjlYU1hBUURrczlRaWo?oc=5) |
 | Newsom on Trump's "laughable" National Guard suggestion: "Nothing happening" in San Francisco - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNWFpMYndxWVhiSFdYejBBWEd0bjVTZWZ6MkhQQkJDLVNpa0JQcloxZGlvcVYtQS1ncllWOXFPYlU4MkpKOWZRb2wwUzQ5R0xNcmtmbUhONFZmSlNUME9lblRPZGRDTTlXNDBpR2RhbDJES0dXTHlqRWpTNnJ2OXVBMUI4b1Q4bUplUGZoNGFpN0FBWEF0Y0IxcjEwb3drYmRqMFVMNlNHZnVWSE5JS2wyd2w1dHdOSzIt0gG-AUFVX3lxTFBsVDcxVDNMdEFyeEZCXzZ0ZzVxRS1va25MdlgwanF5V1JWalRmczV4X0Y3S2RIaURpWFdPdnN1TC1qOHpiNzZtT3NnaU03Q2MwU2ZkV0J4NnJZMXhZa092M0l0SVA0bXU1M0VlT0ZKbzROQy1RVVJCZW9Hd21BQXUwa29JcmxlX011bWYxSXNuNVNnRmdUTk5GTDcwOF9IWWJmZjNtVFcxaXp0MHE0NGo1YzNyenJOMkFjdEUyc2c?oc=5) |
-| Government shutdown live updates as impasse hits Day 24 with no deal in sight - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbnJOUFBPWkRiTHRfU0VVZnZ1Z0hrVHM5bmN0S2ZWc3JhRDE1Zm1jSWt1cFZGS1Y4ZFNtRVRFcFdJYjZqVEZvRkxvY01UVEpVMVN1UnBHaElpNG1vT1E2Tm9IR2tUOHJiMTEzd09WTXV2UXk4Y2U1c0cwLUgxQjh4RDg1TG4?oc=5) |
+| Trump to Use $130 Million Donation to Help Pay Troops - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOVlJWTncyU2wwVUtMb3ZJM0NXbVpfcXN2ZTlTV1JmWmk2X3h3UUgxVWlMY0pwakVRc1d6c3JvUDhTSWVIMm84WUw3RHVoUlpzZjV3NVhtOURsS2MxMG44U1ctY0ZlYjlLM1RocW9Ydjd5NEhnOGJqNjJVS0o2RUJTcldiQlhCUQ?oc=5) |
 | U.S. kills six in latest strike on alleged drug boat, Hegseth says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQczlIVEN2YnV0Mlpib1Y4cDNNbkowZWd3c2FQSVFmOVY0STVtWElBTER0WUNRLXRUSmZTRm93aF9rN1laNnMwVWtkRjIzSFdPcWtNV1k1aklSN1N2YWNwV3h1N2lLYkpzX0UzNjY5UDBCV0VVcEM1aDVSZXdIaHpLejFZLUxxU0tpZk9uZnRxVFpYT3JBTmlGcw?oc=5) |
 | Hakeem Jeffries endorses Zohran Mamdani for NYC mayor - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE11aVBhd0ZoamhDV0JDbDBHT3JkNFVYR25PQ2p6b2xLWE1ZY3BIWEJ6dW9VTFoyTzYtX2t4N0RhYkVEc0VmQnpteVoyeDU3Q0p5azU4MEpPZWhVb2pyc3lNTWFTZVVOTnEyOVRMR3BOUGdUTEc1THhtMDZ3?oc=5) |
 | DOJ prepares to send election monitors to California, New Jersey following requests from state GOPs - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQVHFwNWxHMWVOMzNQQ2oxUXVZbGNHQVNyNzVCUzhSSWpEQ2J0dnB0YzR1aTd0MHpkdEp0OGE4TXVuMHlOQllWMi1oT2JKbGk2Nm91aVVZdzV2QUI3a1A0bHZCVHloY0loa2dPWUtJd0t3Slg2end1T2FkWHVPUnhPaHk3MmJFcHplVndNdy1sYWZPNGJuWTY5NTBZSzl3cGNZUVB4b2dPLXE0UWxwQTdn?oc=5) |
