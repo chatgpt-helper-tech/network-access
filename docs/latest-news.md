@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 11:00:59（北京时间）**
+🕒 更新时间：**2025年10月24日 11:14:02（北京时间）**
 
 ---
 
@@ -12,11 +12,11 @@
 | Former paratrooper found not guilty of all charges in Bloody Sunday murder trial | [阅读全文](https://www.bbc.com/news/articles/c993nlken18o?at_medium=RSS&at_campaign=rss) |
 | Search for new grooming inquiry head will 'take months' | [阅读全文](https://www.bbc.com/news/articles/cvgwnqeq5z0o?at_medium=RSS&at_campaign=rss) |
 | Bank of England chief tops 2026 Powerlist as UK's most influential black person | [阅读全文](https://www.bbc.com/news/articles/cwy7gn1979go?at_medium=RSS&at_campaign=rss) |
-| Watch: Moment King Charles and Pope Leo made history | [阅读全文](https://www.bbc.com/news/videos/ce864gnlld3o?at_medium=RSS&at_campaign=rss) |
+| Watch: Historic moment King Charles prays alongside Pope Leo | [阅读全文](https://www.bbc.com/news/videos/ce864gnlld3o?at_medium=RSS&at_campaign=rss) |
 | Sabotage, Claudia's ire and the chess board is back as things heat up on The Traitors | [阅读全文](https://www.bbc.com/news/articles/c1m3epre5d9o?at_medium=RSS&at_campaign=rss) |
 | Jaguar Land Rover cyber attack caused UK car production to slump by a quarter | [阅读全文](https://www.bbc.com/news/articles/cvgmp1prnv0o?at_medium=RSS&at_campaign=rss) |
 | UK defence secretary warns Putin: 'We're watching you' | [阅读全文](https://www.bbc.com/news/articles/cj0ezm8z1d2o?at_medium=RSS&at_campaign=rss) |
-| The mysterious owner of a 'scam empire' accused of stealing $14bn in crypto | [阅读全文](https://www.bbc.com/news/articles/c70jz8e00g1o?at_medium=RSS&at_campaign=rss) |
+| The mysterious figure accused of masterminding a $14bn crypto scam | [阅读全文](https://www.bbc.com/news/articles/c70jz8e00g1o?at_medium=RSS&at_campaign=rss) |
 | X-ray tables, high-tech glasses, NBA players: How a poker scheme allegedly stole millions | [阅读全文](https://www.bbc.com/news/articles/cz6nd9wnzn6o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
