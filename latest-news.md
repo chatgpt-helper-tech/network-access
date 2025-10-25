@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 10:49:23（北京时间）**
+🕒 更新时间：**2025年10月25日 11:01:10（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | With East Wing gone, questions now turn to Trump’s ballroom donors - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPYXlHQUNsaF83TmFtSndabVBWaXdmLXpQbEgxdlhxWjF2VkRXUkhOOTBxaHRfVGZxZXIxenpHSFVaR3MyS2lCX2dMRDQ1dmQ4WlNJNGMyNjdPY0F2RDA2bVprYktGOGRhbEhMeHBYellQaGZfckdqam9CMWZ6d19uRmZhbE8zejdVQ09Zd1M1QnpUSmMz?oc=5) |
-| Trump and Canada’s Trade Spat Spotlights Doug Ford, the Ontario Premier - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPbGtSWWt4VGRwSlBlNU4ybmdhSFFOX3RvQUZQd3FKdzI3ajBHbG55WnBhWWxKdVF5SGlweTNRcjIwa0tsNTRjUmw5QS1JazQ2SU5lYU5Pa3dMTTE1Zkxnb1BtY3RGTjA5bjk5amNHd0hRMFhJb3VmOU5iWnlJUnJqbElDcmY?oc=5) |
 | Pentagon deploys top aircraft carrier as Trump militarisation of Caribbean ratchets up - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNeDVYaFRlcGoxVHRkbEd3bmd4eUxmcHRyS1pKX1Z5eTFZSm4zOXBSWkZCWjVyQjJ3dTBod1BTaXNaUm5aM19kRTBfTXVScjZ5aWFDS0M0blpaWWhtcGdIOEZDNEhnaUtfbUR2MWJCVUNJdUlLZW9zRkJZOGFwOE9zelprQjlYU1hBUURrczlRaWo?oc=5) |
 | Trump administration says it won't tap emergency funds to pay food aid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPclR3cF9XWjNtRERuLUlLN2ZBQktsUTA5MHFmWUFOYUd5SzdPWGxzU3JOOFRWU2RZWnc0X0NEVGE0eER5R3FkS00yMXRIc2ZzeUQwMTVVZTA3Z1BWRHJJNGxtWUFlNUlOaER5VFViX0FEOEUxbFJUOXluNjAzVGNlQ2NiMA?oc=5) |
+| Trump and Canada’s Trade Spat Spotlights Doug Ford, the Ontario Premier - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPbGtSWWt4VGRwSlBlNU4ybmdhSFFOX3RvQUZQd3FKdzI3ajBHbG55WnBhWWxKdVF5SGlweTNRcjIwa0tsNTRjUmw5QS1JazQ2SU5lYU5Pa3dMTTE1Zkxnb1BtY3RGTjA5bjk5amNHd0hRMFhJb3VmOU5iWnlJUnJqbElDcmY?oc=5) |
 | Colombia's President Gustavo Petro tells CBS News blowing up drug boats is easy, but illegal and ineffective - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPLUVxQkV3SUdqODFfZ1V2Y3BtVDRVOWk4NDQxTHpqdjBVVFNieTJHd2wzeGtwbVZZQzl0LTktZmcwaFJ1cExDYlY1WmJoSkVQc3dpREtXejlLamNrUFRyREhGWXNhcmMyRzhYaGJTMnBmejJ4MkRFcVhyQXh0enp5R3duS3B0amZkbmlmcTllZ0REQnRRMk1XSG9SaHJvekhBNVZocmF2NDBoN2RyNEcxeGd30gG3AUFVX3lxTE84ZllFbkdnS1laeWpCQklnaTBja3lBZmxaN2RaTVlvakVadlRld0RCYUIxUGRvWUNfMW14dUhMMFZqU2pDTDJBQUxINjZqMFdCdUNDbTVaT3ZySWVOR0VDaU1QZFpiZFNGN2w3MkxrNmJPVzlRNm9xTGFYNTJKc0dNdkwzbTk5UWZfeXRIcTZuOF9FN0g1Tjd2SUZzNEplbkFobm9GQlRIWVlTUDdZM2JtUEpyNUQxSQ?oc=5) |
 | Oakland mayor, sheriff say CBP ‘surge’ operation canceled for East Bay - Berkeleyside | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPdnNzcWwwbHRrS2ctZzFXXzRzMkJmWHBZZ2g1VS1pMjV1aXVEaF9hdFJLVExGbUEzR2pncHZjNmg4SGEzcUFUVjZlWVEtZFVhTzlMU29UQzZ0VnRkQm91UjQ5V3ZGSmw0a3VDLXBiLTVLVXNROWh2TUg5UFlVUTJ6ZThrdnFWZmV5dkFwc0wzMkJ3dWJ0T241eThqS0lfX00?oc=5) |
 | $10,000 Card Shufflers Hit the Spotlight After NBA Poker Scandal - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPR2lhU2d6VzNuZERITVFuLWZBZFZGdzZCNlhwRTVFSVBpWm9CMDE2V3B0MWJXMm1hbGl6MUpfUHlPLTJOX0pIQ1Bvc3p5bW12YWdJdEJwZjZiWkxjZjAtRXF3LVlVaHVSYy1HNFVNV3RRZHVodG95N1lHaGZWS1FrdlAxQzFfTFVqVFdldVFaTVVDcjVDN2VDV3ItZlNHczNaQ2tuekdQOEotd3M?oc=5) |
