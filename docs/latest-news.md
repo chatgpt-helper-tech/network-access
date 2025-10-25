@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 10:24:29（北京时间）**
+🕒 更新时间：**2025年10月25日 10:37:12（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | As strikes on alleged drug boats grow, so do questions about their legality and goal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOM0pGaHZaWm9wYTNlQUpCUW5wNkJFWUExZVhsemtMSmRleGNNcm85eGVWckMtNnNjZkZ2VDk3d3lqZUZrLXdHT3kxcmhkUzNIMzVoYkxfdi1WRkZ1WmRWUU1abVN2WHdVWTZLN1Awek5Tb0pRMnFQTS1TY0k2UTRBRjA0OFg?oc=5) |
 | $10,000 Card Shufflers Hit the Spotlight After NBA Poker Scandal - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPR2lhU2d6VzNuZERITVFuLWZBZFZGdzZCNlhwRTVFSVBpWm9CMDE2V3B0MWJXMm1hbGl6MUpfUHlPLTJOX0pIQ1Bvc3p5bW12YWdJdEJwZjZiWkxjZjAtRXF3LVlVaHVSYy1HNFVNV3RRZHVodG95N1lHaGZWS1FrdlAxQzFfTFVqVFdldVFaTVVDcjVDN2VDV3ItZlNHczNaQ2tuekdQOEotd3M?oc=5) |
 | Shots fired, driver hurt and held after truck rams into Coast Guard base in California - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQX3NnV1FwLXkycTdKdUFrQlhzV3pHVWpSVC1sbzdSSHgwSFN4eFZxM20ySzF5RDJqT0I1VXRsNTBpNXNadUozdENtdEk0d0loMFExT24tVkJqNWp2ZzZ5ZVJ6elYtb3kyRVFJejN2ZlBIRC00amFqYU5ncWxaTlBxSmJRTkhYSl92eTQ0aTFlNk9xbUhIZEVpS1Ffb1hVbHQ3anFnb3Q0VlUxTjE5V1BFNzZfWQ?oc=5) |
-| U.S. imposes sanctions on Colombia's president and family over drug trade allegations - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNZDJYT1ZrOHhWOG1QTFhjQW5aWHV1ek1DbnBaUHJqMkhUdGg5RUJaNkR6RTZHRnRzMnVqb0JxTW5zSWJibUhOWl95SnhUQUh0TXRXNW5vdi1fVHZIY054VzNzZmZUalVROHdpRWlMS1FiWDVpSUJONUdaQjJycXlRVGFDNlY3RVpvT085MjJKTVpraUVhN2ZtNFotZzg?oc=5) |
+| US sanctions Colombia's president, accuses him of allowing expansion of drug trade - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOM0hSRWdhcTZXY3ZSb0dsQ2dIQjQwVjNuVTVZZFJwRV94aXEwNUxBWk40aWJ2eHBLdmhnS2Z3YzhiR1JRNEVBNlE2Mi1McFJ4N3JTUWNaQmJxZ1RIZE9vakVTMS1nSUwwSDNOSnlGQUJqVEozRldJR3Q2cHVacG1vbzdWNHBCaHFZTVM2SFZxd3pORTBQd083TVRjLWNsbUlhZURNemZBU0huRUFxTUs0?oc=5) |
 | Trump seeks trade deal with Xi during Asia trip - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPVDBpZlgyc0d2T2lpMGY1ZTJfVjFFQkRBeEJSS1RXeEs4cGRPOTYwZkNHZGNhWW9ZX1E5bDd3eGhXWmxPNXhjYVFqSWk4RDdiYktvTWlHSHNEY0EwWXdjN2xJNGQtU3YwRFgwMTJQWExYeXBraE4zV2I1QUtGYmQxRWpvNzBPOU5lcmNxVzFUeTdFZE55Mk1scWpMMV9FeXI0a3BrcUNnazRIcGVrd2dGQ2Y1U2h4Zktz?oc=5) |
 
 ---
