@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 11:49:06（北京时间）**
+🕒 更新时间：**2025年10月25日 12:00:12（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | As strikes on alleged drug boats grow, so do questions about their legality and goal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOM0pGaHZaWm9wYTNlQUpCUW5wNkJFWUExZVhsemtMSmRleGNNcm85eGVWckMtNnNjZkZ2VDk3d3lqZUZrLXdHT3kxcmhkUzNIMzVoYkxfdi1WRkZ1WmRWUU1abVN2WHdVWTZLN1Awek5Tb0pRMnFQTS1TY0k2UTRBRjA0OFg?oc=5) |
 | Justice Department to send election monitors to California, New Jersey following requests from state GOPs - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPRWtmR1otV0t1VE8tTUJBblBuRkFBNGNIYlNJZDNXUUlTOXllMkdyelh1RHlxZmNqR1c1UGRsWDJoLUpMMU5XME93WkNveElMN0s4bTdlLXFnQ2pNajJXMmFCdHdsU1YzRHZ6bmtOTWxGcnNudXhob2F1bnFfQk9uc080Vnhoa3ZfcFFBSjEwQlZzUdIBlwFBVV95cUxPR08xTFUxMThNMFliTUVJZ1QtQXB1WUV3SEpxZWZDZVB2bWw2VjU5Ym8wOGNEVVc5cGs1VmxCdjJFQmplcV9aQTBKMllkajZYZnQtMXJTZVdNR0ctOWdCVER2Y2tESFJPM18tZE1VaXoxZGhkbFJwRkx2b3cyQllhbWNyOUU4ZFRwVExGMExVZVNCMkFPNWNR?oc=5) |
 | Immigration enforcement ‘surge’ called off for rest of Bay Area - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNbUhma2FTOFFpa3VCeU41RTVkdGlRNC11bU9JT2c2eDExTEh3NDFqOXdRYzJQWE1wZXhyc1ppbHRpMEZ1QjhoWDFzYjR6QjVWLUducV9IOVNCa0F1dEw5YjVSTzh2RTQ0S3psMHFNX2RXUUlUNTE0QmFlcXd1QkZsZTZmN3VSaHh0UEs4?oc=5) |
-| Shots fired, driver hurt and held after truck rams into Coast Guard base in California - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQX3NnV1FwLXkycTdKdUFrQlhzV3pHVWpSVC1sbzdSSHgwSFN4eFZxM20ySzF5RDJqT0I1VXRsNTBpNXNadUozdENtdEk0d0loMFExT24tVkJqNWp2ZzZ5ZVJ6elYtb3kyRVFJejN2ZlBIRC00amFqYU5ncWxaTlBxSmJRTkhYSl92eTQ0aTFlNk9xbUhIZEVpS1Ffb1hVbHQ3anFnb3Q0VlUxTjE5V1BFNzZfWQ?oc=5) |
-| New York City's Canal Street slowly rebounds after ICE raid - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOMU5xaWtGLXVnYzRQQ3d2STVZZmVocHFzdkpzVkpOV1BOeVlPd0FnQUh1Y2EweFRyZ1lYQkZTZTNyTlc1dlh3QVZXQVExRS1EdTJiRzNtNkZhM1R4U3l6OG5VYnNmQzFHeTdTZzJDMDRQa1JuZm0wdFRmV1hqeVdSaFlBRGxOS1k2TjdmTDQ5TmV1UXlNdnU2UjdnWE9OSEkwQ3fSAVZBVV95cUxQWnJVSzdfa2tmLTYwOHpudm1ISFJhUWpJeGxrTnU5MVZ5REdtY0pqTkplOGduMkU3ampkSzgtVzc2ZTNHQllKcnJ1SWpuVGkxSFV3M08wUQ?oc=5) |
+| 2 People Shot at Protest Site Outside Coast Guard Base in California - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1vb001UW96b21MV3pTZEpEWVdIR0tXdGswVTE2OWltS20xY1NoeE9MU2NmVTludlpkbDUxZ01nSzFNRjN3NjFxbkxZYUpOZzJsRVBoX29rdVd2RnRTTEktOWpNaExLRjNDakRlUnR6d1dZMlZQUGFMRUNLeGpBQnc?oc=5) |
+| Trump administration aims to auction offshore oil leases along U.S. coastlines that have been off-limits for decades - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1odzhTZ3M2aUpnQkJGbk53dzRCNmFoREF6UHktQTI0QUg5eWtTdzlCRWJ0V0YxSUF3dm0xcVpZM1dHRHFxOFVoN3lqUGpTVHNYeWd2UWk0cEZLVmhGYnRST1pwMTZfRHZBM00wNm9tQXRJNU0zRnRzYtIBfkFVX3lxTE9saXBCOTFWbm1EZ3lrTVBGUXZqZElIbGtEZEZUa0hUYjZCN3AxbW9tdnBGaEpiVWRuSXR6dzJxNjVvTTJ1ZUdoOEpoMlVGMkNvUEdCMGFLclc4NlE0Q241M0VhQTgxN29VZkthdEFrbnFaS2cxOTJ0S0ZzLWJodw?oc=5) |
 | Letitia James Pleads Not Guilty as Battle Over Trump-Urged Prosecution Begins - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9pM3FCUHp1SEpiU1pTVEptX0ZuQnVjTFA1WDcyVHpXdXdNTTFzV1ZSZE4zTlhyZjVDbjZ6aW1TNzJlb1Jubm96Q0NaZE1XZFFndTBWaVpLeFdPMXcxLWpCVXBMTnlLM2FBUWxhREx5ejRRMmtORUZMLUxzdw?oc=5) |
 
 ---
