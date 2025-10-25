@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 08:12:52（北京时间）**
+🕒 更新时间：**2025年10月25日 08:24:12（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Trump likely to name White House ballroom after himself, officials say - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPWWk3T2VGX05xN2RCSWlOajBuU1Rhb2ZnbThoS3ZVQXAtX0ZYS0Nwd3paNmlWdjRsMHlNMVo2S3RzSzcxRm9nTVRNMXZ4dnZvOUxfcGR3Z2FQa0lNYm1lUDd1elZNaXpGT0FtRklFWVZWV0ZkTjk2WlJKTm1HaEdMVFAzZ04wdUk4UkxqZ1h4QWo5c3FPcHdEetIBngFBVV95cUxPeW9nb3FjeF8tdTJrMWRjR01pRzR0dFI3cXF2YTV4VU11cDQzT0ppZjVoRXo4cmZ1YTIwSWtZVXBUNXJhdUM1RWVUbFlCZGp1SmVRTElUdV9OMnRyOHhFbmFmOUlSbF9xREVSalpRZjA1dU1hMUR5cDE4SXdEWS10VTRBMi1HcGJwY1BreTR0U2tna29LV01jbjN4YmtKQQ?oc=5) |
 | Trump administration won’t use contingency fund to pay November food stamp benefits - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQWHhnQVZscVp4dkk5dklfWnBtaWJVQWxGemRDN0ptT0ZHdUUtOEQxQjgxa3I4TVFGeWtXZjVtXzFFYUZhcDAzYUFqN0xlVW4xbGpnUF80WFV2aF9XNVRYX3lYNGlqMjBSRjZhQVZ6QjBhN3NKRzZIRTgxb0YyOUdwYQ?oc=5) |
-| Trump says a Canadian ad misstated Ronald Reagan's views on tariffs. Here are the facts and context - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQckZVZWpKNXZ1VWdNUzlUNE9jWGxLTHB1N1N5VmxXWTNERXpDT1RrOUhVSVhteFlkMEQ3bTNKOGhYNnBNN0VGNkpLLWVCd3RNcHYyY24xRlo4WURTSGZWaUlSRHNFem1FODBVRUE3dl9fUUFqOFB4cVZoZ1JTOFlqLTRYako3SXhwV0pnWEZ6UWRnSXFWUEpqdGJlWERJVlFoN004?oc=5) |
+| What's in Reagan advert that caused US-Canada trade talks to collapse? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5idEp2QUJLYmtERnlFdWJodE9kT3Y3dko5aVVsOFpxNnN3VGF4YjZDYjFJcnRmb3FaU3doNENXQ3lFR2dyNlIzdjBZdnV2bnFTVXB3a2ZPaDlpUdIBX0FVX3lxTE1iY2lTOWpKWUw3cDhfM0dGV3dFM04tRWZzTE5QZHUyVXVuSHVVZTQ0X19mR0pyaG5GaVlwbG5URzF1bGt4M3FNWHlRa25kcDItRlVFRWFDazZPRVc2YjB3?oc=5) |
 | Pentagon deploys top aircraft carrier as Trump militarisation of Caribbean ratchets up - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNeDVYaFRlcGoxVHRkbEd3bmd4eUxmcHRyS1pKX1Z5eTFZSm4zOXBSWkZCWjVyQjJ3dTBod1BTaXNaUm5aM19kRTBfTXVScjZ5aWFDS0M0blpaWWhtcGdIOEZDNEhnaUtfbUR2MWJCVUNJdUlLZW9zRkJZOGFwOE9zelprQjlYU1hBUURrczlRaWo?oc=5) |
 | Federal Immigration Enforcement Surge Called Off Across the Bay Area, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOTVhZTWk5SEdMTzF1T2NzRVBraEhSUjEyU2htdk1Ta1BWZXJGN3FnZVFSYWlsQjJQdEZnQlZmUGZJd29mcXUyaTBialdaUVRSZDFlVmVHc3VpS2NSYURsNGkzbExCUUlvN1ZpVXQ0QjhaWm51UU1nd1FaaDQzY3Fyb3ZTOGZKVGM2dy1F?oc=5) |
 | FBI announces takedown of Weymouth Street drug gang in Philadelphia - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPWHcwNkJWSnpyQUVnSlBCblFKM3BUWG1XTkZyT19MZjVnYXAyX1FVQVFpSWU2MlBGZTRJcUIxcDRJbDdnc2QzUFU2czBuVnRIeFZpd3d2T2FnUXUtdE8wUFNBWThBeE1ubW82WlBaNU4tZExfSzdHMC1PVE56dlMtT3VYcVlfQmtsb1NDRXFBQkNXaHc?oc=5) |
