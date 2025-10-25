@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 17:37:31（北京时间）**
+🕒 更新时间：**2025年10月25日 17:48:04（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Ontario premier says he'll pull ad that upset Trump so trade talks between Canada and US can resume - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOZEJyWjFHXzQ4Ui1mQUxLQm5tRTRvQlJnUHBIY1RBaDVJekhmZXNkZldoaXM2dDZ4S01wek8yUkdNbkxOZjBRUU54cXpqZ1V1QUtvdWF6b0RVeEhkU3N1TWk0azF3ZTM1aWg2M0xNSElpaklLdnBaSlpWOWxLM1NNVUE4RFdZWGkySGVKUWFibVl1REFHM3JON192RQ?oc=5) |
 | Pentagon orders aircraft carrier to Latin America as Trump signals escalation - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNZkNtUGhEamFEMXdvRDRyY3Bici1DTkR5NEdDak5YZ1FyRnRfcTNDYXp4bzRnM243M05ULTJFY0w4NVFWaTdXbE9iVGtFTFF0a1ZDWV9SYlhYbkoyWURrUzdJQmZGUEQxNlNMZHBZa3BIRGJYT2xyLUs2dlRyMVlUX3pEUmNtamJNZFhBQUlNM25GaGJjalItRi1OblpScG15X05HS0pDZGIwS1U?oc=5) |
-| Trump likely to name White House ballroom after himself, officials say - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPWWk3T2VGX05xN2RCSWlOajBuU1Rhb2ZnbThoS3ZVQXAtX0ZYS0Nwd3paNmlWdjRsMHlNMVo2S3RzSzcxRm9nTVRNMXZ4dnZvOUxfcGR3Z2FQa0lNYm1lUDd1elZNaXpGT0FtRklFWVZWV0ZkTjk2WlJKTm1HaEdMVFAzZ04wdUk4UkxqZ1h4QWo5c3FPcHdEetIBngFBVV95cUxPeW9nb3FjeF8tdTJrMWRjR01pRzR0dFI3cXF2YTV4VU11cDQzT0ppZjVoRXo4cmZ1YTIwSWtZVXBUNXJhdUM1RWVUbFlCZGp1SmVRTElUdV9OMnRyOHhFbmFmOUlSbF9xREVSalpRZjA1dU1hMUR5cDE4SXdEWS10VTRBMi1HcGJwY1BreTR0U2tna29LV01jbjN4YmtKQQ?oc=5) |
+| What donors to Trump's White House ballroom stand to gain from the federal government - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQejY3YXZNTk02M2o3X3UwTFpteW1KU3RLamRYVW5HSnFwWGV0M0tNS0xtSmpiZFVaZ1JEaVZFTWVwMS1tRDBxVEdNaUJIcWhBbVdwUks4MlR3bGV2QnUwX0RSSnZXcXNjYnM2UUZ4LUl3cjBjU2JaTjhmbjFYUElTX2NRa9IBiAFBVV95cUxPeFpmQ0FTdU5HTndiRTNTVC1kS1EtaGJsZkFBeDBwMUxRR0xvY2R5clRJQlh3QU1kVnZhc3hxRTBQVTg3MG9GTzR5VnlvT004YVN3dnlQcnowMS13NTlMWXRFRWhzdWhfVjYzc2hsVUFpUVppOTVqUVhTMjBhc1Zrc3VHT0tXTzdM?oc=5) |
 | Trump Administration Accepts $130 Million Donation For Military Pay During Shutdown - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOZ01ZVUpuNTZlZHZtSEhINjdQU2tzSzdlNllIQ2phRmZUWjNuNzdsWVNZSm9qN1FtanBsSXEtTHFoUml5bmtNQWNrSTFtZmN1bmxWcUUzMWpOUUxTZnZZa1lrc0RrcXlPYXczU2FBSjRPV2Q2bThpY1VkTUdkTTJWWlFmR3UxVlNLRWJQNkdoUjZ3Q1UwUExwb2JTbklLWTRZWjExOEJyODRhR1dnQzA3YldkVWxZZE95UFBN?oc=5) |
 | Exclusive ｜ Inside the Tech CEO Campaign to Stop Trump From Sending Troops to San Francisco - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNamJUOElnNFJuS1BpM2pRTHJMcFdXVFpUNGVQRk5zYTRKNXFzYUpMVXVaRnk4ajBTU1I0T2g1ajhleTFqa2ZlbXZiNmNHS3BuVGtGWXJ5Q2FJSFprNF9xckY4eWZ1cGVwTnd0Q0dnZ3dpVVduMDVtZ1lPS2Vuem9oSw?oc=5) |
 | ‘Throw of the iron dice’: Inside Trump’s most perilous foreign trip yet - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPVXc5QWRNM241ZHoxMTI3S2F0MWliYkdQMjg0cG5IZGFkQ2NkbkZEXy03Rm8wTTVXX090RXdpWWpQNXBaOUZQeHBvWFQzNWpMU3RxTG5iVUU5VUk5bHRjV0h1UTN2UmhWNngtb01PRTNwVHAyR1ZjRUlxX3BBUDZqVmxEbHpWY2J3QlFxUlBfdXY1VnBDRGhMV0tuSGpOYTRXRGVFWFFFTkVQRm1IZlhMbWhRWmlpc1FzXzAtbnR2OA?oc=5) |
