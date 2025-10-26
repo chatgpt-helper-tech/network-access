@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 13:37:50（北京时间）**
+🕒 更新时间：**2025年10月26日 13:49:44（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Hurricane Melissa Forecast: Catastrophic Danger For Jamaica, Haiti - The Weather Channel | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPalUwMXgwMXVhSXVMd0pMb0V0cDVSRnlRUjN4aXFFZ1BHSjNBTF8wSGFLXzBBYjBiUEdnLVNDVDJSRURXVjBjYWJ3Mi1JZWVyTmI0UU1ablpveWl6b1B2Z2N2MG9USWh1REFPYjFOME9lWEhSaTZxRTg0TmpkbVR3dThOc3VJRUxXMWtMUzBqLVYxOTNabU1zTXFidjR1b2Npc1R4alVJNTU3NlJl?oc=5) |
 | Trump ally who donated $130 million to pay troops amid shutdown revealed as reclusive billionaire heir: report - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNeElOUzNHRVZ5Rms5M0hrbmRYcHNlblEzWkstZ3paRmRKdFlmWThNUkN0dEtWRDZZVXF3TjhHTGQyMTZxOTVLdkhFYTZ5RldDaFVzaWdGakxxN0htY1hYXzd3VWNnVVNlQV9heEo0U3p3Mk5NUExKR1BfaERoUG51TElQelR0X0N2SUlGa0hOckpzTFNuYzludURYTnd6OHR1ampyVHRqb3pyY3VOcmRiNFdNOUJhZGVuSTBxM2pRUkhLdw?oc=5) |
 | Kamala Harris says she may run for president again in 2028 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNR0V1cEdOLWNYekZMcEozZkdSZ0hocEIxcnpRdWVaYjZsSnk5MVBrYWFKQmQxRGlCQXVUM3Buc1lRYVNEMFlWZWJKVnBRNnRxdTdubFIzRHJwMmJBMmNGanhPTjRQU3hWdzRKcU84SnNENXNZTUhaNUFhZXl5am00VFJLNnN2dw?oc=5) |
-| Honduran Man Struck and Killed On a Virginia Highway While Fleeing ICE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBkbG9VZWUtUXRJMGpITHJTU21kZ1l2WG9tYVpOREc3UDR3QU5fbHZmRVBRZ3VjWm5GUTFWRmUxOWhBVjRYQmlKMW1TS2NLUEFkMzZyTTZHdjZTT19MczVRM3l2U0RvU25vRkE5c3psWVk4Zm1Ra2tSNVYzOA?oc=5) |
+| In Florida, Obamacare Price Hikes Pose an Outsized Threat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSm14aTlERlE5dmlqMVZPVUFQdU1VMFZkR2dqcmxBS0E0ejhhb0xaWmxrX2V2bk5SVV8wZVlsMGdrSkJqTmNjc1I2eWxKS1dhN3JIdzgyM0drVU1zaTFraVduQ2UtOWtUNzB0MmM2MjZ4TjcyVFBUXzNIUmxDRjBNX1RZWFJvVUNtV3FfbTY5RTh1dEhSZVM5VE15RnFEUQ?oc=5) |
 | Army Veteran Arrested For 30-Year-Old Murder After DNA Testing - TMZ | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPWDRCeVdSXzk4eXItVy1HZ2Y1Q0lnMWlnSmNVRzRpVmJRZEVhekRxRG5ZbmdyVjB0QldVeXNWQkN5SVpkN2tnMlVVZ1QwTU9ueW0zb01ydnZhNzMzdUdPM3h1dU5qQnltcmg2cGJVcVZvM1FNZGJQVmhQSnNWRm1MLWUwZE4wbE1VZWF30gGLAUFVX3lxTE9lRnNvMHNqT3ZackM4Z0syb1NibHJUdDk1bGREWi1ybzJWRG5Ic1NhTGRSdEJnY2dPTmpObE00dktVZlpJN2Z6NHNESHFDSWNnVGpDcnFRN2lIOUdkOXM2cEZHR1RWdHRmWjFvY1VLV2pINWQ3R0d5cll0b2hIcDc5RWpvZmdzRnVTQWs?oc=5) |
+| Honduran man killed on Virginia highway as he tried to escape ICE agents - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOTk5qRjBZbmlKUjM0M21RTWNWODhiT0FJeGFDQ3ctLUJNcGRmWmN5WWo1ejZiVmI3QnZncm5mMElvcjNrSEpHMnVta2E2aHRDUnFYd24xZGFmM1VXYWp2MlpEc2UyNTJuX0hDZkN4MUs2MmhRRkFQR0llendyUFRZd1NySmo0OE9VOW9vSTd30gGTAUFVX3lxTE8xa2ZJMmJnMEFqX0ZwX1Z6cl9RQzl1dFppYVVuUGx3ZkVHMlg0d2g5ZG1pdUVLekhvSnBaTzgteVNKOHNaLThPT3h6VTQwNkRIZ1Jhd0VQYllSM3BGTnVZenVfMUM5bWFzWmFrYW51ZWc3U2ZqcGF1MWRBR19GMXFReXZYbGZYclk0M1laeXlHNXoxYw?oc=5) |
 | ‘The pro-life movement still has some real juice’: How Trump’s promise of free IVF fizzled - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxOX1daTktYR0o1SGF2SlRHLXpSdHhudWFtdzVJYk1Oc3Z5Qm5UbjltbUt1R1l3X2Z3WGJDMHN5YjJfS1FCQzV6TXB4U0NPOWxSOFNFTnVOMDM4N3pzcWtDTUpYY3NNcXlXb3NGcVo0ZnpKcmdWVXhJWFpraEp6TlMxWTh3a0NCdVlRSWRfQ05Ib29IZllid0lXRnlWSFRMY1JjUk9jZnhENW9NbjdlV1V4bmc0TmhvZE00RU14bmlZUkFZM0NrSHRKUlZnckZoR2hpbWc?oc=5) |
-| Hispanics’ support of Trump plunges since he started second term - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOampkU1hHZ29jdk9mRnFva3ZlNW5NRm90aVpaR1ZIYkRJZ0xRcG9qR2t5SHZLMXROek81cHdGSVVBRy1iRWJxV1VUWmVOMkRfRWFxWllqYmttQUdqV0NGU1psM3FwX2c1c1ZlenRsRnI2TFpSWnZXaDJyWENqWDFKdFBFQkc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
