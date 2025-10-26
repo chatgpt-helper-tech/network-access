@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 23:13:08（北京时间）**
+🕒 更新时间：**2025年10月26日 23:25:00（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Moment migrant sex offender arrested in London park | [阅读全文](https://www.bbc.com/news/videos/c93dk58ev1do?at_medium=RSS&at_campaign=rss) |
 | Two arrested over theft of jewels at Louvre museum in Paris | [阅读全文](https://www.bbc.com/news/articles/c2em38pdv0do?at_medium=RSS&at_campaign=rss) |
 | Reform MP's comments about adverts 'racist', says Streeting | [阅读全文](https://www.bbc.com/news/articles/cd7rg7wjvgvo?at_medium=RSS&at_campaign=rss) |
-| Harris 'concerned' she did not ask Biden to quit race | [阅读全文](https://www.bbc.com/news/articles/cj412zgvy4do?at_medium=RSS&at_campaign=rss) |
+| US and China agree framework of trade deal ahead of Trump-Xi meeting | [阅读全文](https://www.bbc.com/news/articles/c1lqj5lz4geo?at_medium=RSS&at_campaign=rss) |
 | How the nation lost its appetite for Pizza Hut | [阅读全文](https://www.bbc.com/news/articles/cn97vdpv13wo?at_medium=RSS&at_campaign=rss) |
 | The best time to turn on the heating – according to you | [阅读全文](https://www.bbc.com/news/articles/cgqly9ynnd4o?at_medium=RSS&at_campaign=rss) |
 | The 'heroes of Kharkiv' who saved 48 children from kindergarten hit by Russian drone | [阅读全文](https://www.bbc.com/news/articles/c9q1w9ypl8jo?at_medium=RSS&at_campaign=rss) |
