@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 17:13:11（北京时间）**
+🕒 更新时间：**2025年10月26日 17:25:53（北京时间）**
 
 ---
 
@@ -9,6 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Epping migrant sex offender last seen in Hackney on Friday, Met says | [阅读全文](https://www.bbc.com/news/articles/cn97jpy41n0o?at_medium=RSS&at_campaign=rss) |
+| Two arrested over theft of jewels at Louvre, French media report | [阅读全文](https://www.bbc.com/news/articles/c2em38pdv0do?at_medium=RSS&at_campaign=rss) |
 | Trump presides over Thai-Cambodia 'peace deal' - but what does it mean? | [阅读全文](https://www.bbc.com/news/articles/c93dy2kk7vzo?at_medium=RSS&at_campaign=rss) |
 | 'Brothers in the forest' - the fight to protect an isolated Amazon tribe | [阅读全文](https://www.bbc.com/news/articles/cjw92x915xlo?at_medium=RSS&at_campaign=rss) |
 | Tax rises could push food prices higher, warn supermarkets | [阅读全文](https://www.bbc.com/news/articles/c620gy43pe4o?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | Willpower doesn't exist: Advice from BBC doctors busting wellness myths | [阅读全文](https://www.bbc.com/news/articles/c98nd0d61d0o?at_medium=RSS&at_campaign=rss) |
 | How the nation lost its appetite for Pizza Hut | [阅读全文](https://www.bbc.com/news/articles/cn97vdpv13wo?at_medium=RSS&at_campaign=rss) |
 | The 'heroes of Kharkiv' who saved 48 children from kindergarten hit by Russian drone | [阅读全文](https://www.bbc.com/news/articles/c9q1w9ypl8jo?at_medium=RSS&at_campaign=rss) |
-| The best time to turn on the heating – according to you | [阅读全文](https://www.bbc.com/news/articles/cgqly9ynnd4o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
