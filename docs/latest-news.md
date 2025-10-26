@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 12:12:07（北京时间）**
+🕒 更新时间：**2025年10月26日 12:24:41（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | This mysterious billionaire and top Trump backer is behind a $130 million donation to pay troops during the government shutdown, report says - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQemdWMUlpVmVBS196a0ZGZXR4d0VkaHl0WS1OT3U1YWFWT2cybnZFNXV0amxjUW1pMl9qdnRwSF9rVXE5Z1ZXWEEyZVJ2ejZtRWFmXzFwRXBzTmVfdU5BYmlVQVR2TU8xcWw0X25IYXlxWVpadng0cWUxMGZhYUNyLVZCVXZoMzlfNEFJeUJQdE1Lc0VSaExoTjdEb1hTb0NmWFRxOXd1SEM?oc=5) |
 | Kamala Harris says she may run for president again in 2028 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNR0V1cEdOLWNYekZMcEozZkdSZ0hocEIxcnpRdWVaYjZsSnk5MVBrYWFKQmQxRGlCQXVUM3Buc1lRYVNEMFlWZWJKVnBRNnRxdTdubFIzRHJwMmJBMmNGanhPTjRQU3hWdzRKcU84SnNENXNZTUhaNUFhZXl5am00VFJLNnN2dw?oc=5) |
 | Honduran Man Struck and Killed On a Virginia Highway While Fleeing ICE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBkbG9VZWUtUXRJMGpITHJTU21kZ1l2WG9tYVpOREc3UDR3QU5fbHZmRVBRZ3VjWm5GUTFWRmUxOWhBVjRYQmlKMW1TS2NLUEFkMzZyTTZHdjZTT19MczVRM3l2U0RvU25vRkE5c3psWVk4Zm1Ra2tSNVYzOA?oc=5) |
-| In Florida, Obamacare Price Hikes Pose an Outsized Threat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSm14aTlERlE5dmlqMVZPVUFQdU1VMFZkR2dqcmxBS0E0ejhhb0xaWmxrX2V2bk5SVV8wZVlsMGdrSkJqTmNjc1I2eWxKS1dhN3JIdzgyM0drVU1zaTFraVduQ2UtOWtUNzB0MmM2MjZ4TjcyVFBUXzNIUmxDRjBNX1RZWFJvVUNtV3FfbTY5RTh1dEhSZVM5VE15RnFEUQ?oc=5) |
+| ‘The pro-life movement still has some real juice’: How Trump’s promise of free IVF fizzled - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxOX1daTktYR0o1SGF2SlRHLXpSdHhudWFtdzVJYk1Oc3Z5Qm5UbjltbUt1R1l3X2Z3WGJDMHN5YjJfS1FCQzV6TXB4U0NPOWxSOFNFTnVOMDM4N3pzcWtDTUpYY3NNcXlXb3NGcVo0ZnpKcmdWVXhJWFpraEp6TlMxWTh3a0NCdVlRSWRfQ05Ib29IZllid0lXRnlWSFRMY1JjUk9jZnhENW9NbjdlV1V4bmc0TmhvZE00RU14bmlZUkFZM0NrSHRKUlZnckZoR2hpbWc?oc=5) |
+| Average Obamacare premiums are set to rise 30 percent, documents show - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPamdidlh6SnVTc3duMXdGUTBTYmdydE1qR3hiSHVIRjVNNHloZ0hseUJMZWVqSGdjUFQ5OVVoMGVmNFM1Ml84cWdQd3dMMWY4YmdmZ3llWjZDel96ZmRxcWhRenYxZ0ludG9vX0h6dEhlR2tpNVJMeVp2VTEzNnE1eDZ5ZVJlMC1pSnBmZQ?oc=5) |
 | Black Americans and Latinos feel alienated in Trump's America: poll - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOdjFqZVJ3czkxQlNVNTVfVVRFcHREQlk1YjZQM1B2bExZbnNGd213LW9aY1ltVkZkaFhma1VISFdQU1JSUHl5UEtNcVpQYjRfcnlqWUQydDZ0WjhrUXFZT2k1VkY0WS12OFFoTTZTV2pwVVhlQkxSY0E1VEgxdl9ON1Ftdw?oc=5) |
-| Fight erupting over election monitors between Justice Department and N.J. Attorney General's office - New Jersey Globe | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxOVDFXTzd1alhrc3Q0bW16a1JUbnpPTldLUVJDX3FOV0hLdFlmbWxXVEd0cnlzcWFibjBVUktJcm15OS1heml3QXJXTHhyMVBMZHIxX2dVYVJWZkJjNlU4WG9SLTNPNy0yUndoNFhHbURjd2wzSzNraVZyRk1pU2UwZk1jcWpyX284WjB6eFRzVHlYcHJJOFRLOGNlOUI1RkxmSFl5NC1UR0VfRzFpWTNIZFRZWGd4T3hET2NmYVBqSW5XVGx0OHJBVXVDUUhvYkl3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
