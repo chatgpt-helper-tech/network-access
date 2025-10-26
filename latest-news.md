@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 18:13:48（北京时间）**
+🕒 更新时间：**2025年10月26日 18:25:45（北京时间）**
 
 ---
 
@@ -8,12 +8,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Two arrested over theft of jewels at Louvre museum in Paris | [阅读全文](https://www.bbc.com/news/articles/c2em38pdv0do?at_medium=RSS&at_campaign=rss) |
+| Suspects arrested over theft of jewels at Louvre museum in Paris | [阅读全文](https://www.bbc.com/news/articles/c2em38pdv0do?at_medium=RSS&at_campaign=rss) |
 | Harris 'concerned' she did not ask Biden to quit race | [阅读全文](https://www.bbc.com/news/articles/cj412zgvy4do?at_medium=RSS&at_campaign=rss) |
 | 'Brothers in the forest' - the fight to protect an isolated Amazon tribe | [阅读全文](https://www.bbc.com/news/articles/cjw92x915xlo?at_medium=RSS&at_campaign=rss) |
 | Trump's week in Asia: BBC correspondents on the wins and potential losses | [阅读全文](https://www.bbc.com/news/articles/c9d6jnn37l2o?at_medium=RSS&at_campaign=rss) |
 | Tax rises could push food prices higher, warn supermarkets | [阅读全文](https://www.bbc.com/news/articles/c620gy43pe4o?at_medium=RSS&at_campaign=rss) |
-| Trump raises tariffs on Canadian goods over Reagan advert | [阅读全文](https://www.bbc.com/news/articles/cx2ljgrm78zo?at_medium=RSS&at_campaign=rss) |
+| ​​Women welcome arrest of charity boss identified in BBC sex-for-aid investigation | [阅读全文](https://www.bbc.com/news/articles/cgkzg680j7lo?at_medium=RSS&at_campaign=rss) |
 | Willpower doesn't exist: Advice from BBC doctors busting wellness myths | [阅读全文](https://www.bbc.com/news/articles/c98nd0d61d0o?at_medium=RSS&at_campaign=rss) |
 | How the nation lost its appetite for Pizza Hut | [阅读全文](https://www.bbc.com/news/articles/cn97vdpv13wo?at_medium=RSS&at_campaign=rss) |
 | The 'heroes of Kharkiv' who saved 48 children from kindergarten hit by Russian drone | [阅读全文](https://www.bbc.com/news/articles/c9q1w9ypl8jo?at_medium=RSS&at_campaign=rss) |
