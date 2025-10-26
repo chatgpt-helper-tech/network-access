@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 17:37:53（北京时间）**
+🕒 更新时间：**2025年10月26日 17:48:17（北京时间）**
 
 ---
 
@@ -8,7 +8,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Migrant sex offender arrested after being released from prison in error | [阅读全文](https://www.bbc.com/news/articles/cn51y0p6ne2o?at_medium=RSS&at_campaign=rss) |
 | Two arrested over theft of jewels at Louvre, French media report | [阅读全文](https://www.bbc.com/news/articles/c2em38pdv0do?at_medium=RSS&at_campaign=rss) |
 | Trump presides over Thai-Cambodia 'peace deal' - but what does it mean? | [阅读全文](https://www.bbc.com/news/articles/c93dy2kk7vzo?at_medium=RSS&at_campaign=rss) |
 | 'Brothers in the forest' - the fight to protect an isolated Amazon tribe | [阅读全文](https://www.bbc.com/news/articles/cjw92x915xlo?at_medium=RSS&at_campaign=rss) |
@@ -18,6 +17,7 @@
 | Willpower doesn't exist: Advice from BBC doctors busting wellness myths | [阅读全文](https://www.bbc.com/news/articles/c98nd0d61d0o?at_medium=RSS&at_campaign=rss) |
 | How the nation lost its appetite for Pizza Hut | [阅读全文](https://www.bbc.com/news/articles/cn97vdpv13wo?at_medium=RSS&at_campaign=rss) |
 | The 'heroes of Kharkiv' who saved 48 children from kindergarten hit by Russian drone | [阅读全文](https://www.bbc.com/news/articles/c9q1w9ypl8jo?at_medium=RSS&at_campaign=rss) |
+| The best time to turn on the heating – according to you | [阅读全文](https://www.bbc.com/news/articles/cgqly9ynnd4o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -25,10 +25,10 @@
 |--------|-------------|
 | Trump raises tariffs on Canadian goods in response to Reagan advert - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1jT1c1dG9vRXdOcjB6NXFTUHMzTHBDZ0lYNldXZnNYM2VwMFZsTFE3bXBxX1hsT1hLN0ZBdUVjdXNoYkZGNE5KaEF0OGpIVXdOSWNkSGZxMEM0d9IBX0FVX3lxTE5GdU5KVGxqY3F6LTF0NnYtNFhCYjlCYjVacWlUbWxzdmtJV3lWa2VHeTN3d01ydVJ4LWltS1dKWGs4VHpVZmdEZ3dHUjRrT3Y4NmRpSGZvV3FwcHRiV0c4?oc=5) |
 | Trump arrives in Asia for a week of high-stakes diplomacy - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1oUEJGcWh5VWQtY1pkRl94UHFyOXdBTTdSeDFlRUVkbjZoVzZCMUZHZnVZZkNsY1RxbWdyZlhMVjJ6ODgyU29GUnNPaE5yZUpvSVpkeWEzeVRtLU1sYUI4LTktUEpDdzNyNlhBVzRLSUhhVHFSVTNvNA?oc=5) |
-| Now a Category 3 storm, Hurricane Melissa expected to continue strengthening - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQNjdHbTZ4NFlXMEpLWmZtMTY4MWNTN01WSTR5Sk5KYUVYZmFXamttcXFLNVlwR1hDS3JXeG9pbWlWSlNjR1hFV0pfZk1aRERWbTliSm81Slp2X21TdS1wdWY4RmFad3duMjVNRUhZMVpST2tEN3BhMEczaGQzeUo5NnJtYUVsRnZKWEltMVkzNDEwM1ppS3pXMjdNWEZ4aFB5d282N29oMTNhUVFvWk55cVFmeEnSAboBQVVfeXFMTzlodkIzek5BVFc5SVpuaVJsN0VoMVBMcXUzRFdJb1kwc0ZJXzRCYURUUlQ0OC1FUTl3VEo4U2lwR0VaaFNTU0VWa1FNTV9BWVh3enR0djFmbEVnV2NTU1BIa1k4RG55dlFpb0U1bV9ERzB1WU8wNVJOUXJpUEJ3LXFWMkRVaUk0QUtpNnRnUUNtR2MwR0R1VDJ3dC12SFNUUWUwaERCLVJ0alRJOXZLYV9VZF9KX2tNM3hn?oc=5) |
+| Melissa expected to rapidly intensify into major hurricane in the Caribbean - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPRGJVNWNOaHFQWHJhLXJLU0hRQUtkbkZEZDJROF9yMXc0VzVfUXRGNW9VeG4wb1pDd01EeXdieVBwTVhDM0xJLWtLU255ZWRRN0plUGw5OTdGVW5VdUk5V2VpM0t0b0l2T1Z5aW5iUlViRUIxX0xRS3pPb1lkRHp6a3lHMnQyQ2hDWlN5c0JoVjk1QXFsQmFiTTJ4MkREUl9Xc1ZoREJCUkRrWkxWVlN6X1E2aVU2LWlVN19Zag?oc=5) |
 | Trump heads to Asia with trade — and tensions with Xi — on the agenda - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQaVk0M0h3Tm0tOU1PVDVqeFU0LUR5bHBvc3hPc2dvTk1rSTIzQWpjZkRrMWUzWEpNNjVybWxMMkl4aFlPVGpjV1oyVWVEMU9MTEV5UE9ZamJYdXQxclp1cEEzVmZBNjA4M0FoNGNnYUUyZXFXUC05V3VxTFVKSllMUVE4dy1xV0pLY1ZUVHhJTjlTY3lleFU0d3JURm1tMzlpRzE3SnlUTURIUVBUdUhqTXNR0gFWQVVfeXFMTndyN2dhY0oxSjFVSm9OaXphYVRpdWJfekVLN2tVUGV0TnBJWXZrMGd6Si14bmFMdmVLcTF5SW96VFUzV3FiRWtvV2w1ZTZPM0U1Q0lIZ3c?oc=5) |
+| The $100 million Louvre theft could make France's stolen Crown Jewels as famous as the Mona Lisa - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQeURRUE1TNEFuMU8wdWltRC14T3Y2NlJkUWExU0k4MzdRbGlYMFU3c2RzRnpaLXNpeXZEaEdtU2kzbjlMbXFpbGtpaDF2ZGdSTjhTVjFoVUdZNjV1a2VnVm1YdDZ0RllQMWl6UWppeHFHeUJUMklfY25Rd0tnN0dnbzBIWEIyclZINmNKcE43cw?oc=5) |
 | How Trump Barreled Through D.C.’s Bureaucracy to Get His White House Ballroom - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQaFJOVF85LWUzM191UEMxTzl2QUdSbFZmUFVDaGxLNVIzRzdNR04yZFZTRjRodWt5eGQxMWFxYS1YQUJnMDQyVUpNM195eXRiMG56a0hIX084X2tQc2NEVDFmb3N2RHpVRHhqVXNMakxlZlJXYjMxN2NPSXoxV2I3MEhFRk8wZ0xtS3NhbQ?oc=5) |
-| First, came the Louvre heist. Then came the memes - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1hWXNhOHpvMGtVMWhhQmxDN280WldPUjZQSGxFLU5lV0luUnlOeHJ0dHUtMkthSG0yV0tLaXhmcDRfSE1EUXhYOW5keERwY1lHX0FGR1c2UHpWWUxkWmJETnhVajJYVTRKOFJMQkJiY09yaTFnM29sYg?oc=5) |
 | DNA left at crime scene links former soldier to Virginia artist's unsolved murder - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQSjRRRE5PWS15MTNGcVFYQldRUGh4b0ZxWUFVcmNkS0szTzlOVG5KVng1UFNZUGt2UmhHSTljSFBJZDkyU2xkTnNWNEhKbDh3REVldlgyYjA5T05kR2RpOElsZlRLdlVUTmJqR2Nja0FadmNHRjE0MlFiUkw5NkdxTXRMMXhEcDhGSVA4NXBaSE5aLWZqYVpF0gGcAUFVX3lxTE9JV1pTbjlOS25FenZqdV9yNnhhdXBhbTJFc0xDLUo5UDBwV2QxbC1UXzZXRENHaHoyNXZQeGIxX0xGWGxZb21UVXhfajBtWFZ4OGFySXE4UEZqamZiUi16d0ZhUXRWUm5EUmRIQ2JwRHVwY2xxeXdpTTY3NnQyOWdPRUl4b0ZWWEpnejJ4WnRUUnR1U2xaWXNQSXZCUQ?oc=5) |
 | Honduran Man Struck and Killed On a Virginia Highway While Fleeing ICE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBkbG9VZWUtUXRJMGpITHJTU21kZ1l2WG9tYVpOREc3UDR3QU5fbHZmRVBRZ3VjWm5GUTFWRmUxOWhBVjRYQmlKMW1TS2NLUEFkMzZyTTZHdjZTT19MczVRM3l2U0RvU25vRkE5c3psWVk4Zm1Ra2tSNVYzOA?oc=5) |
 | Vance Criticizes Mamdani’s Comments About Islamophobia After 9/11 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBSV3pDZGNkZC1kd2loMVZMLXpUa1lodkdsaDRrQ3QzRkxETDV5OEl0UlViMUx5eGNPWDJXT0dVb1ZpVWJlNW9oMGdoMzQ3RWNPczZuN3hBdl95RFJldDEtdGV4SzNPYXFtSjZpdlhkUm9EcmM?oc=5) |
