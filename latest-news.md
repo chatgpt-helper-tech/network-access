@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 00:12:53（北京时间）**
+🕒 更新时间：**2025年10月27日 00:25:07（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Putin Says Russia Successfully Tested 'Burevestnik' Nuclear-Powered Missile - The Moscow Times | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOcDlQdXBtMEFpTlk3YXNzbWM0amVnYTZHcEdZZWtNRHNvOXNkQTZIbGRDUE45N19zV2Q3SjVUQjNYRTNqalp2V2hPS3d1TFBxcWNYWVBPS3lLY1BZdDVZOEtHb09MNzU5dTZSZ2ZzZUt4Y2FzUzF6eHNid2ZMaEUyY2NWSmIzbzJyUUM0MFlkWXNqQVdwa0hVZFNoaERTa0FLRzU4SXBndXVfRTRvX3pTM0lyMGxIdWQtZFlIUjNPUQ?oc=5) |
 | 1 person killed, 6 wounded in shooting at Lincoln University in Pennsylvania - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPc3lQNlRHVEV3OU5WSHlZMElHQWZOS2dQRkVVNDZ3VEl0WFBpTjZnS0ZoQWhYUWtHalk1cDRpSzdnOW0zekZNYTZtYzFRNDRQWWxtcnAyX1V0ZWNSZXk5RDhnZ1BKdkdIUTRxbTBkNGd1bnoxdEVmVzdsb19GcllTeDJqdzU3M21wSGk4YkluUGZXTDVVWEo4Y1ZnVldFUmw5UVlaYzVUVVV4ZDhvSVotSndR0gG3AUFVX3lxTFBXTHdwVjViUTE2OVZPdkhqS3BUUjJ6T00xR1N2bHpkSl95NHYtZDZXZDVFSElNel9zQThFZXI3TkVMcUhPaHpWdVRDWWRpb3JrRnFIampXTGlmOXJQTWd4elVWb01abktLZDhvVWF1a01ObmhTLWNBTDlfRXlBNlBCVXdzX1R5Njd2cDRRTVhhZi1scng0MjFLZ0pEaG4zc0Y2ZmdYa3JHcGFpV3ZlVVFyYVFqdzFjVQ?oc=5) |
 | Inside the final stretch of New York’s wild mayoral race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNS1NaVXI1MXRvS1lFT3NMcEYwZzhWNXFJS3MwWVRWakNHbnktY2tmMlBVeDVLVjEtZkpNY0JZSlRwR3plS2p3R0hVU1Q5VnB3WTlIRGVLODlzOUNKV0pUMnhuT1FfLWJuenphOW5NcWdpcGhlOGJXc3VhcWVRcUp0Xw?oc=5) |
-| US Department of Agriculture says no food aid benefits will be issued next month - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNWUVhalFfTXRIa1J3ODEwajBDWEZwNHRtRGlqQ2pCdXY3UWNkOVlxWmVIYV9kOHpJUXo5ODQxdE1QNEJhMG9jc0psakxXbHhWamVPbDNlWTZGdUhrVHZoR1JkOURWNGZJRktUdzBTMnlwZUVKTVRPVDhGR3lOaVhSaEhEdm14U3NjN2FFSXlHZ3dhcGY5SEkwZW9TcXh0TDNUMUNrRHg1UGowUTdJQjd0RVNLc05IYW9BNWd2TW5zZw?oc=5) |
+| Food benefits set to expire for 41 million people as US shutdown continues - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQS1ZXTkk3WnlZUHR2am9FUklTYXF4RkRYOVNiaGlaVXU1bzZ0WEw2U3ZhTUxGWWU2dUNkOHozdUk2VHRCMERaNzZuVmlfbjBCS1NsbVQwWmcyLXBOb1VCWFVOYnNWeFJYRDJiWWxqVHg5ZlpzX0NXVWp3dkVpRzNadV9FaEg?oc=5) |
 | In Trump-Friendly Iowa, the President’s Policies Have Hit Hard - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5ubEdVLUlpdHNiS3JHMFpHaHVMNEdoQXB4dWRjdHFOc2NlTkRvM1FfbmM1SUk4ZTZUQ19oNGExbWhzS2ZPNHhvRjdGOWtkWGkwZTRmdDl6enhpMzhfOVI5U0g0Z1drSFVnUmZQV0pORnJnNTVUU2xWV1NB?oc=5) |
 
 ---
