@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 23:48:48（北京时间）**
+🕒 更新时间：**2025年10月27日 00:00:05（北京时间）**
 
 ---
 
@@ -13,9 +13,9 @@
 | Reform MP's comments about adverts 'racist', says Streeting | [阅读全文](https://www.bbc.com/news/articles/cd7rg7wjvgvo?at_medium=RSS&at_campaign=rss) |
 | US and China agree framework of trade deal ahead of Trump-Xi meeting | [阅读全文](https://www.bbc.com/news/articles/c1lqj5lz4geo?at_medium=RSS&at_campaign=rss) |
 | How the nation lost its appetite for Pizza Hut | [阅读全文](https://www.bbc.com/news/articles/cn97vdpv13wo?at_medium=RSS&at_campaign=rss) |
-| The best time to turn on the heating – according to you | [阅读全文](https://www.bbc.com/news/articles/cgqly9ynnd4o?at_medium=RSS&at_campaign=rss) |
-| The 'heroes of Kharkiv' who saved 48 children from kindergarten hit by Russian drone | [阅读全文](https://www.bbc.com/news/articles/c9q1w9ypl8jo?at_medium=RSS&at_campaign=rss) |
 | Dr Chris and Dr Xand: Four things we changed after hosting a health podcast | [阅读全文](https://www.bbc.com/news/articles/c98nd0d61d0o?at_medium=RSS&at_campaign=rss) |
+| The 'heroes of Kharkiv' who saved 48 children from kindergarten hit by Russian drone | [阅读全文](https://www.bbc.com/news/articles/c9q1w9ypl8jo?at_medium=RSS&at_campaign=rss) |
+| The best time to turn on the heating – according to you | [阅读全文](https://www.bbc.com/news/articles/cgqly9ynnd4o?at_medium=RSS&at_campaign=rss) |
 | 'Brothers in the forest' - the fight to protect an isolated Amazon tribe | [阅读全文](https://www.bbc.com/news/articles/cjw92x915xlo?at_medium=RSS&at_campaign=rss) |
 | I watched my stolen phone head to London, Dubai and China | [阅读全文](https://www.bbc.com/news/articles/c620zw40xryo?at_medium=RSS&at_campaign=rss) |
 
