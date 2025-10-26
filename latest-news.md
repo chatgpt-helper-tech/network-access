@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 11:49:55（北京时间）**
+🕒 更新时间：**2025年10月26日 12:01:09（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump Announces Tariff Increase on Canada Over Reagan Ad Spat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOREZ2dF9QOGZnME9jQzBldEpqdE9MQVJmNXFDd1RNLWI4cE4weUhEOWs4R1luN0FOOThFTWdHc1hkQzlOMWNoVVZ6T3o5NlRLemEtVFJJcGxRV0RoZVJDS1FxQmM2OGJRMFBNU3RxVFRMT19XSmQ0MWJYRzNsWlN2NVl3?oc=5) |
+| Trump to meet with Xi as he travels to Asia to contain trade war - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQeWpvUVpBR0hxSGpsOWpxUkR0Z1dhR2lBSWMxbko3S0JtNEtOTlpEYlJPa0ZITFlDUGFWOUFZbmxqdi1za0NnUFZJZmpDVlRzeTFpaGVDSjREbGM1RE85MVhGSm5vT1FlUnV3UzFqOHk4R0NXWTY1ZTN5b3g4RWp0YmFGTmpZWGdGN0RfSA?oc=5) |
 | The White House movie theater demolition ends a storied era in presidential history - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOMi1ncG02VjNlX09wQk9mbDJ5WlhMUmtJc3I2Mm5VMktnRFVPLXpJZUxKa1NlWDR1SG1Ma1lvRUtqSlRyX3dPekM5WHVMUGdMMWRpbURjaXBORThZUV9fWGIwbFFIVEVHaE43bEM0cXNwMF9USzZwUF8yN1pqV1QxdDdsaVZ6a2lkNmFvdEdoZG9RRWdiN2x3ZVR6YzhTOVU?oc=5) |
 | Hurricane Melissa Forecast: Catastrophic Danger For Jamaica, Haiti - The Weather Channel | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPalUwMXgwMXVhSXVMd0pMb0V0cDVSRnlRUjN4aXFFZ1BHSjNBTF8wSGFLXzBBYjBiUEdnLVNDVDJSRURXVjBjYWJ3Mi1JZWVyTmI0UU1ablpveWl6b1B2Z2N2MG9USWh1REFPYjFOME9lWEhSaTZxRTg0TmpkbVR3dThOc3VJRUxXMWtMUzBqLVYxOTNabU1zTXFidjR1b2Npc1R4alVJNTU3NlJl?oc=5) |
-| Trump to meet with Xi as he travels to Asia to contain trade war - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQeWpvUVpBR0hxSGpsOWpxUkR0Z1dhR2lBSWMxbko3S0JtNEtOTlpEYlJPa0ZITFlDUGFWOUFZbmxqdi1za0NnUFZJZmpDVlRzeTFpaGVDSjREbGM1RE85MVhGSm5vT1FlUnV3UzFqOHk4R0NXWTY1ZTN5b3g4RWp0YmFGTmpZWGdGN0RfSA?oc=5) |
 | This mysterious billionaire and top Trump backer is behind a $130 million donation to pay troops during the government shutdown, report says - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQemdWMUlpVmVBS196a0ZGZXR4d0VkaHl0WS1OT3U1YWFWT2cybnZFNXV0amxjUW1pMl9qdnRwSF9rVXE5Z1ZXWEEyZVJ2ejZtRWFmXzFwRXBzTmVfdU5BYmlVQVR2TU8xcWw0X25IYXlxWVpadng0cWUxMGZhYUNyLVZCVXZoMzlfNEFJeUJQdE1Lc0VSaExoTjdEb1hTb0NmWFRxOXd1SEM?oc=5) |
 | Kamala Harris hints she is ready to run again for US president - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOTzlxUWM0U1JHNC1nX2pwY3lma1dyTk9qem1QbXFGWTJ1SHctSVc0V3FySlBFT1hWRjFUaDJJZ2RrTEhwVWU1UlllNngxeXRvckg1WjAyZ0kydjd1aHYxU3A1dEZyaG5BSmV6dzdUbGMwODFjTy1vdmxuS0ZxTlhfTw?oc=5) |
 | Honduran man killed on Virginia highway as he tried to escape ICE agents - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOTk5qRjBZbmlKUjM0M21RTWNWODhiT0FJeGFDQ3ctLUJNcGRmWmN5WWo1ejZiVmI3QnZncm5mMElvcjNrSEpHMnVta2E2aHRDUnFYd24xZGFmM1VXYWp2MlpEc2UyNTJuX0hDZkN4MUs2MmhRRkFQR0llendyUFRZd1NySmo0OE9VOW9vSTd30gGTAUFVX3lxTE8xa2ZJMmJnMEFqX0ZwX1Z6cl9RQzl1dFppYVVuUGx3ZkVHMlg0d2g5ZG1pdUVLekhvSnBaTzgteVNKOHNaLThPT3h6VTQwNkRIZ1Jhd0VQYllSM3BGTnVZenVfMUM5bWFzWmFrYW51ZWc3U2ZqcGF1MWRBR19GMXFReXZYbGZYclk0M1laeXlHNXoxYw?oc=5) |
