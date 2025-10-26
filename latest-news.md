@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 01:13:43（北京时间）**
+🕒 更新时间：**2025年10月27日 01:25:49（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | 1 person killed, 6 wounded in shooting at Lincoln University in Pennsylvania - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPc3lQNlRHVEV3OU5WSHlZMElHQWZOS2dQRkVVNDZ3VEl0WFBpTjZnS0ZoQWhYUWtHalk1cDRpSzdnOW0zekZNYTZtYzFRNDRQWWxtcnAyX1V0ZWNSZXk5RDhnZ1BKdkdIUTRxbTBkNGd1bnoxdEVmVzdsb19GcllTeDJqdzU3M21wSGk4YkluUGZXTDVVWEo4Y1ZnVldFUmw5UVlaYzVUVVV4ZDhvSVotSndR0gG3AUFVX3lxTFBXTHdwVjViUTE2OVZPdkhqS3BUUjJ6T00xR1N2bHpkSl95NHYtZDZXZDVFSElNel9zQThFZXI3TkVMcUhPaHpWdVRDWWRpb3JrRnFIampXTGlmOXJQTWd4elVWb01abktLZDhvVWF1a01ObmhTLWNBTDlfRXlBNlBCVXdzX1R5Njd2cDRRTVhhZi1scng0MjFLZ0pEaG4zc0Y2ZmdYa3JHcGFpV3ZlVVFyYVFqdzFjVQ?oc=5) |
 | Transcript: Treasury Secretary Scott Bessent on "Face the Nation with Margaret Brennan," Oct. 26, 2025 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNZXdzT3gya084Tmd6dENoYmJwUUhvaVBmSHhqdU53WFJubU1lSWV2RXd0ZExiUWE2MURFWS1xNEEzQ2ZUUGNuUk1GQmtNX1owcEZfOE4zVUgzU3UtZy1abk15dkZ2ZW9oeUVfOHhVdENxTVpNcUZSVjdOUG1PX2dpTUlULUw3T0gxZ2dDWEc3UDQ2WXA0QlExVV9rUk9yZS1RbEHSAacBQVVfeXFMT3RHb3E2TDBBYXpJSmprUEJIcWFvVmV0Vm1BVXhDY08yTi03Q2wyckkzYzlwR0NwUnZ5MVp4S2NSbnBweFRBd09JbDZSc04wVGFEYmhobjUxek9XV1FrM2t4cGFaTk5FTkZFaDg3Wkt6UmR4M0tTeU1fdDUxbUMzWTB6WWt5RndrbkR3b1VVRUg5b21Jdno0VGZSRTcxZGl6V0cxVG5iMzg?oc=5) |
 | Inside the final stretch of New York’s wild mayoral race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNS1NaVXI1MXRvS1lFT3NMcEYwZzhWNXFJS3MwWVRWakNHbnktY2tmMlBVeDVLVjEtZkpNY0JZSlRwR3plS2p3R0hVU1Q5VnB3WTlIRGVLODlzOUNKV0pUMnhuT1FfLWJuenphOW5NcWdpcGhlOGJXc3VhcWVRcUp0Xw?oc=5) |
-| Food benefits set to expire for 41 million people as US shutdown continues - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQS1ZXTkk3WnlZUHR2am9FUklTYXF4RkRYOVNiaGlaVXU1bzZ0WEw2U3ZhTUxGWWU2dUNkOHozdUk2VHRCMERaNzZuVmlfbjBCS1NsbVQwWmcyLXBOb1VCWFVOYnNWeFJYRDJiWWxqVHg5ZlpzX0NXVWp3dkVpRzNadV9FaEg?oc=5) |
+| US and China reach ‘final deal’ on TikTok sale, treasury secretary says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPNjA5VDhDcnZvRE5VaGQ0ZnhfczE2ZC1GZFJNbm9xcWo2N1VZUnAzbnFUZ1BUVkJsa2gzODQ4LXdnYVhPeTZJOGtXM21zYlpzYm9vd3BLSm9jSFhkVllJcHhpRUladHdqOGcyZFFGQm9IZVVJR0xJXzU4U2Z5Wk1IaU93UWdsLXRFTFF1ME9R?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
