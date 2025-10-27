@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 04:36:34（北京时间）**
+🕒 更新时间：**2025年10月28日 04:49:13（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Indiana’s governor calls a special session to redraw the state’s congressional boundaries - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxORmR1TTcyZnhjS0dvdkl0LWpQUDB5cEJpb0xYYmxGcmltNHNXb1RhZWl6dE4wU3FPeHBpN2JfZHBWNkU0WVRLbmNkclNBdGhCdGdSa21tYmNzcDVpa0lVQ2JpSlVmVFdqSklQanA5Y1pxNWU3WU5maGNwYi1PZ2ctc29NcFo4MlBHNW5ReXl3c2Y5ZVNKWkVWQm9yQ21TRXVwelBhRDJR?oc=5) |
 | Flight delays persist Monday as air traffic controllers face work without pay - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPQXlJVHhlOTRiR3JBeVZWNHdweUhCV2pPR1ZKd0lxNV9vbHU3X0p2d3ZhNndPRXdHbzR2R1lzdTZJbHBRdkVWaXdRcjhfdDJWRlpuS2k2X0ZLeXZFUGp3YzYycUpWVVBjQ2NjMU5NVUJMMGxmdjFPc1c2UXY4NU42OERrcEc3VkNLT2JieEdzenRSUVVSMEJMakhn0gGfAUFVX3lxTE9FRzl3cG5INVM0NmJ5YTk5WDd2LVhjV2xYMHRYbTFKYUFwVzJhUEFGUVc2NmFERzRRdC13Skk3YWNQcGtJeldzZVRHcVUyaWNIV2lSTTFQRFdTUW45QTI4a0VUS1NKX3NlNWpOaXRuekpxdFRHcFRvSk95RHZOcDl4dlRWSlI0NVl2XzBVd0w0dXIzZWpNQms1LXUzdzJiMA?oc=5) |
 | Political peril spurs Trump to act on beef prices even as ranchers rage - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxNZjlnUDZVbGNuQW1HUjVRZndZOWgwUE9teGxPUy1aVVN2UTdPQkRVeGtROWdsWllwcnpJTHRlWFIyTXo1REt1V3c1a0lNdTB1WXNYdXFDMDIzZkRlWTNPOHVUT0dsRXJZQWFBNlJ6cm03b1I2VVdidnlualdJYzR4Tk5DZTlJbUd6Wkk3QjA1UlNWbXVEX3lmY1pIckRVdEkxLVpQUXg5LW9QRW9vYjZ0c3gwbm9EdFN1SkJzbVpuYlVqb1U?oc=5) |
-| ‘No Idea How Long People Can Hold Out’: Federal Workers Feel Brunt of Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQRDhmYzE4cC1hd2w4TWxnZGRQR2JIZHV6R1AzTTd3WEtWbmVLaVdxRjBVZkxOQnR0Q0RnSk5BdWRhdUNDdVNKMGc2WFE2ekw5V0RHVWZtaERQVFVkRzJiTXI0Mi1yOGdEeFRscGJ5RXRObDB1eDB2UExUemVSN3JXX1ZyMjRxOUk?oc=5) |
+| Here's what federal workers should know about getting retroactive pay - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1rMXBySjF0cWFOLXpNckpySHhoMVlJakVSTDZTR3lKUXFocGtqT3BKdURnc29QMTJaYld5eTNWeHlmLV90M2hreld6bThhSzh6UzF1ZlFoRkwwVVRMTF81UmZtcmdxcy05bmtDLWxkcnVlY3czVnFkclFwZDE3QzTSAYQBQVVfeXFMTmxCTXpEM29UeDQxRDhMX3pIbDNKWFl1QVRIaWJCOEQtSkItZXdSeDhzM0JTVldORHVRcmZxckxRZDlGTmhqcm5HLUtpSS1SMWVBeWFQblJlTGZQa1NZdlY5eTlCYnNBWloxZHU3VWllbzhsOWpxZkxoT0w4SmFkV1lkeng5?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
