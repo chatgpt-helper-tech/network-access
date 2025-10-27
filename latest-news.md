@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 11:37:15（北京时间）**
+🕒 更新时间：**2025年10月27日 11:48:05（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Trump Leans Into Showmanship on Day 1 of His Asia Trip - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNT3NINFM3ZVV3bWRSV3BsSi1UWFBQSFB6S3Jxam1sdFZvQWdxZi1tSHI2TzB1bWVUQTVCaXRmcWZmaDZtY1BwMGdidHNvLVVUcTNiRkpFdHdFZ3plYnV6R0ZZa2pKSTRldHhEajM1SWljSVdtUlBvckdCemR6R0N6cUh3?oc=5) |
 | Navy helicopter, fighter jet both go down in South China Sea: Navy - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPUkFKWDlXZVE0eUw5SFdkdjFKTGFYSnltMW44Tm12RDFTVmt3TTZibTl0Wk94T3hlOVVuSmFRUEJKMHBjUWd5MmVuTDg0a0hxNDJHZnRqS2hRNEpyYkRHaWZqRFI4Wk1za2xhbDQ2TmRyMEN5RE5iNDB2NE96MlJJUFV5cnZMTHJtMXY3ajY1cFpqZDdsamVwQ21mV1lzQ1FtOXpqUWhINNIBrAFBVV95cUxORG5XdlZZRDEtUkdkQm9ocXlhV2h2czVJV25xM1YxblhmYTE1WW5KWnBrRW1pa19sR3pGSV9SU3lBdmxwU0R4al93emlPaXpQV3ROOWpKdzhMbjBvSlJnSUZBeVpEY1U1ZVlpVk1jTlVrV2l4dkl2d2d4Sm1oUUxTVGVtaU9Bd0M0MTZPeWEzT0VQWmZjY3pFdWRVNWhXSlM4dDJlbUhUeEVqSVhn?oc=5) |
 | US airports report over 20 air traffic controller shortage incidents in one day - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOdGpSaWxUMWFFMW9ZU2loY2lUWi1mY2R1dkxwVU9vemdCZkVUZ0UxMXpKaVg1cy05Zm4xZXRxTHVmbUtBRlIzSU5lU0pHU0Y5ejI4bFJDZXc3aXJOZEtLLVl2Q3ZQa3QyS2xsMm1LSnlSRkJ0bzRuMHR0SzlxRHhnMzU2MDZLc1R1ZFBiU1FMV3BqTlU?oc=5) |
-| One killed and six injured after shooting at Pennsylvania’s Lincoln University - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNTUxoQ2JJWm9MQTFEM2QzWWxnTFpSWFZLM2hOQVlvSTU5a3JDTjlFdmF6dTdVdEdkT1Q1cC1xalNyb0lLWmJhRGJlZ3kwUGlTOHhVYktHaERyNnpncEJ5TTNCTWFYZ0VxamQwaWJZNVVIM09nWDc4TVBnYllteS1DbTg5R1RTY2NWZFZVQnFFOE9wQQ?oc=5) |
 | Federal food aid will not go out starting Nov. 1 amid government shutdown, Trump administration says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9HenVNSXZFWVhuLUtlZVpXdXlSTS1IYUJrVW5LMVVveC1laDhBaW1pY2VLTzd1R1NGb1JVRFJsYU1EMERzSlozTmFpeVhZUmUyZmlSRkVrQmV4TjFkbElydk92dlpkdTZrS1Fvb2JKbFpIUWhE0gF6QVVfeXFMUHlSWmNTcFV2RTk3YklVdE9RMHJ3TUUxMEszTHJUelp2X3BMTW9TNU1mVUg0VUMwQVpNSnJHLWJpdUVUZ0RHZ1g5VzVPY0FjSTZQQVdxUWVCb09aXzFoSzV1Tms4UDVQUE94RlpaYkd5cUhkbW9taHFOc2c?oc=5) |
+| One killed and six injured after shooting at Pennsylvania’s Lincoln University - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNTUxoQ2JJWm9MQTFEM2QzWWxnTFpSWFZLM2hOQVlvSTU5a3JDTjlFdmF6dTdVdEdkT1Q1cC1xalNyb0lLWmJhRGJlZ3kwUGlTOHhVYktHaERyNnpncEJ5TTNCTWFYZ0VxamQwaWJZNVVIM09nWDc4TVBnYllteS1DbTg5R1RTY2NWZFZVQnFFOE9wQQ?oc=5) |
 | Column ｜ Before Trump gutted the White House, Erdogan built his ‘White Palace’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOamwxaTQ0ajJaMDJrdFhwVUFWTDQtT3JWWE9RQWh0SzgxZWFraUdBWVFueFhNYkpGV0dNa0p6dVpVZmpYSFBKaXpGQWxCQUctYV8wTmpXTXE2bUV6NGlzZ3JxUmRWZzlvc0lGLU9KTHZONmdOQlVqNWpzSEcwdE5scWFkaVZkenE2V09HSmN3MldyN0Y1S3lILXB4dDlsemZO?oc=5) |
 | Man fleeing immigration agents is fatally struck by a vehicle on a Virginia highway - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNLVFTTFcwakR2NkFNUFZHVFJZMGJGRHBmSTNXaE0wUXN2eFRieW9QWS1oUktjUVUwR0RxN2lGUXVuNXhYTlpWZVJKeExETUFHTWtVLWNFc3paVklObDh6aUVfc214c1E5M0swVVNZeUVvVVNkUEZ0VlBhdGJjLWdMUGZ3N0R1aklIaEVCS3hUNmhuWUJOenhhcGd4alYwY2x6cnNZ?oc=5) |
 
