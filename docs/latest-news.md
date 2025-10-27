@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 03:36:55（北京时间）**
+🕒 更新时间：**2025年10月28日 03:48:30（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Sidelined Russia flexes muscle with missile launch — and Trump is not impressed - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOelloWE1MVWxxWE9jY0hZdUR0TEFSTjVZU0xaRWJnclpjdlp4YjQ2dUdKc1FqNGY2YkdtcHJtdWEtSWlLS0pjam1PRUtFTHB0c0g3Z3NraGh0cUllQjB1VktVLVhCVUdXb1NnRV8wdEY5Z2R4SFV6azFjNUVneUp5ZnJsZnBVRjdVTHFqLdIBkgFBVV95cUxNRl8zeWRKa3RvMks5OXV2aDViNEZnb1R4R2ZCXzl6UDRWUnJXeGM2eGx6aEVpNXVtbi10Vzluam9ORXhXWklpS3JPZ0tmeEF3MmF6Q2t4M0RZVnBGamJ0SXBKZmZFUjljVG9TM2dZeHhBUmVxSXNqS3B1dEZXWG96aHlwOE1ia1hhbWFrQzNETFJkZw?oc=5) |
 | Indiana’s governor calls a special session to redraw the state’s congressional boundaries - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxORmR1TTcyZnhjS0dvdkl0LWpQUDB5cEJpb0xYYmxGcmltNHNXb1RhZWl6dE4wU3FPeHBpN2JfZHBWNkU0WVRLbmNkclNBdGhCdGdSa21tYmNzcDVpa0lVQ2JpSlVmVFdqSklQanA5Y1pxNWU3WU5maGNwYi1PZ2ctc29NcFo4MlBHNW5ReXl3c2Y5ZVNKWkVWQm9yQ21TRXVwelBhRDJR?oc=5) |
 | Flight delays soar past 2,700 as government shutdown hits Day 27 - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOTnNPcWx5MU5HTk50X2dTQm5Tb1ZmWnNBMTN1b1N2bHNIejBqa0pEMHBYQ19KS0UzX3Y4bnp2U2I5SVB5NXZBV0NzYndGQVVIcGVGT2pPc0laOFdIR0k3b1VaUWt1dlFjdFBsNUczMlZfbHo4aU9fX0ZfdVcxMGNGbERVZFR2aHdQcXg5WFRCcVdvSU4yMFVCMzFvRTlGNS1NYmFTRkhrRXRNUlE?oc=5) |
-| Political peril spurs Trump to act on beef prices even as ranchers rage - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxNZjlnUDZVbGNuQW1HUjVRZndZOWgwUE9teGxPUy1aVVN2UTdPQkRVeGtROWdsWllwcnpJTHRlWFIyTXo1REt1V3c1a0lNdTB1WXNYdXFDMDIzZkRlWTNPOHVUT0dsRXJZQWFBNlJ6cm03b1I2VVdidnlualdJYzR4Tk5DZTlJbUd6Wkk3QjA1UlNWbXVEX3lmY1pIckRVdEkxLVpQUXg5LW9QRW9vYjZ0c3gwbm9EdFN1SkJzbVpuYlVqb1U?oc=5) |
 | Navy loses 2 aircraft from USS Nimitz aircraft carrier within 30 minutes - KOMO | [阅读全文](https://news.google.com/rss/articles/CBMi-AFBVV95cUxNcU9yQTA2QTVsOVNIbnBWNG9uVy1tTDlpdmZUdnh3alVOWEEyanZqVFJUNWplVXVWcGhYT29Icnk3VS0zUkd5S2hzeUVoaWZ6M0tiRVp6cUdIREFPTWlkWjhGRE9EcktqcTlIYVJFdFpPNmJtdVRYUjlHeHVRRDI5LWlPYWRDb2R1QmVqN2ZEaXZVWGZtY0dTWjJQUFZuMmloUlhWd0xDOXhSNHhYWTJweFYxS2l3WUY4ZWVXV0ZrNFBja2xwMm1kMjhhZVNHU0k4VHpudjIycDBlSHlXSzlPNWZsZktBb1RJUEl3dmdQOTFndDg0UTNIcA?oc=5) |
+| Political peril spurs Trump to act on beef prices even as ranchers rage - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxNZjlnUDZVbGNuQW1HUjVRZndZOWgwUE9teGxPUy1aVVN2UTdPQkRVeGtROWdsWllwcnpJTHRlWFIyTXo1REt1V3c1a0lNdTB1WXNYdXFDMDIzZkRlWTNPOHVUT0dsRXJZQWFBNlJ6cm03b1I2VVdidnlualdJYzR4Tk5DZTlJbUd6Wkk3QjA1UlNWbXVEX3lmY1pIckRVdEkxLVpQUXg5LW9QRW9vYjZ0c3gwbm9EdFN1SkJzbVpuYlVqb1U?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
