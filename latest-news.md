@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 13:25:31（北京时间）**
+🕒 更新时间：**2025年10月27日 13:37:48（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Argentina’s Javier Milei secures big victory in midterm elections - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9RSUZZQmRPVERLV09TVG9FSjgzeVR3eTBwd2xYY1p0UTY3Y0xOV0hXcnRtYzZFMURnRDNDU3Nxc3BKc3BCQTRIc0Rsc1pWcVVmVGJMVXExMEpsV2JGdHlWUUp1bzZTT3Atb3lKTEZSbXQ?oc=5) |
+| Javier Milei’s Party Triumphs in Argentina Midterm Election - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZXNkbTVpQ0RFdDlxZ1RPRFpuUE0wekh3VHB4aWtWV1hsNjRvN2tTeU9KWUUwMDF6dkJVNHJSeHdadC1QUEpsZGMxYlY0VG1hc3lIZDR3dkdDVkRVQV9ubnJtWkRvQlRJNGhZVUxFZWVZeFY3a3Y1NXM3Y0lROTJUT1gxYWtsOFlzQnhVYmRKbw?oc=5) |
 | US and China agree framework of trade deal ahead of Trump-Xi meeting - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NZkNWS29LX1paeU5FeE94MTNmNTV5aXhoNjNuRExMNzJkbTRIMnVka3VXd1MyWlNyemhnVm5YajRUaFEySUcwOUhuYXpJTEZQT1lCQmtaMFkzQdIBX0FVX3lxTE05UV9PX2RXRlA2OFpUeVY4M3hNWm9sSWw3akVQQUM1RzBGLXlERFJ0UUlqckVaLXFLQWJoZUt4OXRzYXBoU29ERks0ZHVGWlNzZGk0TlVESGxWVU1PWTNr?oc=5) |
 | Hurricane Melissa strengthens to category 4 as evacuations ordered in Jamaica’s capital - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPYkJEMXIzdzJtRExfYnJvWVMzUFJzYTIzdTRrb3d4ZVl3eTNVc0JhZi01My1LQ284c0N5QzloQng2LXE3X0NtNkFSZlBZSFNBT19XeVRoVEFIcDVCMTFMWjdCcU5WbjZIZGVOekhCYkpYb0xWZWxFeU9QRXJNN09qVVFJc29iQWRtSWRpYWlfaTJJRmV5MHF5MU80T3JsUnh0TDFxRXdUZXNCNVFtajhZ?oc=5) |
 | Navy helicopter, fighter jet both go down in South China Sea: Navy - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPUkFKWDlXZVE0eUw5SFdkdjFKTGFYSnltMW44Tm12RDFTVmt3TTZibTl0Wk94T3hlOVVuSmFRUEJKMHBjUWd5MmVuTDg0a0hxNDJHZnRqS2hRNEpyYkRHaWZqRFI4Wk1za2xhbDQ2TmRyMEN5RE5iNDB2NE96MlJJUFV5cnZMTHJtMXY3ajY1cFpqZDdsamVwQ21mV1lzQ1FtOXpqUWhINNIBrAFBVV95cUxORG5XdlZZRDEtUkdkQm9ocXlhV2h2czVJV25xM1YxblhmYTE1WW5KWnBrRW1pa19sR3pGSV9SU3lBdmxwU0R4al93emlPaXpQV3ROOWpKdzhMbjBvSlJnSUZBeVpEY1U1ZVlpVk1jTlVrV2l4dkl2d2d4Sm1oUUxTVGVtaU9Bd0M0MTZPeWEzT0VQWmZjY3pFdWRVNWhXSlM4dDJlbUhUeEVqSVhn?oc=5) |
