@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 23:25:52（北京时间）**
+🕒 更新时间：**2025年10月28日 23:36:49（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| U.S. strikes 4 more alleged drug boats in the Pacific, killing 14 and leaving 1 survivor - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1PNXQ2RkY4VzJSeExfZTlFNEptYzQzT3d4c0FXR1pwSUtKZGJQdHVkZGd3UVBOTHVNTDQtUVRkYjZXaEdDLVhuZXVXN0dNSDlZcklRVnI2ZmZsVWxZV0JCVmhjRFppWl9Eam9qcHUyZ0p2ektrV2fSAXtBVV95cUxQc3BueDBQU0pBcDJMNDlUcWhWb2gxY1V1MGhidEdwVnZUaWMyYkoxa2M4U3dDMldac05qSGUtWlFCU1R2R1JIQ090dUVGdlZjby1NZXB2NEo4LTVNM1BGdC1HdXVmdkJJUTNVWEdza1JtZWZOVGU3cFFKV2s?oc=5) |
 | Hurricane Melissa live updates: 'Last chance to protect your life' NHC warns - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPckd6LWZPNXJ6Q1VfaktvLXNFTjVEcHA5T0pGVkRsR1RQdUU4RGhTRXFBTVVBTVN3T2o0bkIwZHl3d0xrcE02dWNkVVZBa1lzenhiMG9kWTBPTmRRcEFTSWdURXVzUFdIa1FfaFRaaGJOWnlSbzBWS1lYM1dHZ0lFVUd4enhEVl9wTzZwbUlYWHhxdjdJNjV1WG1USnJycGx1dzZhYTMyUEg?oc=5) |
+| U.S. strikes 4 more alleged drug boats in the Pacific, killing 14 and leaving 1 survivor - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1PNXQ2RkY4VzJSeExfZTlFNEptYzQzT3d4c0FXR1pwSUtKZGJQdHVkZGd3UVBOTHVNTDQtUVRkYjZXaEdDLVhuZXVXN0dNSDlZcklRVnI2ZmZsVWxZV0JCVmhjRFppWl9Eam9qcHUyZ0p2ektrV2fSAXtBVV95cUxQc3BueDBQU0pBcDJMNDlUcWhWb2gxY1V1MGhidEdwVnZUaWMyYkoxa2M4U3dDMldac05qSGUtWlFCU1R2R1JIQ090dUVGdlZjby1NZXB2NEo4LTVNM1BGdC1HdXVmdkJJUTNVWEdza1JtZWZOVGU3cFFKV2s?oc=5) |
 | Some Americans prepare for halt in SNAP benefits: 'I’m going to have hungry kids' - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPOF9JSXR0Ylp2ODZuVVJpcVVjSWdvbUpfWUxQdmM3cWhEUmFFNUpUT2xCM0ZvOG1YaUJ5ci1KY1o4RWVIWVJtaWFUNF9Hd2lfYXVtVGIyX1RodmNmSjY2eG01SWtsdkVkM3puUXpHdTlnUVMzQUFNbHVyVm1oTjA4TnNnUzdlSVJ3VV9UTUItR2pHeG9vOEZTMExkT3RTdko5YmfSAacBQVVfeXFMTXFLWFY5ZWk2TUNjSFl4Q1VaMk1GSktOY0ZWMTFVZXM5Rk1qV3NYX1FGY2RzbHp4WWNGTHFxRktOR1gzMzdSSXlENi1RNU5kRkQtdXl6RldGd3U5UjlHTkFGRGVXWDBmVEg4ZTlsVEo1eEJrZF9IUHdOdTJGM3BMMVNpakVIRTdnMkRzR3E5c0hTVGVqdzdlN1JWOWhQQ29ESjl2b1hrcDA?oc=5) |
 | On the Menu for Trump in Tokyo: American Rice - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOdlFwVHFqMjh3T294SDJ1dWdZdmhoSGRFbFZ6bVdmWHZySDJyU2VGY1VQc1JTUXd1TzhyWU1sa2FOTHNsOVREWnFhdFlWazJiMnk4VTJ0aVVnYW12ekctQzdFd01wT1AtNnFpWjVkS1A5STI3ZWU1c0VHMzNRa1JCcQ?oc=5) |
 | Oversight Committee Releases Report on the Biden Autopen Presidency - House.gov | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPNHNwUXNiRmdVNXpjeWRqMXhkSzRTUldNT09oaEw4dUF0QzREaUpMal9DQUpmSFkzUzdKeGhMMGpsUElHdXRBODRJVC1wVFVEZjloRnhRNXIzaDBoYlNqNDRxUlBuNkdWWmUtYWZZSDhBMWpMdzdjMlRFWVV0aVNEalpjZHJYTlJiLXF4dThDQkdOZUp1VE1acnphSTZVQ0M0MUNTcWttMA?oc=5) |
