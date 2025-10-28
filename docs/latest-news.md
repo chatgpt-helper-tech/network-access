@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 08:37:05（北京时间）**
+🕒 更新时间：**2025年10月28日 08:49:16（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Indiana governor calls a special session to redraw US House maps as redistricting battle spreads - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxORmR1TTcyZnhjS0dvdkl0LWpQUDB5cEJpb0xYYmxGcmltNHNXb1RhZWl6dE4wU3FPeHBpN2JfZHBWNkU0WVRLbmNkclNBdGhCdGdSa21tYmNzcDVpa0lVQ2JpSlVmVFdqSklQanA5Y1pxNWU3WU5maGNwYi1PZ2ctc29NcFo4MlBHNW5ReXl3c2Y5ZVNKWkVWQm9yQ21TRXVwelBhRDJR?oc=5) |
 | Democrats get aggressive on remapping congressional lines - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQUlJaSWpLSDN6bGlBdHVlNXhHQXE0M0ppWG9UQ281ZEgwRGxxYkZXNGlKRHhlQVd1YVdnMnk1YmM3UVNhODhqY0NuYmFPeFNFRWxiSHNSVjRUMW5ocnFtbGp2RFIzSk1oN3ViUjFJUzhpbEVSZ1dJQnZwcDRwQXFtdlNkbHAxSnVjUzc3LURJbTVwX3B6c2V3UUt1Qko0UEMyNUFWdDI4V2pHYkE?oc=5) |
 | Charlie Kirk murder suspect can wear civilian clothes in court, judge says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9Iazk4V1lkNkpOMEkzZlNnaDgwZHNPMjRYZVQ0bG80YTFZbzlKWUY4TXRuTUZVc1JSWG0xc1YtYXg3N3puSDlPbk8weFJQcllBQk9jNE15czF5d9IBX0FVX3lxTE5YZkFCSUNIeFlwcERxYTZJOE5yem4tLW5yWDJkN0lZOW9CQjdfZlVEVTA1THJ5d1Y5TVd1Y1NFU2hlNVl2N2xZbTdhTlVBeHU3SnJoVXotaG5ZMkZsWlA0?oc=5) |
-| Former cop charged with murdering Sonya Massey testifies his actions ‘matched the threat level’ - WBEZ Chicago | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxQYkVmLXdMcVZ3am96Q3FzbW92QndkdHBLTjZlOURucWtWZHNIVVBUT0VtYUZOWnFRamVtdENFd2g5NVdjakFZRk80Q3RJOURVTEs2LWhtQWdpZFlXR0lMcGtDVXdBM3BlRjZSRHNRczFUb2MzTVJrMmtDdHgxWjdHaEl3R1Q4dEMteGNldW1xdkY1blF2cjdqOEZDSWtuYVFRZGhpUEstZjVsbHhua3dDaUVJZWVxVTI1QkdYdldGOVE4bUthVllTbw?oc=5) |
+| Argentina election results deliver Trump-backed President Javier Milei a bolstered mandate - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOeTcwOEpQb1VEUm5NZzcxcUNTM05xSkdkV0ItQ0JzSWo2cGNUeHNSSWlBbG9ZZmp0cUZ0aUVRanJlZG9rLTdCaG41ZC1vMlZpZXBNMDNkUkVYTWlrY0NCeEpRbFZwbkFzVnBaOGo3QkVPWllPTTZ3MjQtOUZ2cTllc2FpR2RWeGdvVk1rN2YwVDIwRjN5QU9VbdIBngFBVV95cUxNR1dSb01kRTBTNkxrU2R5Wm1tcGxfRFpPY0RfNXN4VVBsUFE1bElNS3psNW1nVFFWUFhCQ1BaUGN6a1VQRmh6WmVVME5HMk9YVEMwd0ZhY1ZiQWd6UEI3MERYQ0FTM0tGSVRjLUg3N1JUMzgweW9UOWZIN3ljeVVFaDBUemRTQi1RT1RmY3RLdC0zSllJekZaWW0zaDVZZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
