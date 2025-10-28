@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 03:48:16（北京时间）**
+🕒 更新时间：**2025年10月29日 04:01:11（北京时间）**
 
 ---
 
@@ -15,19 +15,19 @@
 | Brigitte Macron's life 'deteriorated' after alleged cyber-bullying, daughter says | [阅读全文](https://www.bbc.com/news/articles/czr16vjk8zlo?at_medium=RSS&at_campaign=rss) |
 | Kate McCann cried during encounter outside family home, alleged stalker tells trial | [阅读全文](https://www.bbc.com/news/articles/cdjr2d8jdrlo?at_medium=RSS&at_campaign=rss) |
 | Councils paying school transport costs for 470,000 pupils in England | [阅读全文](https://www.bbc.com/news/articles/c14pg0xj7mzo?at_medium=RSS&at_campaign=rss) |
+| Russian forces gain foothold in strategic Ukrainian town | [阅读全文](https://www.bbc.com/news/articles/c620765wlxgo?at_medium=RSS&at_campaign=rss) |
 | Man charged with racially aggravated rape of woman | [阅读全文](https://www.bbc.com/news/articles/clyg636kdrgo?at_medium=RSS&at_campaign=rss) |
 | Pregnant British teen accused of drug smuggling in Georgia has sentence reduced | [阅读全文](https://www.bbc.com/news/articles/cwypqwn4epyo?at_medium=RSS&at_campaign=rss) |
-| Headlights to be reviewed after drivers complain of being 'blinded' at night | [阅读全文](https://www.bbc.com/news/articles/cn971jlpvvro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Jamaica braces for catastrophic winds and flooding as Hurricane Melissa approaches - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQMWFacWZWdFhsOV9PZU8yYlpqUjF3M2Zna0pMbExlYzJvRkdUUVNhTy1JamtyU0YxdEZIRy0wX1N3MGtrMFpIR2RCUjh6akgtOVpjdVBsckdmTHVITmc1U2Vidlo0bnBxOG5tM0ppWElNcFJnb1Ntei15UTNBejQwYlJUbTNqVTVFOFVvbC1QM2N6SUM0NEFSTEM0UmFsb1JfWWlTOEtVdjlncW8?oc=5) |
+| Hurricane Melissa: 'We're absolutely terrified,' eyewitnesses say in Jamaica - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBGUW5icl8wVGhXSW5UZG85U09OaGZaU2lHQmdhOFpieFhpQlBQMFh5c0ctSV8xVFRSVUFuakNiSm15czJMdncwOVpqQmtRclVtQTlDdS1zMHh0Z9IBX0FVX3lxTE1KUFVzRUxRNjcxWTZ5enBxZ0U2Qndabk9pcDNwemJRTDlQZXljV3hYb1Y2Zm1OUHV5YlA3X0tjTC1TenpfWUIwWGx5WjlLdzJEei1tZ3JSWnZ4V1V2S3d3?oc=5) |
 | 25 states sue Trump administration over SNAP food stamp freeze during shutdown - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOV2JaSWhiRHVxWHFBRFJoT3VLWGV2bmhqNzYwT0pPUVF2eEdHbGJTTVhVY0Q1MU9ESHVkMHcwc2RfVXJYWkNDUHowdXJPVFBvemZnNDBfNnhtV3M5RDNhNzNwaTc4TmNQMklmMTZJVDJEZE03MWo5WXdQN2VKbFFCdW9NU1VrdWZrWmU3MXBn0gGTAUFVX3lxTE5nRmhyNXpUSzNXNnVLc05jVVBGWldoeFNLWk1qdmRBSUxITGItN29NdkV1NXNYemZIc3NTaXlLdUdZSU52ekVEakJrcllPWVVub1JEaWxSLTVsN1RDVmpGb0FCUGw4c3prUlhIMEF2WTdtcnNhTlFURjVURGF5VUlFNHlESlBQWUhmTFYzTWFoRGdnNA?oc=5) |
 | Netanyahu orders 'forceful' Israeli strikes in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPUlJMNHROa3gzSFhRRGVmY0d0azNtbTJWTlptcm0yV1h0eXVmU2VsZ3NkNFBUZnRVYXh3RDM0V3MySm81eFZndkZkNVVrOU5NTGhaMVMtVTJySHVtWW1rZUFURWNPc1RCVkZNcGczbkVIMFhja3dOdGQ3bkRhc1hOQWdpbw?oc=5) |
 | Judge Blasts Border Patrol Boss Greg Bovino For Violating Excessive Force Order - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxNY3FPNUlmWXV2NEJaNlJUMl9FZkFlZWh1QkNtSVJaWFBEUHBpbUJuSnkyanFhdkNaa2NjVjVpTTRRRzFuaFF0TFpyYy00YTlTdzM1eXdsbkdDOGE2a2FDeXNHQUNzSmdJYmtyMWM0QXRmVG1zYm85cktPOGpVa2VHXy1iNmZWN2ZRT20yODNHOVdyOXJWY1JLbXp6cC1hdGFpWTdPdzVENEIzRW5rY1VhU193dGNVV2hFemZraA?oc=5) |
-| U.S. military strikes four alleged drug boats in eastern Pacific, killing 14 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQbm10WXhrbnBVVU1hYXczYl83WlBYc0stRURkU1RIQ3pfSnllMFpuT205NEMtSUZOcUVYdHRRN2RqSmlzZk9laVo5NlR1c18tMmQwX09FcV80cjBGejhXSXZyS3h4bUZMTzBUY3BQclp0a2JNZkVJcDVTM1gxWDE3cGtZZVZqNjJxWU9KTGIyLXk3Y1F5SnpLMHBqNWw0TGV3Nnc?oc=5) |
+| US launches 3 strikes on alleged drug-running boats off Colombia, killing 14 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPRVAtZkFnd2hTMXRYWjF1U1BFcUpWOU9NamJSMGd6Yk9Pd2gzbUJyV0RGNDRDOURZRmh5SkxhSGduazNkckZFQkEtdkRVOHpTaVNYcEpNcW50Q0F4ZWNkakl1dGJjNmJERGVBZXVYNHU2ZWlXWGxMWVZFOUloUnBCY3BTZEVjeW9hTy01TU80dWxRdw?oc=5) |
 | Democrats still not supporting GOP bill to end the shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQc0cwbTNFRDV5VW5CUHMtQk5qWFNnb012TklQTERMOHo3UXBuakVKWl9QbEh1NV81dGc2Z19GUGNsWmNWbFJNME5oaFpGSU9iYy1QSS1YRkw0XzBrbjIwWWYtMVQwb3NEMVBlVDJ4VGxTcU51N1F6TjFhbWNGR212c1dwdHZoWkI4d2VRVkhaOHAtNHRJNHo5SjNFbTdFNE1PQkxJdnZR?oc=5) |
 | Congress must act before FAA can pay air traffic controllers, Duffy says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOcUladlNlZVZxLU1qQWVkLVJIS0RnR2YxV0JTNkFkUG5YdnU4NlVtUGRRSzdMOG42NEc0M0NxSGlPYTVqanR1NEtCcjZTb2diVnlkSGtWaVFMUFRyeVB4LWEtQlNHWDhwN0FqSHk5am10QTFSYjBmTWU2aFJDUlFFNVZuZWNYSWJudWtmU21uNXFQWUVLcnMxOTlLSkxmTmhoSUZHNlB3Rnkzdw?oc=5) |
 | Motorcyclist wanted in connection with California deputy's killing is stopped by off-duty officer during high-speed chase - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOdTdSLU1PV3hIdFNoWnlVUUFIb2VfLWdWWjJNTUdxYWlLMzIwNGRHWDF1NkpFVlUzd2cyendBOFpENUh3OGJ1MFhya1lVbUFxa05yVGZoWmdidXNfbTBUd1dUU1BQRVhUU2hxc1piLUtDVm9nejFoRDFaNC1pdHZzeWNrZnFTV3ZXQl83ZVJ5bWJGYVB1WmtHSW95ak04WElyZ1d0NTZXbHdxZnBzbl9GeVJiVEl6QU1I0gFWQVVfeXFMTW0ycjdiQ0puUlZQSlg4X2xyclBnZ1NaUWwzekpQc2JWX3NyVnMwSS1ESWdzclFuVVJpZGRfMl9fSUpNb3d4eVVxOGtiSnhQc3ozWi1Wd0E?oc=5) |
