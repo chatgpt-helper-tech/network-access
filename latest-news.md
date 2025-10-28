@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 19:24:39（北京时间）**
+🕒 更新时间：**2025年10月28日 19:37:09（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | House GOP concludes investigation into Biden alleged mental decline - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQM0pMTF9vV1ZmeFMtamR3OVNmNzBKcEh4N1I0bHk0c2lTVzJmU1NVLVVMVVRRajBZc29USTNJd1FjOElXRnkwVjZac1Bqc2FHNjFBdXd3V1lpUkxZMlI5RFRaS1duN3dVZ3VtaU1TVm1qZmJUUHVxNEZjMmVCa2hUMlRqYVk3ajFOaXdZWHNwUURIZnJCWFFUVHBB?oc=5) |
 | Milei’s Win in Argentina Was Rebuke of the Past, Aided by Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPZThHRmdlMWhMaEladk9wS0xRbHpEQWs4cE9PdjNlYVVwaklrdzJpbGlibXloUnBQSU43RUJmcEN2QzNlMGtWSzg3N2dhTDBHMDdYZHc2S056TkxFdU5FbWpObWt3Q2NGaTRLZFI1dHVldFhaNE5NZDFWeThvTE9IWTZLZ1NzQQ?oc=5) |
 | Gavin Newsom explains more of his thinking on a 2028 run - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE51N0MxbV9DVzQ5Ti1FTEp1TVUxUkxuVXFkNnNtNGN0amtwOUg1aDlEOHB0Q3gxOS1kQ3BJa3Z3RUFqbElkYmpmN1BoZ25YV3hHTWlFYk1mQjh4VzI0UzlGajJaajQxZ2NqSHRfLU5jQWtURHlXem1n?oc=5) |
-| GOP gives up on defeating California gerrymander - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQNFl4Q0pYNnlLdGRyRFZnOVpsXzhzRTMyU2pNNDFtTlVzcTk5YjNlVjNrM04tQi1Rc3hLT1k0R2pPUTUzSHYxekxteGxmVUk3Z1VDbV9oN0psMmVqTmNyWjBNbXhSOGdaSFBDSUxvMFVHcVZjUkgyMVJKbkU4RW1LV2lFa2Fxem9yX05Oa1h2d21tUkg2TGN0TW5R?oc=5) |
 | Charlie Kirk murder suspect can wear street clothes in court but must be physically restrained, judge rules - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPWVNOUlpabm9ELWNFVmhPLWU4TVRTVzZ6NHV5eWZGaFc2Y1RUVFJrNGp6b09RSExRS0c1cWdWaXZybEV4VE5abHhUOTN6QlQtdXpjb01JR291TlhPZ1QxYU9XMmRYeU1KX3NSVFI2c25SM1pUbjhKOHYwbFNoWkd0UGJpV0hfd9IBiwFBVV95cUxOSWR2YXNJYWFiNndlMzJGY2tEOWxjbGVCbXN3WWVYZjVYZmp3UURzb0pQMFAxRHpBX2lUUkIwd0xxSll1ZnBySllQMF85bFBPNE9TWjE2QXh2NFNmT3lrNWhhWlctMmNWNVVIZ0dmR0RPYWdhT2JhLWhKV1h2QVFhVkliRWk1c0R3ME5B?oc=5) |
+| California Republicans retreat as Prop 50 campaign collapses - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQNFl4Q0pYNnlLdGRyRFZnOVpsXzhzRTMyU2pNNDFtTlVzcTk5YjNlVjNrM04tQi1Rc3hLT1k0R2pPUTUzSHYxekxteGxmVUk3Z1VDbV9oN0psMmVqTmNyWjBNbXhSOGdaSFBDSUxvMFVHcVZjUkgyMVJKbkU4RW1LV2lFa2Fxem9yX05Oa1h2d21tUkg2TGN0TW5R?oc=5) |
 | Republicans not on the same page about future health care plans - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOTmxHclg1ai1aRWplR3YtSGlMWFVwNHR1dlVZbkgzbzJyNmE1OVNUTmpJNFpNeDU5V1JlUEdUTnVLOUxhM0ozRHN4bnVfR0JCbkUtOFRsM3lfbXJkamlZVUFrSkdYVElCczl3WThiVDhJQUIxdjZPM1RwakhfQ3JCcG5NbG90VUw1QlkxVndpeEt2ZXB2V0tsM3pvZ1hEd0ZSc2JzSzFjd9IBrAFBVV95cUxQbnJpbld6UVVGSy1rWnFjVFJHRm5GUzFBOVROakR2aGlLcTB2Uk5BejBNR1VudUJlZEk3d3pyRVdoa3I4ZzRycGVTMGxpcVBSdFlmdTdyYVg3TFczcHJwaXBRSUxEeUUxQW1RU3d4bXNWNTZwZmh2eW1CWUdlZi15TGxWLW93d2k2RldPRGQzSzRwN3R6Zmg3cGI4SEkzYkFWSzZDZERzZE5CSG84?oc=5) |
-| Early Addition: Kathy Hochul heckled at Zohran Mamdani rally - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQb2F3YXpFN3NUS09kal9OaU01UkZjNk5LdXJVRG82TVVGVGN4LUMtczQxbGpGam90YVMzbzMyQzFLS08xRmpab0ZVOUQxTTNsbmpZZkM4YXU2U0o5UDh1amxQWGlvNmNaelZ0OE02elZISmlQVHAyUzJMUS1vVWd1NjNhRGVfUzlkQkhYaG1BSQ?oc=5) |
+| A democratic socialist is poised to become New York mayor. Democrats are nervous. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQNFBYVFBSUWdLT21qcHUwUDV5Y2JacDlVdkl4ZmdURm95MTNISGpoWlFIUVQyd0ZRQTRHeFFYOVZpRnZZZFdCWGszY3FiWG5pa1VOV1JoU2p0Q3Fqcno2RHZaWmdoMUhqZWYxMmcxZnl6ZTZHaDV6ajRtQmRJbEFkR05LY2pReUlmb2pMVHRDOXY?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
