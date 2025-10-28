@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 19:12:07（北京时间）**
+🕒 更新时间：**2025年10月28日 19:24:39（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Watch: Storm chasers fly inside the eye of Hurricane Melissa | [阅读全文](https://www.bbc.com/news/videos/cwypk4e3v3lo?at_medium=RSS&at_campaign=rss) |
 | Two military sites earmarked as asylum seeker accommodation | [阅读全文](https://www.bbc.com/news/articles/cjr0lx7n0y3o?at_medium=RSS&at_campaign=rss) |
 | Fawlty Towers star Prunella Scales dies aged 93 | [阅读全文](https://www.bbc.com/news/articles/cjd0yn5gyndo?at_medium=RSS&at_campaign=rss) |
-| Prince Andrew hosted Epstein, Maxwell and Weinstein at Royal Lodge | [阅读全文](https://www.bbc.com/news/articles/c4g7d39n6vgo?at_medium=RSS&at_campaign=rss) |
 | Headlights to be reviewed after drivers complain of being 'blinded' at night | [阅读全文](https://www.bbc.com/news/articles/cn971jlpvvro?at_medium=RSS&at_campaign=rss) |
 | Why one small town with very little immigration turned to Reform UK | [阅读全文](https://www.bbc.com/news/articles/cvgkpjdzv74o?at_medium=RSS&at_campaign=rss) |
-| These robots can clean, exercise - and care for you in old age. Would you trust them to? | [阅读全文](https://www.bbc.com/news/articles/c9wdzyyglq5o?at_medium=RSS&at_campaign=rss) |
+| Prince Andrew hosted Epstein, Maxwell and Weinstein at Royal Lodge | [阅读全文](https://www.bbc.com/news/articles/c4g7d39n6vgo?at_medium=RSS&at_campaign=rss) |
 | Amazon confirms 14,000 corporate job losses as it focuses on AI | [阅读全文](https://www.bbc.com/news/articles/c1m3zm9jnl1o?at_medium=RSS&at_campaign=rss) |
 | My wife died in childbirth but wasn't told she'd been given labour drug overdose | [阅读全文](https://www.bbc.com/news/articles/cx24gk2x51xo?at_medium=RSS&at_campaign=rss) |
-| Boyband Five on their reunion: We are spectacularly lucky to get a second chance | [阅读全文](https://www.bbc.com/news/articles/cx2l0525801o?at_medium=RSS&at_campaign=rss) |
+| Prunella Scales: From Fawlty Towers to Great Canal Journeys | [阅读全文](https://www.bbc.com/news/articles/cyjjkdrje13o?at_medium=RSS&at_campaign=rss) |
+| These robots can clean, exercise - and care for you in old age. Would you trust them to? | [阅读全文](https://www.bbc.com/news/articles/c9wdzyyglq5o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
