@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 11:02:01（北京时间）**
+🕒 更新时间：**2025年10月28日 11:13:52（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Hurricane Melissa is now the strongest storm on the planet this year - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOQTNGdW8yclFZODRCQ0NCY2wyWTAwM1FjYzF5TVkxZzRZVWJhUnpMWjF1cVF5TGZZb2wtYWUzTlNBX21yMmJ3bGdKbHBXUndVQXJIMlY1MTRTMUVkOXlIbWFuUGZ5c2puT3NjMlVjMFVSVmROT195eE1BVjhJbkVYbTBqTDc1Ql9wRXpBSENkc2M?oc=5) |
-| United States-Japan Framework For Securing the Supply of Critical Minerals and Rare Earths through Mining and Processing - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiiAJBVV95cUxPSy1FNVhMM05iam9JandsUkVCclIxTEJSdHRoaVpaMlZwNEZRQzg4Y3JjdU1SdkxGV2w1RFdBcVE5dHRXd0lFLXdhbGdWX0I2RjVGd3pmaHRTVjhRNnFnYjRBdlBDeHFzdHA4ckd6WGxpSGhya0hmRXJBWnBpVE9GblBmS2RMS0RJUjVoZFNkYl9iU0FPOUhoMzhCcW5UVTAzSkhiX3BLV0kxSWxoZVNPb2QxaXhmQ2RFN0hCZ1dYTmZncFBuLUFrYmV0V05yOGoyYkltR0NaNFhBeUZqeGdyeC0yUGVBVXdRRUNJd1haa01lWnhyVXh4QVhkQy1QQzgwRVpic2tJZ3E?oc=5) |
+| Trump and Takaichi sign trade and rare earths deals heralding 'golden age' of alliance - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFBEOHUweXRGTzh1eHQzQXp0U3VzcmVHNzRqRm9oWEFWN1ROaHNFdzhBeFNkckQ2T3JPVmxJYmlXVkpkQzh0R005djFiaG5UU2EzSm5aYg?oc=5) |
 | Trump administration to reassign ICE officials in bid to intensify deportation campaign - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOUTBOSkMxV251d0Q1M2lZeG42bUJwVkhlU09YOE5YLWxnek5QamFIRlowRXdUQkxXZ1hUTUU0OGx0TlRqRjdVMkVwMldWRXZVR0xOUEozc3lDLS1QOWRVMTl5bFRUbTlvRHNCQkNWTVB1M1VqaG00STQtMmVLMDBrYU1va0h3Y1FwWmQ1MEFhUUhvMW5yM2xmdTNIZXloLVI0enNIV3VGUVBvUmlp0gGyAUFVX3lxTE5HV1NUMFdrMVhScjBDaXBreElLblNpZkYzSlBsQVAxdFdOaDZ4dGNVTzlXNWNHbi1uTmhoRkh0eUVjV0s0ekxZdkNFVlNUcWUxTDNiVzBMNVhTY1FqQkhSdVYxak9uVDYwX3BCZ245Z0duaVdEZWs2SEZmOGlMdXRocVU0NFlSWVpJdVA4cTh5V294QlpsMVRDWW8zbFNhbFd4ZWNPUlliQkQwQjdxT2NQS3c?oc=5) |
 | Gavin Newsom explains more of his thinking on a 2028 run - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE51N0MxbV9DVzQ5Ti1FTEp1TVUxUkxuVXFkNnNtNGN0amtwOUg1aDlEOHB0Q3gxOS1kQ3BJa3Z3RUFqbElkYmpmN1BoZ25YV3hHTWlFYk1mQjh4VzI0UzlGajJaajQxZ2NqSHRfLU5jQWtURHlXem1n?oc=5) |
 | Some Americans prepare for halt in SNAP benefits: 'I’m going to have hungry kids' - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPOF9JSXR0Ylp2ODZuVVJpcVVjSWdvbUpfWUxQdmM3cWhEUmFFNUpUT2xCM0ZvOG1YaUJ5ci1KY1o4RWVIWVJtaWFUNF9Hd2lfYXVtVGIyX1RodmNmSjY2eG01SWtsdkVkM3puUXpHdTlnUVMzQUFNbHVyVm1oTjA4TnNnUzdlSVJ3VV9UTUItR2pHeG9vOEZTMExkT3RTdko5YmfSAacBQVVfeXFMTXFLWFY5ZWk2TUNjSFl4Q1VaMk1GSktOY0ZWMTFVZXM5Rk1qV3NYX1FGY2RzbHp4WWNGTHFxRktOR1gzMzdSSXlENi1RNU5kRkQtdXl6RldGd3U5UjlHTkFGRGVXWDBmVEg4ZTlsVEo1eEJrZF9IUHdOdTJGM3BMMVNpakVIRTdnMkRzR3E5c0hTVGVqdzdlN1JWOWhQQ29ESjl2b1hrcDA?oc=5) |
