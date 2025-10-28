@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 15:00:17（北京时间）**
+🕒 更新时间：**2025年10月28日 15:13:16（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Gavin Newsom explains more of his thinking on a 2028 run - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE51N0MxbV9DVzQ5Ti1FTEp1TVUxUkxuVXFkNnNtNGN0amtwOUg1aDlEOHB0Q3gxOS1kQ3BJa3Z3RUFqbElkYmpmN1BoZ25YV3hHTWlFYk1mQjh4VzI0UzlGajJaajQxZ2NqSHRfLU5jQWtURHlXem1n?oc=5) |
 | Some Americans prepare for halt in SNAP benefits: 'I’m going to have hungry kids' - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPOF9JSXR0Ylp2ODZuVVJpcVVjSWdvbUpfWUxQdmM3cWhEUmFFNUpUT2xCM0ZvOG1YaUJ5ci1KY1o4RWVIWVJtaWFUNF9Hd2lfYXVtVGIyX1RodmNmSjY2eG01SWtsdkVkM3puUXpHdTlnUVMzQUFNbHVyVm1oTjA4TnNnUzdlSVJ3VV9UTUItR2pHeG9vOEZTMExkT3RTdko5YmfSAacBQVVfeXFMTXFLWFY5ZWk2TUNjSFl4Q1VaMk1GSktOY0ZWMTFVZXM5Rk1qV3NYX1FGY2RzbHp4WWNGTHFxRktOR1gzMzdSSXlENi1RNU5kRkQtdXl6RldGd3U5UjlHTkFGRGVXWDBmVEg4ZTlsVEo1eEJrZF9IUHdOdTJGM3BMMVNpakVIRTdnMkRzR3E5c0hTVGVqdzdlN1JWOWhQQ29ESjl2b1hrcDA?oc=5) |
 | Charlie Kirk murder suspect can wear street clothes in court but must be physically restrained, judge rules - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPWVNOUlpabm9ELWNFVmhPLWU4TVRTVzZ6NHV5eWZGaFc2Y1RUVFJrNGp6b09RSExRS0c1cWdWaXZybEV4VE5abHhUOTN6QlQtdXpjb01JR291TlhPZ1QxYU9XMmRYeU1KX3NSVFI2c25SM1pUbjhKOHYwbFNoWkd0UGJpV0hfd9IBiwFBVV95cUxOSWR2YXNJYWFiNndlMzJGY2tEOWxjbGVCbXN3WWVYZjVYZmp3UURzb0pQMFAxRHpBX2lUUkIwd0xxSll1ZnBySllQMF85bFBPNE9TWjE2QXh2NFNmT3lrNWhhWlctMmNWNVVIZ0dmR0RPYWdhT2JhLWhKV1h2QVFhVkliRWk1c0R3ME5B?oc=5) |
-| Largest federal workers union demands Congress end "avoidable" shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQRmtva1daRWlwcjVWQ205Zlpmdzd6QWs2eXhOTDkxb0pmT21VMkNTMnV1aEFsekZwUjRPNFd6S2taUDhLMmo2d0VITHhXNEJYemtPVUg4c2RuUkNvbEtKYlp2Ry02ZmNwWVFNYjZILXdWSzE5bVFWY1F2NXN4d0xRemZB?oc=5) |
 | How the 7 most vulnerable House Republicans feel about an ACA extension - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQQ3ZyUXpXUEFNa2tqU21xU2JZTzN3YlJLWG4wUUNtQUJsMWhjUnRSNHd3RmJwQ3IwVVNDSXE3am1nTElKY1ctZm9tYmFJaGdzam85VU5SNVNDME11RGwxS01RZjlBRU9waDZYM1VzRzFNNThOdk1MVU5YU0ZOSHM3RkxqZ2ozOVo2M0FSY2YzUkpLeXF6VUp5ZFEwWGlkVTRvcjNIaEo2Vm9CeTNtS2dtbEpPMWZGXzVSUjVZVlZNdDF3QQ?oc=5) |
+| Largest federal workers union demands Congress end "avoidable" shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQRmtva1daRWlwcjVWQ205Zlpmdzd6QWs2eXhOTDkxb0pmT21VMkNTMnV1aEFsekZwUjRPNFd6S2taUDhLMmo2d0VITHhXNEJYemtPVUg4c2RuUkNvbEtKYlp2Ry02ZmNwWVFNYjZILXdWSzE5bVFWY1F2NXN4d0xRemZB?oc=5) |
 | Democrats get aggressive on remapping congressional lines - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQUlJaSWpLSDN6bGlBdHVlNXhHQXE0M0ppWG9UQ281ZEgwRGxxYkZXNGlKRHhlQVd1YVdnMnk1YmM3UVNhODhqY0NuYmFPeFNFRWxiSHNSVjRUMW5ocnFtbGp2RFIzSk1oN3ViUjFJUzhpbEVSZ1dJQnZwcDRwQXFtdlNkbHAxSnVjUzc3LURJbTVwX3B6c2V3UUt1Qko0UEMyNUFWdDI4V2pHYkE?oc=5) |
 
 ---
