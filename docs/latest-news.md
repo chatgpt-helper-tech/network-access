@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 21:13:22（北京时间）**
+🕒 更新时间：**2025年10月28日 21:25:53（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Why one small town with very little immigration turned to Reform UK | [阅读全文](https://www.bbc.com/news/articles/cvgkpjdzv74o?at_medium=RSS&at_campaign=rss) |
 | Councils paying school transport costs for 470,000 pupils in England | [阅读全文](https://www.bbc.com/news/articles/c14pg0xj7mzo?at_medium=RSS&at_campaign=rss) |
 | Amazon confirms 14,000 corporate job losses as it focuses on AI | [阅读全文](https://www.bbc.com/news/articles/c1m3zm9jnl1o?at_medium=RSS&at_campaign=rss) |
-| Prince Andrew hosted Epstein, Maxwell and Weinstein at Royal Lodge | [阅读全文](https://www.bbc.com/news/articles/c4g7d39n6vgo?at_medium=RSS&at_campaign=rss) |
+| Israel says coffin from Hamas did not contain another hostage's body | [阅读全文](https://www.bbc.com/news/articles/cly9z0mvzyko?at_medium=RSS&at_campaign=rss) |
 | ChatGPT shares data on how many users exhibit psychosis or suicidal thoughts | [阅读全文](https://www.bbc.com/news/articles/c5yd90g0q43o?at_medium=RSS&at_campaign=rss) |
 | Prunella Scales: From Fawlty Towers to Great Canal Journeys | [阅读全文](https://www.bbc.com/news/articles/cyjjkdrje13o?at_medium=RSS&at_campaign=rss) |
 | These robots can clean, exercise - and care for you in old age. Would you trust them to? | [阅读全文](https://www.bbc.com/news/articles/c9wdzyyglq5o?at_medium=RSS&at_campaign=rss) |
@@ -28,7 +28,7 @@
 | With food stamps set to dry up Nov. 1, SNAP recipients say they fear what's next - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBhcmk3NWxvVXhKWG1vMnVaYW50eHlRODJFcDJmN2dpVTI4YUNTZ05PX3B2ckdBNUpRY2Y3UWdYakJUTXBPbWd2TUM3a1h0dm5UZ2V5bTNSN2Z0R1pBY0ZIeWRzdF9yRHhCN250UGN6R0FYMGtRX2ZYeDR4aDJwZ9IBgwFBVV95cUxOQVhOTmNlbXBtSHBUSUtlMFoxeFJiUmpYNURJR2gwMFZYbEx0bDFUUVFxWEZFclZDXy1JZW9SNUs2aTVlQnVNeVRCb3NRQUt1SjlOOEE5dm5UWGFLNTFWc3VoZ3ZVY053YXduY2VYamQ1S2lza0ZGVnZ4RVY0bnhFN2NhZw?oc=5) |
 | GOP-led Oversight Committee says Biden pardons signed by autopen are ‘void’ in final report - CNN | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOS09JT0w5ZVVhSTlZZldvdGxRTXJnRm1FRHNQQ1NabWxZWUd2Ym9DTHcwYWJybGFHbUgxNGNHcWhjQjB5T2RWVlFKMDlSSkhJZjM4bllaN2wzcU5VcDhVT3UtZnowLU9DS3BTQ2VzMXE0RTAyZVJKWW5OZnZkWWlFSEFpNm9oSy1xSUtMTDVYdEh4TnZNVGRoOG82WnM?oc=5) |
 | China controls the rare earths the world buys - can Trump's new deals change that? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9XOS00OVZjTG1OZkpKZXVhbUtMVzRHNkk2SU5pOV9tbXRtckNIZUZnellNTUxXQ0lTR2JzMG9US0sxUTBwWGljeXJZM21BRlhRYXJIR3F5RG1Qd9IBX0FVX3lxTE9WMzhpX1d1QmpqbHNrS1M2SC00dXFHbkREd3d2Snhack9RbE5SUllPdDdzWWZFREpkZ0o2VGtVM1h0SmJRczdSU3Q5d0ZhajZZQktHd2s5MEVUbmtjc2I4?oc=5) |
-| Gavin Newsom explains more of his thinking on a 2028 run - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE51N0MxbV9DVzQ5Ti1FTEp1TVUxUkxuVXFkNnNtNGN0amtwOUg1aDlEOHB0Q3gxOS1kQ3BJa3Z3RUFqbElkYmpmN1BoZ25YV3hHTWlFYk1mQjh4VzI0UzlGajJaajQxZ2NqSHRfLU5jQWtURHlXem1n?oc=5) |
+| Hamas returns add'l remains of Gaza hostage already buried - The Jerusalem Post | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE9XUExVYU5CakxXSHYxcFd5M00xNklKNHluTEYxV1E0eFlIOVVhMWRYLWVBdzczTFVMUkVzNUhScHNTY2t6REV5aFJ3bms1QW9tMmVkT2dsaUd0cElZc0ZTMlNBS1FzajNEWUloZUNn?oc=5) |
 | California Republicans retreat as anti-Prop 50 campaign collapses - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQNFl4Q0pYNnlLdGRyRFZnOVpsXzhzRTMyU2pNNDFtTlVzcTk5YjNlVjNrM04tQi1Rc3hLT1k0R2pPUTUzSHYxekxteGxmVUk3Z1VDbV9oN0psMmVqTmNyWjBNbXhSOGdaSFBDSUxvMFVHcVZjUkgyMVJKbkU4RW1LV2lFa2Fxem9yX05Oa1h2d21tUkg2TGN0TW5R?oc=5) |
 | ICE in Chicago news: Nearly 3K arrested in Chicago immigration crackdown, Border Patrol Chief Gregory Bovino says - ABC7 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxORlcxTjMxelpPY29qYklfemJmOWxmTDkycU5RbmwyZzVSYXZ1R29pam1nTHdia1JYamxQSl91UGVLOGQtdTc2S0lFMER4LVkyVVFNUHVKMm9QX2tVRzl1a2NzaGJSbmhMaENPRndkZkRXZS03MVBVWmxmZjRCNjFjbVRsZGkzVWZ5R05VSDY5Yk5DUklVcE1WdlFmNGt2blA2bnl4YmJmdmVqVlZoS2lEUDNLNzJ1Zkp4eFJ5OERvQ25jd9IBxwFBVV95cUxOQWp1cTdjWS0tWWw5emFwTnFxa0RmQUlXVmItX1RDaWFMenpkamlibGV1aHRlaUlMZ3gwb0dkR25mUXllRGVKR0sxdjhhU2tyXzhoSE1uZWlXcHV5R0JmNkl1M0haR2xES3ZTQXpJRFk1N0prbUItbUhlcEx6b3RvNXhwU3pfLWRyZkdNZHR0MFpzV0pWSC1zRXpvVHZfQ01TRFozRXNCSW9Kb3p6blZrRlRXcWlrVk45dU9oSS1mdHFOaG56T0RV?oc=5) |
 | Government shutdown live updates as Vance set to meet with Senate Republicans - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQZG9PYmNBWC0yRHdLRWpackhYb3hMWVUxQ3FPdm9fSmxBNWhrV29aWURXdXk1V0kwMWd2S29jc2EteEZUN1ZUeTFjdEY0cmFHNWgwN3hRYnI1dFY1MHZxTWptdzlHSkE3ZUV5UUVqbGQ1R1FSR2MzTmxOS2FtRVU0eHlYYlhBbWZGZ21wQWdpZFM0cWvSAZgBQVVfeXFMTUhwcURJQ3U5WmJRN19xYjJGT2Fib3ZPOXJxZmRKN3o5T0dIMzhZaFhwZEQtZVNWelQ5NUU5NG41YzFQWk50TnIwVERFeThaTlFtN0NjdzYwdk9raGtYSC1zblE0SzU2SDNHbjVMT1duLW9KbEItdU9BLWNtVGxiazB4U2d1ZUxKRFdfY1VFOVFWdVJGOG1TcjE?oc=5) |
