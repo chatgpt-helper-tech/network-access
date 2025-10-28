@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 00:13:09（北京时间）**
+🕒 更新时间：**2025年10月29日 00:25:30（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Hurricane Melissa is set to hit Jamaica as its strongest storm since records began - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQMWFacWZWdFhsOV9PZU8yYlpqUjF3M2Zna0pMbExlYzJvRkdUUVNhTy1JamtyU0YxdEZIRy0wX1N3MGtrMFpIR2RCUjh6akgtOVpjdVBsckdmTHVITmc1U2Vidlo0bnBxOG5tM0ppWElNcFJnb1Ntei15UTNBejQwYlJUbTNqVTVFOFVvbC1QM2N6SUM0NEFSTEM0UmFsb1JfWWlTOEtVdjlncW8?oc=5) |
-| U.S. strikes 4 more alleged drug boats in the Pacific, killing 14 and leaving 1 survivor - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1PNXQ2RkY4VzJSeExfZTlFNEptYzQzT3d4c0FXR1pwSUtKZGJQdHVkZGd3UVBOTHVNTDQtUVRkYjZXaEdDLVhuZXVXN0dNSDlZcklRVnI2ZmZsVWxZV0JCVmhjRFppWl9Eam9qcHUyZ0p2ektrV2fSAXtBVV95cUxQc3BueDBQU0pBcDJMNDlUcWhWb2gxY1V1MGhidEdwVnZUaWMyYkoxa2M4U3dDMldac05qSGUtWlFCU1R2R1JIQ090dUVGdlZjby1NZXB2NEo4LTVNM1BGdC1HdXVmdkJJUTNVWEdza1JtZWZOVGU3cFFKV2s?oc=5) |
-| The federal shutdown will halt November SNAP benefits. Here’s what you need to know. - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPWW43RGVMNmpGOGZmcUZrS1E0a0FMQXljS0dvRnJmdFEtTl9VTmxmeTRnaGUyaE0tOFJFRE5mOVZwMVFZU3VxSWhrUU0wQjl0T3Rsc090RlBCOG1XTXNBU196R3VyTW1lS2pQeVU2cDV2QVBzcEF3R2VfbjF1TGYwMEpzU1JyT2NNb1daOHM3WWM3Vk9F?oc=5) |
+| 14 dead in more strikes against alleged drug boats, Hegseth says - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPeW5VS25zQXdmMDRMQ1g2UmZ1czc1T3g5T09EQ3JaNXRaaWFQdVJkc3ROMmRWWFBKRndOc1YtcXVQbHk3eEEwRks2blFFVlBVdmg4WjJuZmNpZThsNk9XZXNaZlg2U3JQTTVCMVFoTF9vaGFtbTdBMkhOVmVJZHlDc1U0aUJ4TkhXd0Z1bHdZS0s5clQ3TXYxdmNtNnlHWk1JdWfSAacBQVVfeXFMUDNpdDlDOXpXMHRPd0c0UUpnVThmTTh1b0ZFUk03b0RhSkpVdnd3OGZ1YWpZcEFVUEo5N0N0X2phY010NW1JVXVQRVhucEU0UVlyQXpJRjItVWlWbk9LS0xsVXA3TjYxdUVCbGRaRDNIS2c1dVhha0VSQXdhcXpxSlhyMlJGNGJxRUxwQkxUZDA4WlRKWC1DdXRrY0pzbGVxQmZUNGs2S28?oc=5) |
+| With food stamps set to dry up Nov. 1, SNAP recipients say they fear what's next - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBhcmk3NWxvVXhKWG1vMnVaYW50eHlRODJFcDJmN2dpVTI4YUNTZ05PX3B2ckdBNUpRY2Y3UWdYakJUTXBPbWd2TUM3a1h0dm5UZ2V5bTNSN2Z0R1pBY0ZIeWRzdF9yRHhCN250UGN6R0FYMGtRX2ZYeDR4aDJwZ9IBgwFBVV95cUxOQVhOTmNlbXBtSHBUSUtlMFoxeFJiUmpYNURJR2gwMFZYbEx0bDFUUVFxWEZFclZDXy1JZW9SNUs2aTVlQnVNeVRCb3NRQUt1SjlOOEE5dm5UWGFLNTFWc3VoZ3ZVY053YXduY2VYamQ1S2lza0ZGVnZ4RVY0bnhFN2NhZw?oc=5) |
 | Citing autopen use, GOP-led House Oversight Committee finds Biden actions ‘illegitimate’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxObHluSjJlRGpvWXpDbkx5b3hkZUxVcmJOOVU1NU1BNEF1cEFuZjMwNHMzZTZFTE95b1pUZHJUbTRZR3NvajZnZFdqS05ocTlGT0tKMC1OOHk0dGdCQ3R4Z3lqWWdXWmcyeElWX1g4VUhSbmI4ZHlza3R3REpyTTRlZ2x4UzZZYjAydXZaSnZPaFhxdlJnN3o4VV9Kd2ZHZFdzdEgtZ3NucUVhMjFvSTNPak5B?oc=5) |
 | Border Patrol's Gregory Bovino begins testimony before federal judge - WBEZ Chicago | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdlNncjFQMWZlNWtaWXNZTjdGVV9HZjJhT1NfODZUZkRxQmpGZ1VBMFZWd0xONkJ6Y1U5WlpCRzNKSDBpaks3TUZXV1RrZmRRMEl4NlBlN3NzdEFJcFItMXhuUDZEVGV0d3dRZHdRYWlYcmZBeDNWaUxpSkVkakI3VXdTVUlnbl8tZDFrNlJWTQ?oc=5) |
 | On the Menu for Trump in Tokyo: American Rice - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOdlFwVHFqMjh3T294SDJ1dWdZdmhoSGRFbFZ6bVdmWHZySDJyU2VGY1VQc1JTUXd1TzhyWU1sa2FOTHNsOVREWnFhdFlWazJiMnk4VTJ0aVVnYW12ekctQzdFd01wT1AtNnFpWjVkS1A5STI3ZWU1c0VHMzNRa1JCcQ?oc=5) |
