@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 21:00:43（北京时间）**
+🕒 更新时间：**2025年10月28日 21:13:21（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | GOP-led Oversight Committee says Biden pardons signed by autopen are ‘void’ in final report - CNN | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOS09JT0w5ZVVhSTlZZldvdGxRTXJnRm1FRHNQQ1NabWxZWUd2Ym9DTHcwYWJybGFHbUgxNGNHcWhjQjB5T2RWVlFKMDlSSkhJZjM4bllaN2wzcU5VcDhVT3UtZnowLU9DS3BTQ2VzMXE0RTAyZVJKWW5OZnZkWWlFSEFpNm9oSy1xSUtMTDVYdEh4TnZNVGRoOG82WnM?oc=5) |
 | China controls the rare earths the world buys - can Trump's new deals change that? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9XOS00OVZjTG1OZkpKZXVhbUtMVzRHNkk2SU5pOV9tbXRtckNIZUZnellNTUxXQ0lTR2JzMG9US0sxUTBwWGljeXJZM21BRlhRYXJIR3F5RG1Qd9IBX0FVX3lxTE9WMzhpX1d1QmpqbHNrS1M2SC00dXFHbkREd3d2Snhack9RbE5SUllPdDdzWWZFREpkZ0o2VGtVM1h0SmJRczdSU3Q5d0ZhajZZQktHd2s5MEVUbmtjc2I4?oc=5) |
 | Gavin Newsom explains more of his thinking on a 2028 run - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE51N0MxbV9DVzQ5Ti1FTEp1TVUxUkxuVXFkNnNtNGN0amtwOUg1aDlEOHB0Q3gxOS1kQ3BJa3Z3RUFqbElkYmpmN1BoZ25YV3hHTWlFYk1mQjh4VzI0UzlGajJaajQxZ2NqSHRfLU5jQWtURHlXem1n?oc=5) |
-| California Republicans retreat as Prop 50 campaign collapses - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQNFl4Q0pYNnlLdGRyRFZnOVpsXzhzRTMyU2pNNDFtTlVzcTk5YjNlVjNrM04tQi1Rc3hLT1k0R2pPUTUzSHYxekxteGxmVUk3Z1VDbV9oN0psMmVqTmNyWjBNbXhSOGdaSFBDSUxvMFVHcVZjUkgyMVJKbkU4RW1LV2lFa2Fxem9yX05Oa1h2d21tUkg2TGN0TW5R?oc=5) |
+| California Republicans retreat as anti-Prop 50 campaign collapses - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQNFl4Q0pYNnlLdGRyRFZnOVpsXzhzRTMyU2pNNDFtTlVzcTk5YjNlVjNrM04tQi1Rc3hLT1k0R2pPUTUzSHYxekxteGxmVUk3Z1VDbV9oN0psMmVqTmNyWjBNbXhSOGdaSFBDSUxvMFVHcVZjUkgyMVJKbkU4RW1LV2lFa2Fxem9yX05Oa1h2d21tUkg2TGN0TW5R?oc=5) |
 | ICE in Chicago news: Nearly 3K arrested in Chicago immigration crackdown, Border Patrol Chief Gregory Bovino says - ABC7 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxORlcxTjMxelpPY29qYklfemJmOWxmTDkycU5RbmwyZzVSYXZ1R29pam1nTHdia1JYamxQSl91UGVLOGQtdTc2S0lFMER4LVkyVVFNUHVKMm9QX2tVRzl1a2NzaGJSbmhMaENPRndkZkRXZS03MVBVWmxmZjRCNjFjbVRsZGkzVWZ5R05VSDY5Yk5DUklVcE1WdlFmNGt2blA2bnl4YmJmdmVqVlZoS2lEUDNLNzJ1Zkp4eFJ5OERvQ25jd9IBxwFBVV95cUxOQWp1cTdjWS0tWWw5emFwTnFxa0RmQUlXVmItX1RDaWFMenpkamlibGV1aHRlaUlMZ3gwb0dkR25mUXllRGVKR0sxdjhhU2tyXzhoSE1uZWlXcHV5R0JmNkl1M0haR2xES3ZTQXpJRFk1N0prbUItbUhlcEx6b3RvNXhwU3pfLWRyZkdNZHR0MFpzV0pWSC1zRXpvVHZfQ01TRFozRXNCSW9Kb3p6blZrRlRXcWlrVk45dU9oSS1mdHFOaG56T0RV?oc=5) |
-| Suspect in Charlie Kirk killing can wear street clothes in court amid ‘extraordinary’ attention - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNNDgtZ1JQQlhBOWNfOFJlTEVndDd4Ym5kb2w5c3duYkdSdDdWd3RiSGZYTWVjT25LVEE1dVhoeWRKazdpNHl2U2ozNnlHazRrTmtVb3ZOM3NqNEpZSllaUDZmNFRRVjRMR0hWMDQ5cFFFZHk0d2x2SDR5VFNPYXczRXpuRjB2cE9pZHY1SHp4VEpIbW4xalE0bjE3LWlPWUZFSGdmRG9UUkpYM0JSTzRz?oc=5) |
 | Government shutdown live updates as Vance set to meet with Senate Republicans - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQZG9PYmNBWC0yRHdLRWpackhYb3hMWVUxQ3FPdm9fSmxBNWhrV29aWURXdXk1V0kwMWd2S29jc2EteEZUN1ZUeTFjdEY0cmFHNWgwN3hRYnI1dFY1MHZxTWptdzlHSkE3ZUV5UUVqbGQ1R1FSR2MzTmxOS2FtRVU0eHlYYlhBbWZGZ21wQWdpZFM0cWvSAZgBQVVfeXFMTUhwcURJQ3U5WmJRN19xYjJGT2Fib3ZPOXJxZmRKN3o5T0dIMzhZaFhwZEQtZVNWelQ5NUU5NG41YzFQWk50TnIwVERFeThaTlFtN0NjdzYwdk9raGtYSC1zblE0SzU2SDNHbjVMT1duLW9KbEItdU9BLWNtVGxiazB4U2d1ZUxKRFdfY1VFOVFWdVJGOG1TcjE?oc=5) |
+| Suspect in Charlie Kirk killing can wear street clothes in court amid ‘extraordinary’ attention - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNNDgtZ1JQQlhBOWNfOFJlTEVndDd4Ym5kb2w5c3duYkdSdDdWd3RiSGZYTWVjT25LVEE1dVhoeWRKazdpNHl2U2ozNnlHazRrTmtVb3ZOM3NqNEpZSllaUDZmNFRRVjRMR0hWMDQ5cFFFZHk0d2x2SDR5VFNPYXczRXpuRjB2cE9pZHY1SHp4VEpIbW4xalE0bjE3LWlPWUZFSGdmRG9UUkpYM0JSTzRz?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
