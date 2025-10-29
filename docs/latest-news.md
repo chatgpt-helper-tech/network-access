@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 22:13:54（北京时间）**
+🕒 更新时间：**2025年10月29日 22:24:21（北京时间）**
 
 ---
 
@@ -12,8 +12,8 @@
 | Neighbours with baseball bats 'saved life' of man attacked in London triple stabbing | [阅读全文](https://www.bbc.com/news/articles/cm2evdy2779o?at_medium=RSS&at_campaign=rss) |
 | Israeli strikes in Gaza kill 104, health ministry says, after Hamas accused of killing soldier | [阅读全文](https://www.bbc.com/news/articles/cgjdy5eevn2o?at_medium=RSS&at_campaign=rss) |
 | Investigation after woman left behind by cruise ship dies on island | [阅读全文](https://www.bbc.com/news/articles/c62eww646wjo?at_medium=RSS&at_campaign=rss) |
+| Government set to miss 1.5m new homes target, housebuilders warn | [阅读全文](https://www.bbc.com/news/articles/cr5er1dpmn8o?at_medium=RSS&at_campaign=rss) |
 | Character.ai to ban teens from talking to its AI chatbots | [阅读全文](https://www.bbc.com/news/articles/cq837y3v9y1o?at_medium=RSS&at_campaign=rss) |
-| Police failed to tell me about my partner's violent past. He ended up choking me | [阅读全文](https://www.bbc.com/news/articles/c629gz5g0emo?at_medium=RSS&at_campaign=rss) |
 | S Korea announces lowering of tariffs as part of new US trade deal | [阅读全文](https://www.bbc.com/news/articles/cly4jz9zr50o?at_medium=RSS&at_campaign=rss) |
 | Jamaicans wake to devastation - floods, power cuts and crippled communications | [阅读全文](https://www.bbc.com/news/articles/c5yl09v025lo?at_medium=RSS&at_campaign=rss) |
 | How do hurricanes form and are they getting stronger? | [阅读全文](https://www.bbc.com/news/articles/cz913gxlw3jo?at_medium=RSS&at_campaign=rss) |
