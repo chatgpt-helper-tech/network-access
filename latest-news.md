@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 10:49:31（北京时间）**
+🕒 更新时间：**2025年10月30日 11:01:28（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Protests erupt after police raid in Brazil leaves 119 dead and draws accusations of excessive force - AP News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQNmVmaFF1STlNWkVzb3U0V2pKWmoxTVB1YVE0alAxUlFBMVVWUVFKMHhzelRRM2gzR0kxV2RBQWhBRGRkWXMxMV9XRVk4cm1OWFFMZWdUV3c4NmFEYk9ENlRjWnBnRWhfajloVVZrWFQxTkVJUUFGbHNLclY4S1BsQVVhVmxaQjg?oc=5) |
 | Majority of California likely voters say they support Prop 50, poll shows - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOY2tHUnpTR3Z5T3hFbXJnVzZpRnZCS3ZXM3k1Sm9GVUNnU1dXcWRMTlI1SXpCMmkwMTRBRy1TNndMWWhsUzZvLUxYSGJBakVYWGFEd01Ud3BIdHF3VlhqSC1lMklZaEpyVmJmUE5pTzlVcDQxdTFSek4zU1paQi1qdWhHS1ZDME9TdnNZdlhlWmh2YVdVZ1BPVFhoRGxjRm4tOTZYaGxlUdIBrAFBVV95cUxPeldEdkpORGFqdThRWHdKQlBvVl9RWEU2V0RiVTBOWEpNXzFzdHZlT3dtaUJhcDEzaC02ZTBFNUpmR0pPWEZzRWc2RmxlejQ1UFVVRTQwQUVIaEJ0RTgwVU9fMUh2dWlZQWpRMVdTd0dlYmlpbEJKeWRUY2l5bnAtZnJRb2VteUZjREdMZEoxcGJqdHVaOFVNUVpkWkJKNXVLZzBuM3NDS1JlNWpD?oc=5) |
 | Jurors convict Illinois deputy of killing Sonya Massey but can't agree on first-degree murder charge - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQOG5uQ0w0NXd6dWtVR0JyN1pVRGFCQWhkSmEyMkF0eDRrUjVSNTh0OTA5R3l6dHdzMDM3S01ZNUo1RG5SLXhMSmhLSG9kMUVqcGRXOXlYSmlHamFLZ1pEdG9mQld1d3JjVm9ka0lZbVd2TXR5OGg4M1VQYjVlc1lYVU9TTDVtM2wzMVFFUWV3QUhWSm5vOXc?oc=5) |
+| Bill Essayli says he isn’t going anywhere - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQeFJ3S29MTjJfNC1iRjZ2V040YjZORExNSkpWdHBaMktFT2I2b05pcGI4aE4yM2cySUlxd29kLUlpOEg2WkZ2enpZUzlzeV85RmtmQTNaanBaNm5BbUdLbHVHdWZMallVZy0zb0pWV2t3Q192eVlEN25PZnMwcm9sRVdLRUhSb0w4ekE?oc=5) |
 | Virginia Moves Closer to Redistricting Plan That Would Help Democrats - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPYjhuMFNleDROdFdOX21PaHRNbERVekwzRnVKbElUX2ZuOFRkMVN6djZYZ2NWaG5xU09ubHhKVU8yWDV0M2dQaUR1d3Z4dHgtMG9RdWhzaWlBM1ZXLWt2dV9BVzAwQ3dfMXpEU0h1RF8tdGhYbDYwNVRIbHR0eE53VHFZQ2kyLWk0TjdB?oc=5) |
-| Senate approves Democratic resolution to block Trump's tariffs on Canada - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiaEFVX3lxTE9DaS1UdXBMZmhHRVlsT2ZVMTF3b3VfeE5FT3QxWnBMM0VjQXFIOUZrb3VMVFVpaHFvVTVuUE5xejNGVG1KN3BnYjBSYVBORjFDVjg3SDczbEJibDk4bXBRTUpHc2dWMGF40gFuQVVfeXFMTXhjZU11MjN0ZWd4cHp4QTVhcFo1M3RvcWs5eWlhWHU0cTl1RkZMQmZRbTJ2bWZCb1UzZk9RM2F5c1Fld05Xa2RJOEdQcnFvVWJBUWZjQzVBdkF6YjlhN0lYTTRWZTNTQVlzX0JROHc?oc=5) |
-| Shake-up at ICE will boost immigration numbers — just not the ones that matter most to Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxPajdYSzM5d1pQZHRBRGZ0TVdzYkJ0aElERmY3WHIzckJnNUE3SUI5cFozNFo5MFZySHF3VXBHQ3haMTN1UjdpN040ZHVVYnBablBxaE9OWS10di1RN3Rkb1Y2U2dWakdBak5lYi1SOVJDRklTeDlBYnNWZGlBcXRUc2I0djVjNjlWcEI5eDB4RURISWdhTzRESW5ZeEJrcnVZWDJycnB2SHMwWlFiX0dWdExqQVpqNHlHUlo4Um5EOGdETDNtVUdBLW5teTZmSzJNRHM5Mm1ORQ?oc=5) |
+| ICE officials replaced with Border Patrol, cementing hard tactics that originated in California - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxOLTdBejBqaUhTNlZtUlZhR29sWFJIaHA5UlVfeUx4Z1FfTEtveXZ1UjBPekhiTDRKV2VaVEU3Z3g1cjRPc0FraDFFcl9PNUliUUxKSGYtWEdpeGZoU1VzZ0ZTMUdkdnZXY3VNaTUtVVFrcGJTV2RHM2hPa3BfT1k3aVdIelhuWDZRSFdQVXBsLWNGdHJvTUw5RVdkR25UTTN6aHZsMmRJdW02dlZhbDVlSTNISVZJYU5BdHJVOXl1VFlubmhuR1JNUGxReC1WdkdDcnRaZldYOHd2Z3JFbTZubQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
