@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 08:24:24（北京时间）**
+🕒 更新时间：**2025年10月30日 08:37:02（北京时间）**
 
 ---
 
@@ -8,6 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Hurricane Melissa leaves dozens dead and trail of destruction across Caribbean | [阅读全文](https://www.bbc.com/news/articles/cy0kvrnyy4wo?at_medium=RSS&at_campaign=rss) |
 | Afghan man charged after dog walker killed in London triple stabbing | [阅读全文](https://www.bbc.com/news/articles/c2lp7wx740go?at_medium=RSS&at_campaign=rss) |
 | Chancellor admits breaking housing rules by renting out home | [阅读全文](https://www.bbc.com/news/articles/cd04d0yxnrvo?at_medium=RSS&at_campaign=rss) |
 | Thousands on benefits could have energy debt cancelled | [阅读全文](https://www.bbc.com/news/articles/c4gpzynky88o?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | The dads helping daughters through their periods | [阅读全文](https://www.bbc.com/news/articles/cy8v5xn8gdvo?at_medium=RSS&at_campaign=rss) |
 | Sudanese RSF militia killed many civilians at hospital, WHO chief and doctors say | [阅读全文](https://www.bbc.com/news/articles/c364jgkge46o?at_medium=RSS&at_campaign=rss) |
 | Backstabbing, dirty work and an iconic exit speech in Celebrity Traitors | [阅读全文](https://www.bbc.com/news/articles/c98n7k67y95o?at_medium=RSS&at_campaign=rss) |
-| MPs question value for money of Prince Andrew's Royal Lodge lease | [阅读全文](https://www.bbc.com/news/articles/cwyp5z049dlo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
