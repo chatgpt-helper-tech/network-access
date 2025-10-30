@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 13:13:17（北京时间）**
+🕒 更新时间：**2025年10月30日 13:25:45（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump seeks trade war truce with China's Xi in South Korea talks - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNRUN6ajZWR1MxcEY1VUpYNjVtYTFKM2g2ZkFqcmZubVJKTXZ2bHF3dkRWSVl4cXJJdXBBUkZxLUNmNkpoaWxYeHVQOHBkS1pfZ3hIdHkzN05fSU9CTERNZ1EyTDk0VGJUYUFjRENFVURTdWNhVjIxb0RQQ25qS0NfZnQtamhIZ1pld1FUbFJCeC1jSEpVT2laeHhKcE1ocUpBRVFTTkZNXzkxZw?oc=5) |
-| Hurricane Melissa devastates Jamaica: in pictures - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOaUVhZzZ4WWNscU50NEF5TVROOEZZUWQteEhWRHBQdk9HR3BrOEpyYlItUi1zaUpDY28xYWhfVGhRVEo1MnRSanl0UjJERkdDYkU3M2tNT0ZZekRTRF9XQU84ak1Ya090ZEctM0RhUjhJS193VzdWWFVyU05WTlVJNjZtWTVXdkRBUTUtSWhDRDdLQUluTkhoemNFZWhXX3RBZ0xONHoyY25ZX3M?oc=5) |
+| Donald Trump and Xi Jinping shake hands and depart after meeting in South Korea – live updates - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPZ3FwWFhaalNIMm5YcUcwT19rNTVhdWRkM3hEUXc0QzVtRnIwZDV5cWdycThjX3dTWjNXM3RaS2xVN1JkOFpoQmdVZXlvMGxyMDROV29NXzFKVXRfNEtLeVRFeHJSZVF0c3l0Y1NjSEdvS0tIeHlqZTU1V3RMdXRCUWk2b2VGQkVXTkQ0dEk1RnI1N1hGZUk2QTYzUQ?oc=5) |
 | Trump Threatens to Resume Nuclear Weapons Testing, Minutes Before Xi Meeting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPaEFuQ2R5eFJ6NzI4WGxzNWVONGVPMTVWcVIzTGlNN0kwSzl1MUlvTHFoWVRYMjluNDdQclJDZUV0MUhyeUNnNGdPc2NmbFhZdmE2OVBVMmxSTVduc3JWQ2NlQ25QYWwwaUN0XzhUWnhfV1NBRlUzWWxlNUhiYmF2QjFkSENucFBU?oc=5) |
+| Hurricane Melissa devastates Jamaica: in pictures - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOaUVhZzZ4WWNscU50NEF5TVROOEZZUWQteEhWRHBQdk9HR3BrOEpyYlItUi1zaUpDY28xYWhfVGhRVEo1MnRSanl0UjJERkdDYkU3M2tNT0ZZekRTRF9XQU84ak1Ya090ZEctM0RhUjhJS193VzdWWFVyU05WTlVJNjZtWTVXdkRBUTUtSWhDRDdLQUluTkhoemNFZWhXX3RBZ0xONHoyY25ZX3M?oc=5) |
 | Dutch centrist liberals under Jetten head for shock election win, exit poll says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5nWUFZaTJhYmxRalJpWTJ0eWdBVE83OUU0TUplMlFwRTg3LWphcnlwVGdBTW5NaVFrR3Z4SmtCbHpYRDlvMU1iaFFvakFWLXpCMWhHWlFjdFZ3QdIBX0FVX3lxTFA1ajQ2ajk5MEVTeW9Ld1drQ3ZpSVJRbkppdmhXNnpHY0lWX0VHM1VoeDZvbTQwSG50czhnc1lYQ0ZPWUl3Q1piQ2FKYXVMMHBNeG5jOFh5UnR4Y2VoRmRv?oc=5) |
 | Majority of California likely voters say they support Prop 50, poll shows - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOY2tHUnpTR3Z5T3hFbXJnVzZpRnZCS3ZXM3k1Sm9GVUNnU1dXcWRMTlI1SXpCMmkwMTRBRy1TNndMWWhsUzZvLUxYSGJBakVYWGFEd01Ud3BIdHF3VlhqSC1lMklZaEpyVmJmUE5pTzlVcDQxdTFSek4zU1paQi1qdWhHS1ZDME9TdnNZdlhlWmh2YVdVZ1BPVFhoRGxjRm4tOTZYaGxlUdIBrAFBVV95cUxPeldEdkpORGFqdThRWHdKQlBvVl9RWEU2V0RiVTBOWEpNXzFzdHZlT3dtaUJhcDEzaC02ZTBFNUpmR0pPWEZzRWc2RmxlejQ1UFVVRTQwQUVIaEJ0RTgwVU9fMUh2dWlZQWpRMVdTd0dlYmlpbEJKeWRUY2l5bnAtZnJRb2VteUZjREdMZEoxcGJqdHVaOFVNUVpkWkJKNXVLZzBuM3NDS1JlNWpD?oc=5) |
 | Protests erupt after police raid in Brazil leaves 119 dead and draws accusations of excessive force - AP News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQNmVmaFF1STlNWkVzb3U0V2pKWmoxTVB1YVE0alAxUlFBMVVWUVFKMHhzelRRM2gzR0kxV2RBQWhBRGRkWXMxMV9XRVk4cm1OWFFMZWdUV3c4NmFEYk9ENlRjWnBnRWhfajloVVZrWFQxTkVJUUFGbHNLclY4S1BsQVVhVmxaQjg?oc=5) |
