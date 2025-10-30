@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 12:01:52（北京时间）**
+🕒 更新时间：**2025年10月30日 12:12:07（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Majority of California likely voters say they support Prop 50, poll shows - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOY2tHUnpTR3Z5T3hFbXJnVzZpRnZCS3ZXM3k1Sm9GVUNnU1dXcWRMTlI1SXpCMmkwMTRBRy1TNndMWWhsUzZvLUxYSGJBakVYWGFEd01Ud3BIdHF3VlhqSC1lMklZaEpyVmJmUE5pTzlVcDQxdTFSek4zU1paQi1qdWhHS1ZDME9TdnNZdlhlWmh2YVdVZ1BPVFhoRGxjRm4tOTZYaGxlUdIBrAFBVV95cUxPeldEdkpORGFqdThRWHdKQlBvVl9RWEU2V0RiVTBOWEpNXzFzdHZlT3dtaUJhcDEzaC02ZTBFNUpmR0pPWEZzRWc2RmxlejQ1UFVVRTQwQUVIaEJ0RTgwVU9fMUh2dWlZQWpRMVdTd0dlYmlpbEJKeWRUY2l5bnAtZnJRb2VteUZjREdMZEoxcGJqdHVaOFVNUVpkWkJKNXVLZzBuM3NDS1JlNWpD?oc=5) |
 | South Korea gives Trump a crown weeks after No Kings protests - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1LanhxWjhsRTd2SEVma3RWYzJQWkRReVM3b3djOE9kS2ZxLW1yQmVZeDgzNzVxdXdxVEw1bE5tRTBOTDNMaDU3Z0VWeUlpLW8xZENuMUl3UTRtc0szaEwyc2JockFoV1N4UWp6SDFTbVlGZmhOQ2c1OHJB?oc=5) |
 | Jurors convict Illinois deputy of killing Sonya Massey but can't agree on first-degree murder charge - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQOG5uQ0w0NXd6dWtVR0JyN1pVRGFCQWhkSmEyMkF0eDRrUjVSNTh0OTA5R3l6dHdzMDM3S01ZNUo1RG5SLXhMSmhLSG9kMUVqcGRXOXlYSmlHamFLZ1pEdG9mQld1d3JjVm9ka0lZbVd2TXR5OGg4M1VQYjVlc1lYVU9TTDVtM2wzMVFFUWV3QUhWSm5vOXc?oc=5) |
-| Virginia Moves Closer to Redistricting Plan That Would Help Democrats - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPYjhuMFNleDROdFdOX21PaHRNbERVekwzRnVKbElUX2ZuOFRkMVN6djZYZ2NWaG5xU09ubHhKVU8yWDV0M2dQaUR1d3Z4dHgtMG9RdWhzaWlBM1ZXLWt2dV9BVzAwQ3dfMXpEU0h1RF8tdGhYbDYwNVRIbHR0eE53VHFZQ2kyLWk0TjdB?oc=5) |
+| Here’s the redistricting plan Virginia Democrats want voters to approve - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPR01CUGhBR0hmQkxkeXRqNDZWeFNNdUJlUUZsckpkSzE4SzJCbDR3TmN5XzlkYVlRX2JQcHVhUWEwSEJINDFoc2R1TWpaLWd3TzdFMnladEVrdkhnTkpzMERPWS1kT2J1azd5cUlkQk5EWjd5djM1cEFjNG1CRkF0dlhCYVhZMTYyLUk1Y3hraVFvZEpNVW9mdmFpaHJWNndE?oc=5) |
 | Exclusive: National Guard orders in DC extended through February 2026 - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNbTZ1LW9DZkJmeHp5TTRJMFJhdk5DaXhhR0N1OFlqcEVxb1hpQWFaQUNwaXlnaURwd0E2MDZVdkxhMlhncEIyU2VNSk5rUkt2VENEZlhzN1JsWDRXZ283LTM1cDFoc3Z4bnRyX3k2b3hFRVBlOWEyVXlhamtHbHZtaVB3TEM4RWFM?oc=5) |
 | Shake-up at ICE will boost immigration numbers — just not the ones that matter most to Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxPajdYSzM5d1pQZHRBRGZ0TVdzYkJ0aElERmY3WHIzckJnNUE3SUI5cFozNFo5MFZySHF3VXBHQ3haMTN1UjdpN040ZHVVYnBablBxaE9OWS10di1RN3Rkb1Y2U2dWakdBak5lYi1SOVJDRklTeDlBYnNWZGlBcXRUc2I0djVjNjlWcEI5eDB4RURISWdhTzRESW5ZeEJrcnVZWDJycnB2SHMwWlFiX0dWdExqQVpqNHlHUlo4Um5EOGdETDNtVUdBLW5teTZmSzJNRHM5Mm1ORQ?oc=5) |
 
