@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 06:25:23（北京时间）**
+🕒 更新时间：**2025年10月31日 06:36:11（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | A judge is set to decide whether SNAP benefits can be cut off on Saturday - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOTlp3WDBucm83WWZHeml2cGNJaWdRRkwycHhlbi1aN2J5T1U1a0VNNHB4ZFhsNzVVVDd4Q1R3R3hvWlo2UGhSS0ZDaWVfcTJ1N1FhaUJOV1RLN0xvREhzMmN3bmpfY3BEZGJleEtQclIxdU40ZlpHeHBwbnRuaFp1ZmNZUHY4Zw?oc=5) |
-| Trump's comments on nuclear testing upend decades of US policy. Here's what to know about it - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPS2Q5aUREOUhCSVlZbzVSa1p3amdEekM2Vjg5Z1dHVUw2UWtvRTNCN1ZlVC1XZzJjdVFwc0xuazRacG43cUNTcEtuVVhVdHBnMUFkUWk1em1DbXBFNUhrSXpfUENDcl8wYnBZaXEyVDNwUGZnRXBoU3VGYVl2NkcwNXExSDdFZkdUY1lBNldwd21tckVBUERj?oc=5) |
+| Trump directs Pentagon to test nuclear weapons for first time since 1992 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQNlZyTTVfLU9sSTJFbHVUZkpESFFFRkt6ek1Lck1LY1MxUVZPRjFQYktGYWxUTHRQUWdITXVfMVJqRGhLSDN2bEJVUjR5YUtLSkhsdjBDaHFZcG05dmFHVGZTRkMxRDRnaXZyaVdCMDd2MWxqcVBrWDRVSlJzZWFPM0F3?oc=5) |
 | Government shutdown live updates as Senate adjourns with no breakthrough on ending impasse - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOZXpvTWM3cWxtZV9vV3RSMWVCdGJpeEJDX2c1Yjh1MXFoY0t1YV9kMlNYazdINmhJOWxNOVY0QXJ0dWkyZm1ZSXhxSExjZmgxbUZNTWtlQ19Td1dTY29OX3lseXR2cVNYNXR2R3hCLXl3T3Zhb1JnV0ROWUhJbXA5UG1tbEZLX2loU3FORDUxYmQ4dkVoU0E0a1NR0gGfAUFVX3lxTFB5cGdxbXloOEJ6RDE2akU1ZzIyZDNoWW1oWFpsMl9WNkVNNmRWSEh5aHVUSVFvc3A2R1FiblJpRHUtODlIODdrdmQ2RVFQV1UwZ01pR0dOc25pT3FOLWZ6SXhUMG1UdFhOUHc4c2NsZlVnTGxBZHdmbERxYlg5Qi0xWTNZelVKSm8wdTRuaWNOMlNSSDFTemJQS1liZ1lBRQ?oc=5) |
 | Trump sets 7,500 annual limit for refugees entering US. It’ll be mostly White South Africans - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOQkFrckh1QVdZSlE1Q1hnUjZOUDJhVXFlajB5elR0QXBLM0xXSXVsdHl2b3loa3FINmdPTG5FMXRMZUxGV3lJNERLcUM5ZUdla3hjclZ4Q3YwTUpMREpYc0ExX3lfdGJuV2ZIak41bkpBWFZfMmdDdHpPcDMtNllaUV9wTktfMmdneDk5SnNpLUE?oc=5) |
 | Before and after: Satellite images reveal hurricane devastation in Jamaica - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9ROEt4M0dIV1dCb1N4M2tfOFo4MXJ3Vy1XemJMMGI3bUEwb1E5b2RPZGNicnNtRHd2N25yNFFja1BjVElEOUNhLWUtMUhkRjZKZWFKazRaeXp5d9IBX0FVX3lxTFB1QlhLalAxSlpQWEREOExMRU5mUVpIM01yaXFySUJ5Z2hXdGg4UC1NTDc0NXV2Wk5GNTZJQVFJOVMzWUFlcHZaRGlCVjhrY3pKT25xazlJZktTQllpVmdv?oc=5) |
