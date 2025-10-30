@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 06:48:15（北京时间）**
+🕒 更新时间：**2025年10月31日 07:01:37（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | England's most deprived areas named - see how yours is affected | [阅读全文](https://www.bbc.com/news/articles/cly137089yyo?at_medium=RSS&at_campaign=rss) |
 | Trump caps US refugee admissions at 7,500 - mostly white South Africans | [阅读全文](https://www.bbc.com/news/articles/cy40jj71243o?at_medium=RSS&at_campaign=rss) |
 | Man dies and three injured in helicopter crash | [阅读全文](https://www.bbc.com/news/articles/cx203g3j416o?at_medium=RSS&at_campaign=rss) |
-| Health officials worried as flu season comes five weeks early | [阅读全文](https://www.bbc.com/news/articles/c20pe6llg2zo?at_medium=RSS&at_campaign=rss) |
+| 'Everything's gone' - BBC finally able to access one of Jamaica's worst-hit areas | [阅读全文](https://www.bbc.com/news/videos/c4gj9j66wxno?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
