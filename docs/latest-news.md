@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 17:25:08（北京时间）**
+🕒 更新时间：**2025年10月30日 17:37:22（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | JD Vance calls for reduction in legal immigration at Turning Point event - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPOUVlNlMwLTVFNlpRYkR4YWhIQVdVbjRXdDBGUWVjUHQ1NnY1N2JVazRwejZ2SE1rRnJXdTdTai1IMEF5aDRyTzZyMkNwZmszdXpvTlhXZ0FZSE1tV2VOT2pxNlc2U1pKelFzX0k5VTFHeFZIRFc0bzJMRkpXTENfR19FbGtOWk9SdjJ6c3VRbVRLOW9CcFBtRVYzdUxFT1JlbW9ZSzVJUQ?oc=5) |
 | Former Illinois sheriff’s deputy convicted in killing of Sonya Massey - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPWHVnSnZrZVBrbTFVX0lwdlNDZVRrd21IQzRFZWRkSTE2c1ZyankwelA4bjBFY3A0b0tnR09KY3diN1M4U3pZVEhoVXVMRy1xdHBaakR5T0VuNy0tSE5vdjBkUml6Q0N2bGFUX1c0V1Qtb0laczdaN3FXOVJ6V3dQbVM0NVo?oc=5) |
 | 14 Republican lawmakers say Argentinian beef imports ‘undermine American cattle producers’ in new letter - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOYlE0aVVVLVgzaHhrSEZ0Q0c3Y3lKWFVkLW5Zb19NUjBDeUNVdjl1Vk1lY0RrYWxMc2pMbjFWQWFoWkRxY1VYRXBBYTRMUm4ybnVBQ0xOT05UT0oyUHV0eTh6R21SbVl5NVZkWXdCcmYwdDR5MG1tRUhvdWFCMEYyeVpPejdfQXZFZnpVU0VoNXhiZWpvQ2NHblBFd0hucWl2ejB3MG1nVUJVaEtlQldsZFdWOEFyOUpueEszWnd3RXktRDjSAcgBQVVfeXFMTzdQYTlwOS1aTlplSl9vbkI3VmV4WEZqUmpGOUNQQWtMMU1ubXgzeGhSY2hNTFFNOFJLemhhRmtfbzNYQm50a2xxTVNHZHlaWW8zOWZCTmkyYzRDTTdJMHRtUGJqenJxeWVybkR1cFBWanFsUFFWTzVoSnlDREIwX1hVazdqWkVpZXJEOU1aQUk0bDBDb2lnWGRRUTYwamNTN1lDekVPOW9FNlhvbHF4UERaT3d3d2ZxZjhGN2x3OWZHNGlTZTFNYV8?oc=5) |
-| Trump says South Korea can build nuclear-powered submarine - DW | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPR1U4VHBuWUlGWWxtNHN3ZE94T3l0SGlnSUV0ZmNTZXJIdGk0enRVOUZGNmdQVGRmSkxjbUs5enFOb1V5SWhDa2pMTkp2cW1vcG9oMGZJQW1ZLWpjeFZmRWxFcTVDV1hESE80Y0g5T1NEMllxaVZBaGVCY1N5Y2NnUVhvbXhSdFBTa0dYYktubkNsc2xsT3fSAZYBQVVfeXFMTVliUjczalRxNHBpT2VNXzVLOEpGMzZtSmtaZWttdHRkV0JpOEREOWZtTGx4MlJuNWZTdDF0eTVXZmdtTEcyRHU5MjBabVpxMUs5YkNZOWFiOF9lZFJ0WmFqU2MwZElOS04xXzJ0b2FGUTZJYTJyTWdyUXlUQzdMWnJ0bFNXM3dvREwwU2REa2RfcmZhZVZB?oc=5) |
-| Government shutdown continues as senators express cautious optimism about talks - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOb193QllWRkh4WTdjTUoyMk0tdjN4VWNLRUJrSnJrdzUwTW5PTUk4XzlMbjkzb3NraDZ5eE9ZV3lkUDV2MjNkX3pvUUpyVG00YjZoUGR2S25lb3pBY1RnMXlvNm1TYmFQVjhpQWUyNV9LTDlQQkdUakYtbWt1c0ZYcS1tRXo1QV9ucVhZTWtVQdIBlAFBVV95cUxQekpVN0NURkEzbTBXOGFETHV5Szc4NEp6T2lxU0UwbHd2RXZSMVdzYnZaQmZRUzUyZWpqRjlJbVd4UzlHTEowbTlKb1QzZTUzNFEyZ3FjM0oxODRQaTc3RElrYjBZMndMdE05UWE3c0VVaFRFSE1LaEJtQll3aU5PbTR1cHNROUtKTURLYzhzdnhxX2VH?oc=5) |
+| US will share tech to let South Korea build a nuclear-powered submarine, Trump says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQRDRlVktaWnJQamk5NE9zTFVlZVBJQVFYRXNrcDlNUDhZUm5jYUQzQWM1Vm02QlNYYS1wRnRndkl2QlhIUTRXT19RTkFoWkl1RUNHd1hMcVdRVE4zWUEwTGxnM3lkY0U0ZGRYdUJyOW5uMl9YT25pRXlYbkttWVcxYjVjVk9UdmlLR1hYODVncDM2c0xiWnlCemZjT2hMbGIwVldUMzJB?oc=5) |
+| Testimony is underway in a $40 million lawsuit over a 6-year-old student shooting a teacher. Here’s what we know - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9uNTNySEJ5Zmg1d0p6ZG01cFVaMDhCWVVsMzkwaEVtWEplX05XNGFURHJkNUloZXN2YU0wazh2bXN1Vjh5VDliTVljaVluMlIxVDhheEpuYlB1Wkk1N1Z2WXlBTVZ3cXB4aW9GYUVFNXl5TEdHakZ4RFN5RmRrdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
