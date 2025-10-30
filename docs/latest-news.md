@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 23:37:04（北京时间）**
+🕒 更新时间：**2025年10月30日 23:48:45（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | UK charters flights to get Britons out of Jamaica | [阅读全文](https://www.bbc.com/news/articles/cp8yw58w50eo?at_medium=RSS&at_campaign=rss) |
 | Reports of mass killings in Sudan have echoes of its dark past | [阅读全文](https://www.bbc.com/news/articles/c20pezegv1zo?at_medium=RSS&at_campaign=rss) |
 | I'll never forgive the woman responsible for my wife's paddleboard death | [阅读全文](https://www.bbc.com/news/articles/c9wv8gpneywo?at_medium=RSS&at_campaign=rss) |
-| Hamas hands Red Cross coffins it says contains two Gaza hostages' bodies | [阅读全文](https://www.bbc.com/news/articles/c4gj90j2g8jo?at_medium=RSS&at_campaign=rss) |
+| Israel receives coffins Hamas says contain two Gaza hostages' bodies | [阅读全文](https://www.bbc.com/news/articles/c4gj90j2g8jo?at_medium=RSS&at_campaign=rss) |
 | Lily Allen to tour new break-up album in UK theatres | [阅读全文](https://www.bbc.com/news/articles/cly91q251ljo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -26,7 +26,7 @@
 | Trump cuts tariffs on China after meeting Xi in South Korea - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQbFhKTE9obGI4bzBOa2VkejRidUg4UlpIa2ZnX3Q3V3RMN0F3ajdhdEJ0aDhtT1F1b25zWkRfdEMxRW90cHh5X0lGS01HRWo2Z3NZTVczNURLUy1sblFoVGJnV19QLUlXTEpWeTJFd0FrLWhEWXREODNuN1oybW12NHdjYjNnNV9WSzVaTg?oc=5) |
 | Trump directs Pentagon to test nuclear weapons for first time since 1992 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQNlZyTTVfLU9sSTJFbHVUZkpESFFFRkt6ek1Lck1LY1MxUVZPRjFQYktGYWxUTHRQUWdITXVfMVJqRGhLSDN2bEJVUjR5YUtLSkhsdjBDaHFZcG05dmFHVGZTRkMxRDRnaXZyaVdCMDd2MWxqcVBrWDRVSlJzZWFPM0F3?oc=5) |
 | China will return U.S. soybean purchases to regular levels, Bessent says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE0yY3NaZEZoTzZnUG5nZHYxTFZnN3FJX2F5OXFKVUZuLWQ1eFBqSWFDXzBnYkpYQy1nUThHMEJaa0lGNDkyaUs1VXVZenRFdFE5bmZQZlNkcVhjWHF6ZUVPODhxdkZ3REk2S3dtRXA2Wl9Fb1J6RzNaQ1VHOUU?oc=5) |
-| Hurricane Melissa devastates Jamaica, Haiti and Cuba; at least 28 dead - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPOG9xQ0g3TGxueWRSUXNYZ1AwWk5JSU5fdXhadk82MXExM2R4N1pkTkU1Um12TTlKN0tXdHF5Zjk4SXd1cWFNSDJEZFlaZFM2eDI4Y2pmbEVyRGR0SXQ2X01kTzVKUVQwWUNwLVBfRm93SVlKMGprYlR1RXNya3ZReGRENGTSAYoBQVVfeXFMTXFIZWRIdmxycUgza1hwUFFSY2VBVVJiVms2bzd4ejRPS3I3WjJ4TFVGSFVqWmN6VjFHdTdFZ0ttNlQzMURYQnk2MFp2dE9tQjBVbWJObG5lRUxzZ1E0NnNPTVplU3JLVFgzdEk5ZXBfWFJXc2tSWlVCc09ZdFRMTVlvOUY1a0ZnS1hn?oc=5) |
+| Hurricane Melissa's destruction in Jamaica seen in before-and-after satellite images - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQOVRQamR3N2NGNHlVQWdubVVSNlpNSmpTUlctWTFFc0hCSkZUd1pVMEZiZnI5N2lVVkE0U2NzWm1wdXNUcGgya29kUzNTZm5XazNNTTRxaC1fandLMTUtelM4MzBjaWxVa3gzMUpXSkF5WUhLaVRkeWpFcjh5QWtZbTlkblgydm5OQmRCbEdn0gGTAUFVX3lxTE84VExYdjlFRDZDY1c1ZUZUYlZNVlNjNnZjTG9PdzZNR0JvelRmM09RYmhtVHJHV0MwaXpEbGZNZ21qeGZHMUJlY3RRYUppOE9rTGJneFlPa0NhV0tUclZmbTYyZUtDUzVRYmpWSHNXblk2VUVtOHdlLWhKR2ZOVzhSMGRyUEczOEhHaTBfekpTWHZNYw?oc=5) |
 | Americans oppose Trump’s White House ballroom by 2-to-1 ratio, new poll finds - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQZWNJYmRQaXJzVkZ5eXI2Vm82MEYtbHJzQlZ0eTcya042TW94cDlkaFhyWmxlcUlqV09pRW9hRFdSenJ0V2J1aUpVa2pzUU5SZF8yYVhLN25SUWxLX2JpY2JidjMxc3R1eUlXWHZOOTJnNkNvaVpaTUQ1ck1kbTlEQ29hRzRnUQ?oc=5) |
 | Poll: Voters side with Newsom, Democrats on Prop. 50 — a potential blow to Trump and GOP - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5Wckl3a1ItQTJPcG9NaUcxXzhKYnJSTWd2Zmwtcmh0LVd4SjA2LUY2UTRnLUhzTW1iZzRQSDZtRktHcFBlb25IcmhrTjFnTjZvSG9ILUxzMHNoOE1kR3RPTGFCMnl4Zi14UXRYblhlcDRiendfMFh6eGtQdw?oc=5) |
 | Former Illinois sheriff’s deputy convicted in killing of Sonya Massey - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPWHVnSnZrZVBrbTFVX0lwdlNDZVRrd21IQzRFZWRkSTE2c1ZyankwelA4bjBFY3A0b0tnR09KY3diN1M4U3pZVEhoVXVMRy1xdHBaakR5T0VuNy0tSE5vdjBkUml6Q0N2bGFUX1c0V1Qtb0laczdaN3FXOVJ6V3dQbVM0NVo?oc=5) |
