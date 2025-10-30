@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 20:13:20（北京时间）**
+🕒 更新时间：**2025年10月30日 20:25:05（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Majority of California likely voters say they support Prop 50, poll shows - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOY2tHUnpTR3Z5T3hFbXJnVzZpRnZCS3ZXM3k1Sm9GVUNnU1dXcWRMTlI1SXpCMmkwMTRBRy1TNndMWWhsUzZvLUxYSGJBakVYWGFEd01Ud3BIdHF3VlhqSC1lMklZaEpyVmJmUE5pTzlVcDQxdTFSek4zU1paQi1qdWhHS1ZDME9TdnNZdlhlWmh2YVdVZ1BPVFhoRGxjRm4tOTZYaGxlUdIBrAFBVV95cUxPeldEdkpORGFqdThRWHdKQlBvVl9RWEU2V0RiVTBOWEpNXzFzdHZlT3dtaUJhcDEzaC02ZTBFNUpmR0pPWEZzRWc2RmxlejQ1UFVVRTQwQUVIaEJ0RTgwVU9fMUh2dWlZQWpRMVdTd0dlYmlpbEJKeWRUY2l5bnAtZnJRb2VteUZjREdMZEoxcGJqdHVaOFVNUVpkWkJKNXVLZzBuM3NDS1JlNWpD?oc=5) |
 | Dutch centrist liberals neck and neck in close finish with populist Wilders - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5nWUFZaTJhYmxRalJpWTJ0eWdBVE83OUU0TUplMlFwRTg3LWphcnlwVGdBTW5NaVFrR3Z4SmtCbHpYRDlvMU1iaFFvakFWLXpCMWhHWlFjdFZ3QdIBX0FVX3lxTFA1ajQ2ajk5MEVTeW9Ld1drQ3ZpSVJRbkppdmhXNnpHY0lWX0VHM1VoeDZvbTQwSG50czhnc1lYQ0ZPWUl3Q1piQ2FKYXVMMHBNeG5jOFh5UnR4Y2VoRmRv?oc=5) |
 | Former Illinois sheriff’s deputy convicted in killing of Sonya Massey - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPWHVnSnZrZVBrbTFVX0lwdlNDZVRrd21IQzRFZWRkSTE2c1ZyankwelA4bjBFY3A0b0tnR09KY3diN1M4U3pZVEhoVXVMRy1xdHBaakR5T0VuNy0tSE5vdjBkUml6Q0N2bGFUX1c0V1Qtb0laczdaN3FXOVJ6V3dQbVM0NVo?oc=5) |
-| Farm-state Republicans finally reach their breaking point - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNNENPZ00zOUphZ2pBNlE1dmNxU3oyblBBNXJVV0kweWtZR3IwM18yR3ZhWmtkd3J1WEtiMlU3dVl3b1BxQ1ZUbjU2NU15cXNQVVpMSDlnOVB0LTE0WUZKZmFNMGJEN2hiMDl6Ylp1ZnpEYlY2RHlaY2NuTW1sYTFHMWUzUmVzRHRVSWlNQndyTlZfYXRmeWc?oc=5) |
 | Both Democratic and GOP-led states are starting to rebel against the national redistricting push - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE4zOHYxZUIyMVJjZ0lUUmhXRS1hOFJ0M0JVa29fN1c4WFpvQldYWTJYdWEtN2VCNTJLeXZpX2ZReldWNXJlWE9iQ2lQSEJibjhfX184OXhXdVVrbG9PWHlYa1ppVk45UXJRWVp0YlBHNGRJX3czLUlieg?oc=5) |
+| Farm-state Republicans finally reach their breaking point - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNNENPZ00zOUphZ2pBNlE1dmNxU3oyblBBNXJVV0kweWtZR3IwM18yR3ZhWmtkd3J1WEtiMlU3dVl3b1BxQ1ZUbjU2NU15cXNQVVpMSDlnOVB0LTE0WUZKZmFNMGJEN2hiMDl6Ylp1ZnpEYlY2RHlaY2NuTW1sYTFHMWUzUmVzRHRVSWlNQndyTlZfYXRmeWc?oc=5) |
 | Testimony is underway in a $40 million lawsuit over a 6-year-old student shooting a teacher. Here’s what we know - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9uNTNySEJ5Zmg1d0p6ZG01cFVaMDhCWVVsMzkwaEVtWEplX05XNGFURHJkNUloZXN2YU0wazh2bXN1Vjh5VDliTVljaVluMlIxVDhheEpuYlB1Wkk1N1Z2WXlBTVZ3cXB4aW9GYUVFNXl5TEdHakZ4RFN5RmRrdw?oc=5) |
 
 ---
