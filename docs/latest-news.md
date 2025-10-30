@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 15:48:49（北京时间）**
+🕒 更新时间：**2025年10月30日 16:01:48（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Starmer rules out investigation after Reeves admits rental rules ‘mistake’ | [阅读全文](https://www.bbc.com/news/articles/cd04d0yxnrvo?at_medium=RSS&at_campaign=rss) |
+| Five new suspects arrested over Louvre jewellery theft | [阅读全文](https://www.bbc.com/news/articles/cz91jnyelq2o?at_medium=RSS&at_campaign=rss) |
 | Dozens dead in 'total devastation' left behind by Hurricane Melissa | [阅读全文](https://www.bbc.com/news/articles/cy0kvrnyy4wo?at_medium=RSS&at_campaign=rss) |
 | Homeowners plagued by damp urge government to fix 'botched' insulation | [阅读全文](https://www.bbc.com/news/articles/ce8g3018krro?at_medium=RSS&at_campaign=rss) |
-| How China really spies on the UK | [阅读全文](https://www.bbc.com/news/articles/cgr4xpyrkdqo?at_medium=RSS&at_campaign=rss) |
+| Why the national security threats China poses go beyond traditional human spies | [阅读全文](https://www.bbc.com/news/articles/cgr4xpyrkdqo?at_medium=RSS&at_campaign=rss) |
 | Backstabbing, dirty work and an iconic exit speech in Celebrity Traitors | [阅读全文](https://www.bbc.com/news/articles/c98n7k67y95o?at_medium=RSS&at_campaign=rss) |
 | Thousands on benefits could have energy debt cancelled | [阅读全文](https://www.bbc.com/news/articles/c4gpzynky88o?at_medium=RSS&at_campaign=rss) |
+| First UK phones to get satellite connectivity in signal blackspots announced | [阅读全文](https://www.bbc.com/news/articles/c993m88jer9o?at_medium=RSS&at_campaign=rss) |
 | Trump directs nuclear weapons testing to resume for first time in over 30 years | [阅读全文](https://www.bbc.com/news/articles/c4gzq2p0yk4o?at_medium=RSS&at_campaign=rss) |
 | Dutch centrist liberals neck and neck with populist Wilders in tight election | [阅读全文](https://www.bbc.com/news/articles/cpwvy4w875vo?at_medium=RSS&at_campaign=rss) |
-| First UK phones to get satellite connectivity in signal blackspots announced | [阅读全文](https://www.bbc.com/news/articles/c993m88jer9o?at_medium=RSS&at_campaign=rss) |
-| Dependants of Gazan students can join them in UK, government says | [阅读全文](https://www.bbc.com/news/articles/cly91lj9y47o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
