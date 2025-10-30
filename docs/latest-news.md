@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 20:00:35（北京时间）**
+🕒 更新时间：**2025年10月30日 20:13:21（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Cruise operator 'failed' woman who was left on island and died, family says | [阅读全文](https://www.bbc.com/news/articles/cwyndvj3640o?at_medium=RSS&at_campaign=rss) |
 | First UK phones to get satellite connectivity in signal blackspots announced | [阅读全文](https://www.bbc.com/news/articles/c993m88jer9o?at_medium=RSS&at_campaign=rss) |
 | Lily Allen to tour new break-up album in UK theatres | [阅读全文](https://www.bbc.com/news/articles/cly91q251ljo?at_medium=RSS&at_campaign=rss) |
-| How China really spies on the UK | [阅读全文](https://www.bbc.com/news/articles/cgr4xpyrkdqo?at_medium=RSS&at_campaign=rss) |
+| Backstabbing, dirty work and an iconic exit speech in Celebrity Traitors | [阅读全文](https://www.bbc.com/news/articles/c98n7k67y95o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
