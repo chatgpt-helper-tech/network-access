@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 02:00:21（北京时间）**
+🕒 更新时间：**2025年11月01日 02:13:53（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump muddles nuke-testing message - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQUXdmdEszNlExZnFpeUhKdWNHSzhkQl9iZVhhOEJXQWpDTjZITUtJeTZFZkhhZ1I3R2t2SjZVaU5nQkJtWHZuZkU5cldiVy1BaXJ6V2VwZEpwd09yT2dld2Vta2xKa3dxYzQ5Qk1zTVp4TTV4NjlGWXdsb1ZwczBfTQ?oc=5) |
 | ‘I feel guilty eating a meal’: Low-income families prepare to lose access to billions in federal aid - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOSFN0S2FwOGpsSzB1RjlIWTVLRFpvNVhGWGsxMkhkelRXRVQzeDZXNGFuVERlYVEzUjBhVHZaanFzMWNrTi1oZXZudlFjb2NnZEhyTGxxVFhVRk1iVDFFaml0M1lQTzQ0SUFmdXgzc2luR2o4UFZTcW9CV3ZtbWF2Z29xRG51MS1OTGVkcXo0VnllRXc?oc=5) |
 | Trump Live Updates: Government Shutdown, SNAP Ruling and Push to End Filibuster - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE8tRUFsakxRdUtPM0RxamNmcjhjbloxc3QtbW4wZDl3VXE3NUpsN3VqSnNhUUI1MXVObERSamFFZFZPN0FIejY2WWtCak8tNTZ1LWJCejdMQ2V3b00tWng0d1ZTQQ?oc=5) |
-| Kennedy Center ticket sales have plummeted since Trump takeover - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQcWMyWmFtRmFXMi1vbWtmelV5akJMVDY5LURDU3VvZHByZUJWQURGdlZSbVdTMmd5d1pHSUE1QnBWOW1JOVpWbW1iU3lNWHNZZDN3TnJxcThiNXJVYnJwQ21zT0tMSmU3eGdMNjNDQWFHM3VuWW04dHVhR282c3JrVWFkWQ?oc=5) |
+| Haiti, Jamaica and Cuba pick up the pieces after Melissa's destruction - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxONkowQmg0T04wb0YzRkZLX09lWGpob2ZGN1labkNNMklOZWlKMjFmbjhYNmR5cGFoZGFyOExzNDc4SjBqYUtsdXZHYUFWd0U5VWFSeEtIYjV3aDJWdTMtMUJGLTNvRVBIb3R6ZHRfRkt2cTB1U0hocnd0WHo2MjVmc0ZSckhpenpoVkRod1pjT2E?oc=5) |
 | Advocates allege ‘inhumane’ conditions at Chicago-area ICE facility in new lawsuit - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOV0ExUkdCMm0yd1k5MlpFTTFibFVpT0RBanF2TnhnX2t5NjhTSEg0NmN1aWZZX2JkenBXRlZaUEpxc21GNV9hU3BheWt2eTZlYldNcWY2djVEUVZCQTlsY0kwWklPY0RubFdOQmMyZHNNLVNQcHo1Z0JOSkgwQVZjVGhRYVVqeHNHRHRTX2xmNm0tcVlVTnNCTjFnRG9FT0VKQWNB?oc=5) |
-| Graham Platner’s finance director resigns in latest personnel shakeup - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNU3NDLVcwdWIwM2s2UXViZGtJTnR4NWp2a2dQQVNwQ0FRcGQtWEhqXzhMZDB5Q2JkRzJ4UVpKR1NsOTVlZXhHOGJwQ1FLT1cwLW5VQWNvb1ZvcnJOWWVwclVCMVdENEtobm4zTE5yQklQRzRrOGJuOWxvNGdaOUdKRnFtNjFpQUg5bmtzUENVWjdtRk9Z?oc=5) |
+| Democrats plot messaging blitz ahead of Obamacare hikes - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNMjVCUFlDQnl2T1lyZVNfd3Y3dFhWN2xmUXkzc1d0eUVZb3JUMXN2V3Fma3JkVF95X2NVTVRPWjQ4czRSZi1keWVFamczRzBmNmk5aGRXRjhuTFVmd21rRlQ1aTdFU3hFeTMtNVdmTXR0U1VhVHVoMFV4UmNyOXpBeHhmS1N3MTJTVmpCR21jallOZTVLR2VGb25Mb0k?oc=5) |
 | Ohio lawmakers pass new congressional map after reaching an unexpected deal - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQVnZLMzJxS0c2RmhwTWdjYzY4MER2SWVvejI4MlJIMko3OG50N3hhNWZKY0Q2SGN1cUhlZUI0a1NONkxyaUNoeEhmcDZlOE1BTFlaT29qSWtjU0ZXMlludUJjQzlJNGRtRHBPSnVxckZBRUJJQzVodGg5UEZGT1prdTRPMGRNbnVUMXNkV0phQ3ZTcExkRE5uWUZqdC1mVHI0b2V5M1RVbzk2d9IBVkFVX3lxTFBPWkZZd2pMSndqUWt1bGZTOXRnVnFxNWUtYXFOS1l1MGRoME5rZDNVRGVrUWhXdDk0VGU4NUJpdWl1VkU5a1o3bTBEYzQ1c2FsQmFDdWlR?oc=5) |
-| Millions face 'huge sticker shock' when ACA open enrollment starts Nov. 1 - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPRllydE04UHB0QmN4Vk5KOGhobThCQmJLQk0zMnJGeHR2czhoZGEzQ3Y1TnpfNmFibUI3UHRCRDZCckJ5MnNrclc1SjFXVzYzdnNobllFMzhKYmVNVHFUSWdLeVdpVjdKOGtuQUhxSThFSVM4V1Z0WXViZVEwcGpxdFVsUzN6d3p4VGfSAY8BQVVfeXFMT25feEtpcmpxcXZsZE1LcEdpTEQtRVJINFNjejJuY2R5QTljdXBGV2tXZHN4cTdNWHQzNzUtbFRMc1BtSjllYlY1OVZ5eWdTQkgySlFDUHM0MEpxZm9tbmRJTElTZGJJejlxQkdsM1pEQ3VTQ2NQenFYcHlzX2RscThRVk43ckY5NDBjbzRJRFU?oc=5) |
+| Deadly storm shatters NYC rainfall records. Central Park sees highest total in more than 100 years - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE4yOFF2d3FsLTFsREY1Q1QwaXd6YWpQal9BZlNKYWpaZUw4Tm90dTdpX2xMSEhIV0xENnpQN2lLNi11QW12d3c3dlFTelQ5aDFuZ042U21yTWpPbGhEN01iLW13SDk2d3Z2YVIxMl9tLUFLUDVpVkFhSGdTTFFuUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
