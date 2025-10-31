@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 14:01:00（北京时间）**
+🕒 更新时间：**2025年10月31日 14:13:03（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Pornhub says UK visitors down 77% since age checks came in | [阅读全文](https://www.bbc.com/news/articles/cgkz3m3re1zo?at_medium=RSS&at_campaign=rss) |
 | Heartbreak, headless dummies and  'eggy' Shakespeare: Celebrity Traitors fight to the death | [阅读全文](https://www.bbc.com/news/articles/cvgvqj5w233o?at_medium=RSS&at_campaign=rss) |
 | Martha Kearney: I'm worried about Britain's wildflowers - so my husband and I planted a meadow | [阅读全文](https://www.bbc.com/news/articles/c3rjnlv8ejxo?at_medium=RSS&at_campaign=rss) |
-| Trump caps US refugee admissions at 7,500 - mostly white South Africans | [阅读全文](https://www.bbc.com/news/articles/cy40jj71243o?at_medium=RSS&at_campaign=rss) |
+| Sultana says new party is aiming to 'run government' | [阅读全文](https://www.bbc.com/news/articles/cly2xjgpg92o?at_medium=RSS&at_campaign=rss) |
 | Hundreds of energy-intensive businesses to see bills cut by £420m from next year | [阅读全文](https://www.bbc.com/news/articles/c5ype0gp7lgo?at_medium=RSS&at_campaign=rss) |
 | 'We saw people murdered in front of us' - Sudan siege survivors speak to the BBC | [阅读全文](https://www.bbc.com/news/articles/cgr4qqgdlkjo?at_medium=RSS&at_campaign=rss) |
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | What does Trump mean by 'nuclear testing?' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1WYmNsVUhOWnFTeWZRcXN3MG52LW1oM0tQZDVkSC0xRzZGc1pTVkYtbnZ4NmZYWjdYUnE3aWo5UzJZTExOLVdiRFczelZ5Y3ZjUkRXNEkyTzRIcGpPSnRSYUFRdzloSWlwR0lneG15bHA4WnI1VGRyM1BfZ3nSAYIBQVVfeXFMTVMzamhZcDNEUlh4UUM0a2hfVlB0VS1RbS1TektHUExSSVZTUEdXS0xoMUFXb1U5Nl9kcDVDdmpJR0FEeW9GLWgzUEVwM0tYMlNLZVF3UHE5RDlMcmZfcnR5S0VUbnotaVBray1qcmp0REkyTE1WVTBNMjVYUUY1TVFIUQ?oc=5) |
 | Haiti, Jamaica and Cuba pick up the pieces after Melissa's destruction - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxONkowQmg0T04wb0YzRkZLX09lWGpob2ZGN1labkNNMklOZWlKMjFmbjhYNmR5cGFoZGFyOExzNDc4SjBqYUtsdXZHYUFWd0U5VWFSeEtIYjV3aDJWdTMtMUJGLTNvRVBIb3R6ZHRfRkt2cTB1U0hocnd0WHo2MjVmc0ZSckhpenpoVkRod1pjT2E?oc=5) |
-| Trump calls for end of Senate filibuster to break funding stalemate - CNN | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOam9scTE4dUdUcGxnakVxMDluNDNHYlR0NVN1bUVYMjc5MVhYWDVibUpQbUktLXdBMXBlM3c2YmlPQWRPOGpyQ1N6WV9CVHUwYjhGM1lsVlYtb3BIWEN3eGdEblpVMC10T21jLVZuV0FNNTZVeHQ5UE1aNkZZY2VQajN1ek1Uc3JvN01ZMW5MaW5vUl9JNkduN01wVG5WWWc?oc=5) |
+| Trump calls on Senate Republicans to "Get rid of the Filibuster" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNSHBUQU8tbHJtSjItRV9uZ0M2UWIwWllQaUllTzJ3RUV0YWc3N1VQdFJyaTdhRnJrLTk1bWJZMnJfTWRIQ0o2cVZ1dUwxR2tJM1pWSU00dzdHQlVUSDFMbk5NUXJQdXVCZktHYllBbkZWcG1fX1Z0SnQ2QWFCeXl4Z1FBaHhMcUNVcno0b2x5eHBBUlpjRzJ30gGcAUFVX3lxTE9HMW1Qb0ZhWnZyMk1GS2Fvc3hmTnlJbFZXdXNXTms5VDJVemF6MjdJU0VJcVc2cktqMjJOTnQtc3hXb21xRnoyYXNNTVB3WDlFTWFLZ1c3VVVqRkNfUUlRY3N0OTVldE5fVmRXMUVEM2V3VTQwMDc2RkJsTVhoOXFGeUpOSml5WFV0cU1qOG1udWpDRlZBbVhWLUlsRA?oc=5) |
 | Judge says she’ll likely order Trump administration to send SNAP funds to states - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQWjRyNWRIaHdmb1lnSno3NHI2NW5FZ1lNTjktaWVFTVhRd2hZUnItZUZTLTMtbWpWMW8xNXVlb0dRRW9MOWVvOU9jRURFV2NiREV6eDF6OENqSHZleFBteWxkazFrbUZfeThWTWxvR21KeW9LNlZrOFRPT010ajVOZzB3bXdjanlGbmc?oc=5) |
 | Trump sets lowest-ever refugee cap. See how other presidents compare. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPVzBONDdMamtrQml0XzFGR0lkRkRwTG1jN044Wm9Bd1NhLXFVeUwxbDIweU11anFWc2JxdHAwUklCVnZXODRZV1ZuSEdsWjJTRVBZd290SDhtMVJmMWE1X2JfcTMySG1KanRqNUFGbDJNWFpHeGwzbTZDd0pmVkhIcWplVVNNcGxWTVVUN1dB?oc=5) |
 | China emerges as US ‘peer rival’ at Xi Jinping-Donald Trump summit - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1mVVV1aUtBU2Z3SGZtNWJhbFRocDVxV0ttVF83eDZzdkF4V3pHZ2J6S1VrNXZCMmw2enJGaWNMSk5CNFh5OWQ5cEVUb0lZcTQ5aklUWGEyazY4UWgyNWNUeEpkaVJteXF3TDE3S2YyaEg?oc=5) |
