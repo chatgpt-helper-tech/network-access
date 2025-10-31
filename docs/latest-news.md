@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 14:24:29（北京时间）**
+🕒 更新时间：**2025年10月31日 14:36:27（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Pornhub says UK visitors down 77% since age checks came in | [阅读全文](https://www.bbc.com/news/articles/cgkz3m3re1zo?at_medium=RSS&at_campaign=rss) |
 | Heartbreak, headless dummies and  'eggy' Shakespeare: Celebrity Traitors fight to the death | [阅读全文](https://www.bbc.com/news/articles/cvgvqj5w233o?at_medium=RSS&at_campaign=rss) |
 | Martha Kearney: I'm worried about Britain's wildflowers - so my husband and I planted a meadow | [阅读全文](https://www.bbc.com/news/articles/c3rjnlv8ejxo?at_medium=RSS&at_campaign=rss) |
+| Jamaica's 'ground zero' - Assessing Hurricane Melissa damage in Black River | [阅读全文](https://www.bbc.com/news/videos/c993gkjk1plo?at_medium=RSS&at_campaign=rss) |
 | Sultana says new party is aiming to 'run government' | [阅读全文](https://www.bbc.com/news/articles/cly2xjgpg92o?at_medium=RSS&at_campaign=rss) |
 | Hundreds of energy-intensive businesses to see bills cut by £420m from next year | [阅读全文](https://www.bbc.com/news/articles/c5ype0gp7lgo?at_medium=RSS&at_campaign=rss) |
-| 'We saw people murdered in front of us' - Sudan siege survivors speak to the BBC | [阅读全文](https://www.bbc.com/news/articles/cgr4qqgdlkjo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,9 +30,9 @@
 | China emerges as US ‘peer rival’ at Xi Jinping-Donald Trump summit - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1mVVV1aUtBU2Z3SGZtNWJhbFRocDVxV0ttVF83eDZzdkF4V3pHZ2J6S1VrNXZCMmw2enJGaWNMSk5CNFh5OWQ5cEVUb0lZcTQ5aklUWGEyazY4UWgyNWNUeEpkaVJteXF3TDE3S2YyaEg?oc=5) |
 | Trump sets lowest-ever refugee cap. See how other presidents compare. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPVzBONDdMamtrQml0XzFGR0lkRkRwTG1jN044Wm9Bd1NhLXFVeUwxbDIweU11anFWc2JxdHAwUklCVnZXODRZV1ZuSEdsWjJTRVBZd290SDhtMVJmMWE1X2JfcTMySG1KanRqNUFGbDJNWFpHeGwzbTZDd0pmVkhIcWplVVNNcGxWTVVUN1dB?oc=5) |
 | Air Controller Shortage Causes Delays in Orlando and at Other Major Airports - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPZGpaTnZ4NFNWY1lBRVdKNDJVdFNVYU93a0piT3lseTg5UFNvN2hKbnBMTjRybHUtcGdKVlByaFdjZlE0T0lHLUE4c1Y2T2xIQ0ZHaE5mdXZPU3RNRlV4LUF3amR4bmtnQUxrWExEbFhRbTNtS0JNZmxYT1QwMDhRMWZzQjhTTlR4cXQxa3phM3BUcTA3b3Q1eUl0andWQQ?oc=5) |
-| Photos: Trump hosts trick-or-treaters for White House Halloween bash - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBVNDMyeVlMcWVzUENDY2VUS09wS0VmeXljR0Nrc255Tk5YSGNBMFlMc0NwT2U2ZFQzd3VrRHVydDkzTk5Sc2Y3VXNJOHQzTjFpR1RuV2NpR2NTUVoyNFdBN292ZldBeWJra2tlZ3AzVnExeDVwRk5qQtIBfkFVX3lxTE1jVXBRQVN2Mlh5M1FfMHE3Mm9KRUZMRFU4b252LXZ3YzVlcTY5NG14REVtZ3FVd093aFduNHJYeE1GSVBkNU94VEIzTnhsNzdTaWEzSkhtTF83d2Nrd3hia1NId2ZFbjN6NWhXclJraFlWUUFkTW1zMjhfeUVLdw?oc=5) |
+| Photos: Trump hosts trick-or-treaters for White House Halloween bash - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBVNDMyeVlMcWVzUENDY2VUS09wS0VmeXljR0Nrc255Tk5YSGNBMFlMc0NwT2U2ZFQzd3VrRHVydDkzTk5Sc2Y3VXNJOHQzTjFpR1RuV2NpR2NTUVoyNFdBN292ZldBeWJra2tlZ3AzVnExeDVwRk5qQg?oc=5) |
+| 2 California ICE shootings in nine days: Latest confrontation leaves bloody scene - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOYmtBdjRaR1FXNmpGaHdnZmFId0hJZVU3aUtlaW8tSTRqdjFiek01RGYxYXNMR1dUVUVsZFgyNXA3aXNhSm5PWUNiOFltbUJiMmdsNmZ1dUpuTUpMaGVoRWFCZFoxMHpSMXZXNW9YcDZQaGNCNHZwaERZUjZNMWpCejdUVkgzSDZm?oc=5) |
 | Trump isn’t issuing Oval invites to end shutdown — yet - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQNzNiOFFiemJhLXoxZU5Ba0FudlhxenNZMDNxTmdrUzBEV0tldjQ0U0p1ZExqRnhmNjl6cFBZZnN3TkhIYzl1YWh3bHlDTEZZVWNzZGpXN1hoSHV2d2FWcEh0RUZ6SXU1amhOMUFMcEtkN2U1bnJaeWowMFhraFY5NmRjdTY2Zw?oc=5) |
-| ICE says man shot by agent in Ontario was interfering with an operation - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOUkRyM3BJYVM3c2ZpSVVUYktWbHFxd0JpYlJla1c5QVctREFldFY4M3BJQm0ycnNkS28yWU5sLWtHWmdycHZLNTBReHgtbTBrUW9HdXFTazRVTnNCUFhtYjRwUzdpY0oydVlmcGFaVXJYMFdTYW9pMDNmaE91bWlScFRmX0ZfQU90WVF0NDZvNkxBZ2VaMVBKaTF3N25TRTZnbmfSAacBQVVfeXFMTUp0Z0RGVDVZRzlpT1RLb1FXS1I3REVuSlBobnZ4UGtCZml6ZWxWaTJyeTQ5dDlDWC13SlEtMzRXZExIU1NZVDZ3MUVfb0xPc2xJc2dJbE9uWEJwOUNyZjVZZ1JoOS1rVERqeTM2cVplejdIRnVKX1JESFBGUnlsUDVZNHR1YVJyWVFBbTBXUVZHOW52RGlvc2xtR2NPMjFMTDNxWVFiSzQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
