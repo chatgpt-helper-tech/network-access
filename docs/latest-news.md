@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 08:12:59（北京时间）**
+🕒 更新时间：**2025年10月31日 08:24:25（北京时间）**
 
 ---
 
@@ -8,6 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Andrew stripped of 'prince' title and will move out of Royal Lodge | [阅读全文](https://www.bbc.com/news/articles/cr7m4yjkp74o?at_medium=RSS&at_campaign=rss) |
 | Is this finally rock bottom for Mr Andrew Mountbatten Windsor? | [阅读全文](https://www.bbc.com/news/articles/c62elnjnqqxo?at_medium=RSS&at_campaign=rss) |
 | Letting agent apologises for 'oversight' on Reeves rental licence | [阅读全文](https://www.bbc.com/news/articles/cx2p55ejy88o?at_medium=RSS&at_campaign=rss) |
 | What the Reeves emails tell us in rental licence row | [阅读全文](https://www.bbc.com/news/articles/cj41y1ze9jyo?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | Man dies and three injured in helicopter crash | [阅读全文](https://www.bbc.com/news/articles/cx203g3j416o?at_medium=RSS&at_campaign=rss) |
 | 'Everything's gone' - BBC finally able to access one of Jamaica's worst-hit areas | [阅读全文](https://www.bbc.com/news/videos/c4gj9j66wxno?at_medium=RSS&at_campaign=rss) |
 | Health officials worried as flu season comes five weeks early | [阅读全文](https://www.bbc.com/news/articles/c20pe6llg2zo?at_medium=RSS&at_campaign=rss) |
-| Watchdog slams O2 over unexpected price rise | [阅读全文](https://www.bbc.com/news/articles/cd047vl9ylpo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
