@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 05:13:40（北京时间）**
+🕒 更新时间：**2025年11月01日 05:25:13（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Trump sets lowest-ever refugee cap. See how other presidents compare. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPVzBONDdMamtrQml0XzFGR0lkRkRwTG1jN044Wm9Bd1NhLXFVeUwxbDIweU11anFWc2JxdHAwUklCVnZXODRZV1ZuSEdsWjJTRVBZd290SDhtMVJmMWE1X2JfcTMySG1KanRqNUFGbDJNWFpHeGwzbTZDd0pmVkhIcWplVVNNcGxWTVVUN1dB?oc=5) |
 | Health insurance premiums for 1.7 million Californians on Obamacare will soar as federal subsidies end - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi6AFBVV95cUxNTWRfdk9nSzZzTXRvYV9OWnRzRWx3T2R6RHdoMXYycTctQTQ4RXU4NmI3Z3R6SWlMVDdQM1diTk54ZDRQalZabkZYaHpHbU1mTE1kRWRqc01lRUxsWi13MFp2Wmxic3N6aUo4U042Zk5GcF9uR1pfU29LVUw4MHB6UEFCdVJnTWlTY3NhbG93THBxUnU1RV9ZTWZZbXk0amRjYzQ3Z0RHbXZUZDY3UzhrSDVtb2Z0eEFrd0xydUZnTW5taFNzaXd4QU12U1FXQU93eEhkUUZkQ2NnT0o5OG5tei1WZHNIT0dQ?oc=5) |
 | President Trump shows off White House's Lincoln Bathroom renovated entirely in marble - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOMHdzV01rYlJWTmRPSVRYdUJscGF2aWZwT2NnOE1INklzTldGdGE2emhXckRwTTdUSUF5WGtjUk5nb1JmMWVQV3haN01ETFFodUtnMG5CcXlNcnp6c1lZRUNGcHdsRjI4ZDgxLXdyT0VXOHVMUU1uWGVuaTEtX1lKNVAyTS1XMmF1cjJnTWFCV2VrUHQ2bzJCcUxPRjlweWkxLVpWa1lZV3XSAa4BQVVfeXFMUHNKNWl5d0hYQWRoQ1lWNS1COGhqTmZwSTFwelRNREw5c0lUQkhrLXl4cGE1Y3huczdncC14YUFjTXZnenZCWlE0UFV3Mm0yeDBDb2JHN25vVTRnc3plSEV2MUlRbVY5WjhybWgzXy1iM1RGZVMtUnlJeHJ5M0YtdGJsaWdIeG5vTG1NT2RWMVRPWHEtZUY3bHNxaUZ3R3hLNWQ4cU5uMk5FUnFPNWlB?oc=5) |
-| Lawsuit Alleges ‘Horrific And Inhumane’ Conditions At Broadview ICE Facility - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOMW5RUXVfZnBlbnJaXzNibnIyUUgwekFSNVN2Tlc2NzFEWFltYnhJMVdsd0RfZWw5XzdVRExOenVYYTczbDVIaFZjSi1DeHZZd3FjcXVGU2YtYnFlNlI2azFTd1VCNFd5cTBPYUM5dzlPc2c5bU1rb1JBZUtoTlM0eDY1Tk5jQlRyYzMwbU13NE84UnM5WnhVNVp1TXc5QVhXekZnaElWX2x4aENxX1J2R0dRWnpjZw?oc=5) |
+| Virginia Advances Redistricting Plan Toward New Congressional Maps - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE05elJNV0JUR2NYdzV3RVQyN3NFNGpzNzFlWDhUSFY2SlV4dXlmVnRuSUptLWpHT21XMjJYLVB6RDdxbjgxRlFCZlZGcGlWZnlyRTZYV2VHRlBIQVpMTzd6ekJFZ0RkLWhhVXVBaG4zS2s2Nmc?oc=5) |
 | ‘I feel guilty eating a meal’: Low-income families prepare to lose access to billions in federal aid - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOSFN0S2FwOGpsSzB1RjlIWTVLRFpvNVhGWGsxMkhkelRXRVQzeDZXNGFuVERlYVEzUjBhVHZaanFzMWNrTi1oZXZudlFjb2NnZEhyTGxxVFhVRk1iVDFFaml0M1lQTzQ0SUFmdXgzc2luR2o4UFZTcW9CV3ZtbWF2Z29xRG51MS1OTGVkcXo0VnllRXc?oc=5) |
 
 ---
