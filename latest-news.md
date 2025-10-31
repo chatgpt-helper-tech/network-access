@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 13:01:08（北京时间）**
+🕒 更新时间：**2025年10月31日 13:12:35（北京时间）**
 
 ---
 
@@ -27,11 +27,11 @@
 | Haiti, Jamaica and Cuba pick up the pieces after Melissa's destruction - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxONkowQmg0T04wb0YzRkZLX09lWGpob2ZGN1labkNNMklOZWlKMjFmbjhYNmR5cGFoZGFyOExzNDc4SjBqYUtsdXZHYUFWd0U5VWFSeEtIYjV3aDJWdTMtMUJGLTNvRVBIb3R6ZHRfRkt2cTB1U0hocnd0WHo2MjVmc0ZSckhpenpoVkRod1pjT2E?oc=5) |
 | Trump calls for US Senate to scrap filibuster rule - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQU2Zna0t5bU9hTm9sazZLU0tDWHg2azA0Znc2TEJ4ZGhkZzBLTHpFU3FSN2J5bmlpRUJHRUZMSUxwdlBId3MxbmdGMnk5aHUtcnRmY3E5dXEzREJXLTZPMGtod2Q3RFA0dHUta19vTmloeGhkM2F4ZG1GUXotdFF6emFSZjlmZWo1bEZPUWt0cXFNSFRkdFJ5TTZqR3Nma08zYnF1dE1n?oc=5) |
 | Judge says she’ll likely order Trump administration to send SNAP funds to states - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQWjRyNWRIaHdmb1lnSno3NHI2NW5FZ1lNTjktaWVFTVhRd2hZUnItZUZTLTMtbWpWMW8xNXVlb0dRRW9MOWVvOU9jRURFV2NiREV6eDF6OENqSHZleFBteWxkazFrbUZfeThWTWxvR21KeW9LNlZrOFRPT010ajVOZzB3bXdjanlGbmc?oc=5) |
-| Trump sets lowest-ever refugee cap. See how other presidents compare. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPVzBONDdMamtrQml0XzFGR0lkRkRwTG1jN044Wm9Bd1NhLXFVeUwxbDIweU11anFWc2JxdHAwUklCVnZXODRZV1ZuSEdsWjJTRVBZd290SDhtMVJmMWE1X2JfcTMySG1KanRqNUFGbDJNWFpHeGwzbTZDd0pmVkhIcWplVVNNcGxWTVVUN1dB?oc=5) |
 | China emerges as US ‘peer rival’ at Xi Jinping-Donald Trump summit - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1mVVV1aUtBU2Z3SGZtNWJhbFRocDVxV0ttVF83eDZzdkF4V3pHZ2J6S1VrNXZCMmw2enJGaWNMSk5CNFh5OWQ5cEVUb0lZcTQ5aklUWGEyazY4UWgyNWNUeEpkaVJteXF3TDE3S2YyaEg?oc=5) |
+| Trump sets lowest-ever refugee cap. See how other presidents compare. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPVzBONDdMamtrQml0XzFGR0lkRkRwTG1jN044Wm9Bd1NhLXFVeUwxbDIweU11anFWc2JxdHAwUklCVnZXODRZV1ZuSEdsWjJTRVBZd290SDhtMVJmMWE1X2JfcTMySG1KanRqNUFGbDJNWFpHeGwzbTZDd0pmVkhIcWplVVNNcGxWTVVUN1dB?oc=5) |
 | Air Controller Shortage Causes Delays in Orlando and at Other Major Airports - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPZGpaTnZ4NFNWY1lBRVdKNDJVdFNVYU93a0piT3lseTg5UFNvN2hKbnBMTjRybHUtcGdKVlByaFdjZlE0T0lHLUE4c1Y2T2xIQ0ZHaE5mdXZPU3RNRlV4LUF3amR4bmtnQUxrWExEbFhRbTNtS0JNZmxYT1QwMDhRMWZzQjhTTlR4cXQxa3phM3BUcTA3b3Q1eUl0andWQQ?oc=5) |
 | Photos: Trump hosts trick-or-treaters for White House Halloween bash - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBVNDMyeVlMcWVzUENDY2VUS09wS0VmeXljR0Nrc255Tk5YSGNBMFlMc0NwT2U2ZFQzd3VrRHVydDkzTk5Sc2Y3VXNJOHQzTjFpR1RuV2NpR2NTUVoyNFdBN292ZldBeWJra2tlZ3AzVnExeDVwRk5qQtIBfkFVX3lxTE1jVXBRQVN2Mlh5M1FfMHE3Mm9KRUZMRFU4b252LXZ3YzVlcTY5NG14REVtZ3FVd093aFduNHJYeE1GSVBkNU94VEIzTnhsNzdTaWEzSkhtTF83d2Nrd3hia1NId2ZFbjN6NWhXclJraFlWUUFkTW1zMjhfeUVLdw?oc=5) |
-| Trump isn’t issuing Oval invites to end shutdown — yet - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQNzNiOFFiemJhLXoxZU5Ba0FudlhxenNZMDNxTmdrUzBEV0tldjQ0U0p1ZExqRnhmNjl6cFBZZnN3TkhIYzl1YWh3bHlDTEZZVWNzZGpXN1hoSHV2d2FWcEh0RUZ6SXU1amhOMUFMcEtkN2U1bnJaeWowMFhraFY5NmRjdTY2Zw?oc=5) |
+| The federal government is still shut down. Here's what that means across the country - NPR | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBSQXFJVk40UHRDaF9UbDZ4SzQ5NExDbnJEb1h5bXBGRXd3UEZBTTJmenFuMVRTR2JPOU9PRk9xcDVXNGZCNjVmWldtSE9lbGFrRzJFZWxXdVBjMkJUWE9udlo4NVJpR0JiNVhQUTZPblNmQQ?oc=5) |
 | US Senate votes to reject Trump’s global tariffs on more than 100 countries - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1qckNIUWdtNnVhazREOXZlSFAyZ1dyTDRWRWxJZmNxMFh1WDdjSjhCMi11Z2ZrR2dGQmRLTUxaUDVwa3FxUnBFTG9reDNCSHhYZGJ4WHk0aW9hUk5UMlpqekhWckdtcEhJSGpKMlRTWnpMN2d0X3ZLLVJhTzg1Zw?oc=5) |
 
 ---
