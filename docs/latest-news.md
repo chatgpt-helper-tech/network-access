@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 12:01:12（北京时间）**
+🕒 更新时间：**2025年10月31日 12:12:49（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Trump sets lowest-ever refugee cap. See how other presidents compare. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPVzBONDdMamtrQml0XzFGR0lkRkRwTG1jN044Wm9Bd1NhLXFVeUwxbDIweU11anFWc2JxdHAwUklCVnZXODRZV1ZuSEdsWjJTRVBZd290SDhtMVJmMWE1X2JfcTMySG1KanRqNUFGbDJNWFpHeGwzbTZDd0pmVkhIcWplVVNNcGxWTVVUN1dB?oc=5) |
 | US Senate votes to reject Trump’s global tariffs on more than 100 countries - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1qckNIUWdtNnVhazREOXZlSFAyZ1dyTDRWRWxJZmNxMFh1WDdjSjhCMi11Z2ZrR2dGQmRLTUxaUDVwa3FxUnBFTG9reDNCSHhYZGJ4WHk0aW9hUk5UMlpqekhWckdtcEhJSGpKMlRTWnpMN2d0X3ZLLVJhTzg1Zw?oc=5) |
 | White House taps multiple accounts to pay troops amid shutdown - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNd1BzS0F1LUR5NTczRFg1Ukdqd290aXE3dFJIT0FfdE1vTG5saEs1dWlfZDBqSUNHdnpvWWtfeXV2VFFybEZFempobkZtM05UOERXNzlodHQ5YV80Y210Zk5mbXVVMnVJTFpGcjNOMktEZFNDVzNBSUlfRlJYakFBVElDemZpYjg1b19zajIxWHc0RDV2ZFE5NHdsYzJXcG9xNmFLTUtaRTNBdw?oc=5) |
-| Trump Returns to White House in Time to Greet Trick-or-Treaters - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPSGk1QWhDOV9jeXdjN2YyeHBPTV84ZXktal9YR2p5bElsQl9rOGRZOG1HYUxkNk9Pby1zQVNSSzlGXzhtYmpqaTR1Zll2UVdaM1BKR2tWWU9BcmtaLUs0bWNYLS1CV0FQaEw1S0k4UDJUeG1UODhvcDFVWnZuMWFWWnZ2UlpJUzluZFF0TEtn?oc=5) |
-| MCO expecting over four-hour flight delays on Thursday due to staffing issues, FAA says - WESH | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQTzg5bk9heXNnWmoyUEtTVGxOMWtTSUlyZmFtN1hJYy1UTXhFb0ttcDlaZm5HSDBOeFFlNFBBOVNlY2s4OVJpZmJ6TF8ybURfX1ZOV3I4QVg4V3lNYmV3TDNKLUlqTnBpc2Nxd09PVEVKMng2d1VJeXFkSFd3enBzQ3FxVXBpRlNGY1V1cFJERVVfelZkdWxfcg?oc=5) |
+| Photos: Trump hosts trick-or-treaters for White House Halloween bash - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBVNDMyeVlMcWVzUENDY2VUS09wS0VmeXljR0Nrc255Tk5YSGNBMFlMc0NwT2U2ZFQzd3VrRHVydDkzTk5Sc2Y3VXNJOHQzTjFpR1RuV2NpR2NTUVoyNFdBN292ZldBeWJra2tlZ3AzVnExeDVwRk5qQtIBfkFVX3lxTE1jVXBRQVN2Mlh5M1FfMHE3Mm9KRUZMRFU4b252LXZ3YzVlcTY5NG14REVtZ3FVd093aFduNHJYeE1GSVBkNU94VEIzTnhsNzdTaWEzSkhtTF83d2Nrd3hia1NId2ZFbjN6NWhXclJraFlWUUFkTW1zMjhfeUVLdw?oc=5) |
+| Air Controller Shortage Causes Delays in Orlando and at Other Major Airports - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPZGpaTnZ4NFNWY1lBRVdKNDJVdFNVYU93a0piT3lseTg5UFNvN2hKbnBMTjRybHUtcGdKVlByaFdjZlE0T0lHLUE4c1Y2T2xIQ0ZHaE5mdXZPU3RNRlV4LUF3amR4bmtnQUxrWExEbFhRbTNtS0JNZmxYT1QwMDhRMWZzQjhTTlR4cXQxa3phM3BUcTA3b3Q1eUl0andWQQ?oc=5) |
 | 2 California ICE shootings in nine days: Latest confrontation leaves bloody scene - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOYmtBdjRaR1FXNmpGaHdnZmFId0hJZVU3aUtlaW8tSTRqdjFiek01RGYxYXNMR1dUVUVsZFgyNXA3aXNhSm5PWUNiOFltbUJiMmdsNmZ1dUpuTUpMaGVoRWFCZFoxMHpSMXZXNW9YcDZQaGNCNHZwaERZUjZNMWpCejdUVkgzSDZm?oc=5) |
 | Zohran Mamdani and Democratic Socialists prepare for complicated partnership - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOckZUWnZpa0UtbHJSZWtQdFk2SkxGT0JDM3duM2dPek9jbHFPaVNPa1d0aUZmTFBMbWY0N3dGWUp2Y2dZQTJWS1BZM3BLeElHaHhGLXBlQ1ZXRkIzY1RjMEg3ZG5sNHlpa2FCampwM2NkSGg4ZGZaTmF5YW5wc1Q3Q2hEWWpkRUZiV016Yg?oc=5) |
 
