@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 22:25:54（北京时间）**
+🕒 更新时间：**2025年10月31日 22:36:12（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump urges Republicans to kill the filibuster - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPbENhbmxGQ2p3N0RkN1lXYWs2cXlsVmR6clZGYjR0Vl9CNVk0amlGM3N2a1ZVU1FsLXJrTGNhX0s2OXRlWmlkT3F0ZlNhQTc2eXZSTEhNMWQwYTNhN0R6M2dvZ1g3Q0NpWnFyMGJPWnhuTFpLSlR3Z1cwNDNNUlBleTJlWjdsenBOQk8w?oc=5) |
+| Trump Calls on Republicans to End Filibuster in Shutdown Fight - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNRGZoNS0xQTd3WmlUVWJuZ09OOEVUaGJwZ29qTnNnWDQ0LWVzR2V2Yzl6TlhDVXl2V2tMZGtqT3YxeHlOeE5KTGNLSkgtUWxqak9LOTR5M0pzNG5vYi1EcXlfZXlEd1JtaVFXLVJ0ejVURHJZSkk1TDVFYmZDdkVFd3RIRQ?oc=5) |
 | Trump muddles nuke-testing message - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQUXdmdEszNlExZnFpeUhKdWNHSzhkQl9iZVhhOEJXQWpDTjZITUtJeTZFZkhhZ1I3R2t2SjZVaU5nQkJtWHZuZkU5cldiVy1BaXJ6V2VwZEpwd09yT2dld2Vta2xKa3dxYzQ5Qk1zTVp4TTV4NjlGWXdsb1ZwczBfTQ?oc=5) |
-| Judge says she’ll likely order Trump administration to send SNAP funds to states - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQWjRyNWRIaHdmb1lnSno3NHI2NW5FZ1lNTjktaWVFTVhRd2hZUnItZUZTLTMtbWpWMW8xNXVlb0dRRW9MOWVvOU9jRURFV2NiREV6eDF6OENqSHZleFBteWxkazFrbUZfeThWTWxvR21KeW9LNlZrOFRPT010ajVOZzB3bXdjanlGbmc?oc=5) |
 | Millions face 'huge sticker shock' when ACA open enrollment starts Nov. 1 - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPRllydE04UHB0QmN4Vk5KOGhobThCQmJLQk0zMnJGeHR2czhoZGEzQ3Y1TnpfNmFibUI3UHRCRDZCckJ5MnNrclc1SjFXVzYzdnNobllFMzhKYmVNVHFUSWdLeVdpVjdKOGtuQUhxSThFSVM4V1Z0WXViZVEwcGpxdFVsUzN6d3p4VGfSAY8BQVVfeXFMT25feEtpcmpxcXZsZE1LcEdpTEQtRVJINFNjejJuY2R5QTljdXBGV2tXZHN4cTdNWHQzNzUtbFRMc1BtSjllYlY1OVZ5eWdTQkgySlFDUHM0MEpxZm9tbmRJTElTZGJJejlxQkdsM1pEQ3VTQ2NQenFYcHlzX2RscThRVk43ckY5NDBjbzRJRFU?oc=5) |
+| Judge says she’ll likely order Trump administration to send SNAP funds to states - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQWjRyNWRIaHdmb1lnSno3NHI2NW5FZ1lNTjktaWVFTVhRd2hZUnItZUZTLTMtbWpWMW8xNXVlb0dRRW9MOWVvOU9jRURFV2NiREV6eDF6OENqSHZleFBteWxkazFrbUZfeThWTWxvR21KeW9LNlZrOFRPT010ajVOZzB3bXdjanlGbmc?oc=5) |
 | Rob Jetten's Dutch centrist liberal party wins neck-and-neck election race, vote analysis says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9KclU5YWN4X3lMUUVuS0JuR2FvanZTUndjY1BrM19WVFJCcFl2TEkwUDFxbUNYQ0ZSNnc2Yi1MVEZIUk9rYlJ1YklJTWV1RjIxVGxPVnA5SlpmUdIBX0FVX3lxTE5CWVM1UjdjdXJSanVQT09GcHJ4ZFJjazZtS3JkdEQ3WUlZNW1rTnZxNDhodURUMHl0d2RwRkxwdV9QX0lGRkVmVmU2SXBfWEtLc3cta2QybmlYWldIU080?oc=5) |
 | FBI foiled a 'potential terrorist attack' in Michigan planned for Halloween weekend, Director Kash Patel says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNOEk5NmRUa3JIVmNqSXNjaF8wTHl1aGtlQ1k4YjZpRks0VGVuNWZEdlZxT0x3ejVsWC1JMTBQQ2c5N3JkRUs4UDRkanhWSHBtLWZlb2hwaXNVMFdCYzhxM2E3Rmd2TFh3SHo1MFcwdDhKSXJrNGE1clRueUNtWVZ3aTBoTkNZTjl3MmwyaF9KTU1BdG10UUw1STZlYkJ6eDZOcFpLbUdhLV9TRDh3Q1lTZ3RkSnF4TFdVb1HSAVZBVV95cUxPYmVVcFJWV0FrQTY0RTFrdUFKNWgzdTNZRlRCRXdyY21KeElmeXd0YXE0QXpZRVdPWVUzYjB2anRyYjBHaWNfLVY5RFQtMFlMem5qSkVNQQ?oc=5) |
 | Daylight saving time is ending Sunday. Here's what to know as clocks 'fall back.' - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPLUJKQnRZbVYxdEx4OGZ0clBQX2dyalZENU5KcnFlN3RKR2JVM29adWx0TDBPMENMdHI3NzZoN01nVWtxWTdPTlBBVnJSYkxSQTdfbFVkTmtvLWxUSTlKOTRkSnZNTF9hV2tHbDQwbElDa1BTS3VwZnpQTWFZcWFyejdPVWFxS3lrME9rdFZmQi1fN28tcGNmSmx2RjJNYXM2aFM3WTZ30gFWQVVfeXFMUDAxcVNBdWljd2EyNlduMGdBQlA4X2VscGJrZmlSRGE1R0kzR2pMcUFnWjFKN3Z1V0tlOThKZ1dBQmNRaE5lekhnZVRlVmQ3ZkZZMElRaHc?oc=5) |
