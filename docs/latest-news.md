@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 19:25:37（北京时间）**
+🕒 更新时间：**2025年11月01日 19:36:11（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | 'We have no food' - desperation takes hold in Jamaica after hurricane | [阅读全文](https://www.bbc.com/news/articles/c0jdd186l0go?at_medium=RSS&at_campaign=rss) |
 | Cruise cancelled following death of woman left behind on island | [阅读全文](https://www.bbc.com/news/articles/c5y44ly3vg2o?at_medium=RSS&at_campaign=rss) |
 | Homes without lounges now a reality for renters | [阅读全文](https://www.bbc.com/news/articles/c93063q2lzeo?at_medium=RSS&at_campaign=rss) |
-| Halloween 2025: All the celebrity costumes at Heidi Klum's party | [阅读全文](https://www.bbc.com/news/articles/c4gpwn5v072o?at_medium=RSS&at_campaign=rss) |
+| Strictly pros transform into ghouls for Halloween week - and a Celebrity Traitor guest stars | [阅读全文](https://www.bbc.com/news/articles/c2lp72n0p0vo?at_medium=RSS&at_campaign=rss) |
 | Tutankhamun tomb on display in full for first time as Grand Museum opens in Egypt | [阅读全文](https://www.bbc.com/news/articles/ckg4q403rpzo?at_medium=RSS&at_campaign=rss) |
 | The houses on the sprawling Sandringham Estate that could become Andrew's next home | [阅读全文](https://www.bbc.com/news/articles/c201zvrpvw9o?at_medium=RSS&at_campaign=rss) |
 | The King is expected to fund Andrew's move - but where does he get his money? | [阅读全文](https://www.bbc.com/news/articles/cwy5lzq94gqo?at_medium=RSS&at_campaign=rss) |
@@ -28,11 +28,11 @@
 | ‘How do you rebuild all this?’ Black River residents assess damage after Hurricane Melissa - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNQjlaUTN5WWczbV9MZ2hsZGZWc0E0TzBfcUFPYUlMQzZvb1c3ek54M3ZPd3NzTDNfaEllRzRvUnpBei1Dd3IxTUdjNzNNYndicHpXLTFFbmxucl9DMUdPOXlZb1dQSGJxVGU0bVRqQldBc1VpMFQ0LUNuQXJERzBZblJNT3hNb3pOb0Q2R1JmY01DMG0zS3pTazNFWkREUVp0eUdaeUJ0UV9pTlNBQ3JXekV3dw?oc=5) |
 | Election Day is Tuesday. Here are 5 questions about what the results might mean - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOai1yWFJRQzNaZVZQN2RvdXh6OExrSGoxVEdtNmpSblNXam5sVFZMaExodDBTVWpnWGp1YTFIa2libUhkZ0hFZVRvbXNKQWFzczI1RDFsNWhqc0VYQkZjdkxMNEJURWpuLXhpa012U2hNQ3U3dVAwLUpWWUpRTWl5dw?oc=5) |
 | JD Vance Savaged as He Desperately Tries to Get In On the Joke - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNYURvcE9LejBKTmY5SnNFeXFJVDVPLXlDVGZxajRmNVlBXzh1OUdCNmdxS2RoeDY4UGktT2xjREJOd19fd3ZvcWt1bGJ1N3ZzTWNjZjJzUy1wRVl6T1JJWEVhU09sbEc3ZnJFUWFFa0RNem9BUW15Um1vNElVQ3NPTVQ5d29kN0NsTkp3Y0xjTWp3eFJ3T3Fhaw?oc=5) |
-| Trump touts Lincoln Bathroom overhaul featuring marble, gold fixtures - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPTnFVZ0U2STVOMFNsbk56ZHdYSmRpU3AwQ2UxVXdTejNZOTR5a05NeFhRc0prU2VyQTZJSzBjRTNkb3NFTVNndzQ3dHFzQUNwMVBabW0yc082REVqTTk2dWt2S0N6VTl5MXNJaHE3ZGd4QlFHekItOGxNbExLM0R6QTZCa3pqYjlDdWZUeA?oc=5) |
-| Federal judge rules Trump can’t require citizenship proof on the federal voting form - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOVXhtc2VRLXZDdmdqQUVUMDZxUk0tLTJHN3A1ZUhqQlpXdzlCZGRGLWt3N2lZa2NiX1N0WEl0SUEwX3NBRlNHS2V4OWZDUGpackJHcmZLSFlkZURRdzdrNi0xZ3hZeHN6T19tMG9rR1E4eDBTdzJwX0t2dURoRWtkdUViWkFuU241QXA3emxzemp4VlNIbm1zVGI5VExGTFdOUGZvZU5Zc3UteEtmdDJCbWhYbw?oc=5) |
-| High schoolers in Alabama town spark good-natured Halloween prank war with local police - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNYzROcGtfdlhGX0RlVDJ3a19oWEY0WExSUUxaMVBTX1lHZU4zUGo1WTV1NV9fUGlQTXJPcTZVTFU1LUI5TUx4ckYxUXM4VGUwQ1RpNHBDWGFCQWQtZnV2WTllSER2OVREc0d6eFk4NHZfS0tSbnVJa056MllENXBublVRWnlIWnlzc1VZNmJ0WdIBlAFBVV95cUxPbVVnaGFCcC1rMUV4T0FMcTA4WElyVjZ6eUs5RU5SZ1dyakQyc0NJLW1LaVdXTm1yQllHVGJKMXVmQXpybVNxZE1KTVJHZTFZcmg5eEdHLUJKWUlUazFzd3dPb1Q1RzVKdnBVZ19Zbmxvd0JEaXR3dnYwMm92V0hQZWwxOVMtUjB6OHd4ci1mUEJpYS02?oc=5) |
+| White House Limits Reporters’ Access to Press Secretary’s Office - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNMzk3OGNzTkVHZW1WQXRjdy1rU0RpdkhXd0VvVnlNeFNNN2d3MEZkbUs5M1N6RFF0SHhhS0IydnRKX2M0QVpVcFdhc1lLbEVLaWh5LU1jMl9FM0FWdTg0TkNSZ2Q0MV9UbnR3QUc2UkhPUWE4S0k0eW13aWNFZ3lwTg?oc=5) |
 | What Tuesday’s Elections Might Tell Us About Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPNVdhRXpXWG1IR21LTU5FREVRTVhLVnZaUjRiT2tGUzBEOHd4dkdJaFNkRWNhYzJyY0xveVZzS1E4cTNyNWg4TXNtLS1tcVVNYm5CUUpjaHh4UktGYXV5WE8wNHVoRGJna1lUbHRXMGVISTZIZGRrNF9LaDJlMC1XSkV6RWU3cmIwUjV1SVNEbXd4aEE?oc=5) |
-| FAA warns of ‘surge’ in air traffic controllers calling out of work - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPSXcxSFR4SU5VdThPZDFmbm85ZWNWd0x6dGxiNmM4RW0xbG9kTV96em53LWo4X1lKY0RmMGpCQ3NnZ1ZrVlhSb21YMXhEd0pBVUxOMmh2eGc5ZmlWamZ5MU5VRnhleG9kbWdjbjZ2WHMzVnI5QlNvRFo2aHZFSDNLaFNLdFVmaTRtTDdWdy1HTEFDak1VaVhiZEFIUWhDd214NnN1N0JvQ0diWmw3bzZJUUtuOEo0dw?oc=5) |
+| High schoolers in Alabama town spark good-natured Halloween prank war with local police - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNYzROcGtfdlhGX0RlVDJ3a19oWEY0WExSUUxaMVBTX1lHZU4zUGo1WTV1NV9fUGlQTXJPcTZVTFU1LUI5TUx4ckYxUXM4VGUwQ1RpNHBDWGFCQWQtZnV2WTllSER2OVREc0d6eFk4NHZfS0tSbnVJa056MllENXBublVRWnlIWnlzc1VZNmJ0WdIBlAFBVV95cUxPbVVnaGFCcC1rMUV4T0FMcTA4WElyVjZ6eUs5RU5SZ1dyakQyc0NJLW1LaVdXTm1yQllHVGJKMXVmQXpybVNxZE1KTVJHZTFZcmg5eEdHLUJKWUlUazFzd3dPb1Q1RzVKdnBVZ19Zbmxvd0JEaXR3dnYwMm92V0hQZWwxOVMtUjB6OHd4ci1mUEJpYS02?oc=5) |
+| Trump news at a glance: Friday rulings hamper administration on food stamps, voting access - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNUzFmQ05OT1FGWmpDMWdMNjBpTFgwa2J3RTlqbXpTZTJnWnBqVmVVamVyMVBCQmU2SmRPZ0tvZjJEUTVnd2s2Z0YxR1VYaURsM2RXeW9hSU1iRDA3WTZNcGROc1I4LVVEdHI3Sk13czVhUFl4TzFZZGtrMmw3aGVZX1l1TTJ6TXBEdm1LZFA5WmI?oc=5) |
+| Maduro braces for a U.S. attack; Venezuelans worry more about dinner - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRVRiclRtSlRDcllQMzVMQkxCNUdVa0VERHdRbm1KRUFlRmk1MmRLSUZESHVkcFQ4TVJhUGZNZTRnN1VQOWVjelZ5d2hXWmFsLV9uRC0zT255VDl4YUNBa05HVUJ3VzhsenFqRFZhTHUwN0JlckNyT0hubEp5M2pqZWJqX0M0eVk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
