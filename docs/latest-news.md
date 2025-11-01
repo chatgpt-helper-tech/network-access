@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 11:49:31（北京时间）**
+🕒 更新时间：**2025年11月01日 12:00:49（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Administration Ordered to Pay for SNAP Benefits Amid Shutdown: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE8tRUFsakxRdUtPM0RxamNmcjhjbloxc3QtbW4wZDl3VXE3NUpsN3VqSnNhUUI1MXVObERSamFFZFZPN0FIejY2WWtCak8tNTZ1LWJCejdMQ2V3b00tWng0d1ZTQQ?oc=5) |
+| Trump administration must release billions in SNAP funds, judge says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOeUdGNW11ekVsZEhibHpfLU5NVEpvSUdqTjBYallVRUJTOVo4SVdQdGhfQVpSbmdoeTdQWG50YlZFU2stN0R0ZUY2N3NMMjN2LVd1OXNmdUI1UU5XcXY3QnV3UzZWRlFoaFRGSUdJN0dTSzY1YWRiZVRDcHdfQkZTbzJlQU13X1c3d2Z6b3hDY2s?oc=5) |
 | What’s the filibuster and why does Trump want to get rid of it during the shutdown? - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPOUhRQy1tUkJ5ZERsb1lPQ0hIZGJmQVVGNENnZGUxNUNWNHl2OG1sNXdDT2d3bm9FMUphcC1xVEptS0x1b0RnOW5RZVJGNXFzRWxqc3p6elRlWXI5S0dpWE8wRDFpSlJQTHcxNnNVTWxLelRoX3lCZUtid3U3VjFLZXNldDY1emxlSUJjMm5PWmc4YnJfek1TTnJn?oc=5) |
 | In One Jamaican Town, Hurricane Melissa Left Behind Floodwaters and Dead Livestock - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQaUs0bmNXeFFZTGJtRTAzaEZpdm1TM0NFSTNmNVBaVF95RTJiUlQxUTJTNFpOam9RMXhoU28tVUNUQ1BfRUwxQXpwUGJYZUJITHFMSWN3clBsNEczVmJpTTRaVW1uYl9MZXFob3hIOERlTkdVX3NSS19DMGwwY0RvRmFyR2xmZXJZdGpoOVhBb3NvMzA?oc=5) |
 | Trump Reveals Photos Of Remodeled Lincoln Bathroom—Latest White House Renovation - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNaE9nQWpmaEluOE81WUNkck1nVzlTVXlKNUs2TlE1SV9iMEpneDY2RTNFMHljLU5YWDA3OXQ0ZkFkZEJxOV84c3NHTVhSWVJwYTQwQjZUTFVyLU9rc2dfOGNHUjhhUnBJcF9DcWhIelJ3Z0ZJT1BBMGZINEF5OEVBSWpBNUNTUzJzNElScEhyelFtc1RxbkpsN281Z1lsY0hUVWtTRVVmTFVZZV9EMllYYVFGWElaQzFUWWZ6dkVxOG4yZUlMTk4zaXU0QWpzQQ?oc=5) |
