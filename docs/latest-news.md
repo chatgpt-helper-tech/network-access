@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 20:48:27（北京时间）**
+🕒 更新时间：**2025年11月01日 21:01:23（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Homes without lounges now a reality for renters | [阅读全文](https://www.bbc.com/news/articles/c93063q2lzeo?at_medium=RSS&at_campaign=rss) |
 | Cruise cancelled following death of woman left behind on island | [阅读全文](https://www.bbc.com/news/articles/c5y44ly3vg2o?at_medium=RSS&at_campaign=rss) |
 | Tutankhamun tomb on display in full for first time as Grand Museum opens in Egypt | [阅读全文](https://www.bbc.com/news/articles/ckg4q403rpzo?at_medium=RSS&at_campaign=rss) |
-| Halloween 2025: All the celebrity costumes at Heidi Klum's party | [阅读全文](https://www.bbc.com/news/articles/c4gpwn5v072o?at_medium=RSS&at_campaign=rss) |
+| The best looks from Heidi Klum's Halloween party | [阅读全文](https://www.bbc.com/news/articles/c4gpwn5v072o?at_medium=RSS&at_campaign=rss) |
 | Young women should not join Army, says mother of soldier who took her life | [阅读全文](https://www.bbc.com/news/articles/cy8vv5q2nw4o?at_medium=RSS&at_campaign=rss) |
 | The houses on the sprawling Sandringham Estate that could become Andrew's next home | [阅读全文](https://www.bbc.com/news/articles/c201zvrpvw9o?at_medium=RSS&at_campaign=rss) |
 | The King is expected to fund Andrew's move - but where does he get his money? | [阅读全文](https://www.bbc.com/news/articles/cwy5lzq94gqo?at_medium=RSS&at_campaign=rss) |
