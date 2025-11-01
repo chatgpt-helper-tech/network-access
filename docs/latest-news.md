@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 22:37:19（北京时间）**
+🕒 更新时间：**2025年11月01日 22:49:49（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Andrew should answer Epstein questions in US, Democrats say | [阅读全文](https://www.bbc.com/news/articles/c3dnnpvjkjvo?at_medium=RSS&at_campaign=rss) |
-| After Andrew saga, has politicians' 'no-comment' approach to royals had its day? | [阅读全文](https://www.bbc.com/news/articles/c2emj9r4j22o?at_medium=RSS&at_campaign=rss) |
+| Politicians rarely comment on the royals. That could all change after the Andrew saga | [阅读全文](https://www.bbc.com/news/articles/c2emj9r4j22o?at_medium=RSS&at_campaign=rss) |
 | Homes without lounges now a reality for renters | [阅读全文](https://www.bbc.com/news/articles/c93063q2lzeo?at_medium=RSS&at_campaign=rss) |
 | Cruise cancelled following death of woman left behind on island | [阅读全文](https://www.bbc.com/news/articles/c5y44ly3vg2o?at_medium=RSS&at_campaign=rss) |
 | Tutankhamun tomb on display in full for first time as Grand Museum opens in Egypt | [阅读全文](https://www.bbc.com/news/articles/ckg4q403rpzo?at_medium=RSS&at_campaign=rss) |
@@ -30,9 +30,9 @@
 | Hurricane Melissa dies over the cold waters of the North Atlantic - Yale Climate Connections | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNWDgtN3dHUkZCY1NoLTUxV1AwY1Fack9fWmtSYXdGdjh5bUR1a3R4WDdnVEQ0QldYdEhVSzk4c0NKRDA2NF9PT1Vad1NsRjVRT2dDQU5hcW50VTg4LTFBOHpsbnctVXQ0VnQ2dU5icWdabVd2ZXc4U2pzT0RhS0dNSk5UcjRPZ1dLSzRvNUpWM09GVkpobHk4Rk9TMFIwS3FzWm55UnFVYkNBV1VtT2c?oc=5) |
 | Maduro braces for a U.S. attack; Venezuelans worry more about dinner - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRVRiclRtSlRDcllQMzVMQkxCNUdVa0VERHdRbm1KRUFlRmk1MmRLSUZESHVkcFQ4TVJhUGZNZTRnN1VQOWVjelZ5d2hXWmFsLV9uRC0zT255VDl4YUNBa05HVUJ3VzhsenFqRFZhTHUwN0JlckNyT0hubEp5M2pqZWJqX0M0eVk?oc=5) |
 | Trump lays low in 2025 elections as Democrats attack him - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNTnVISnV1eXc3MDlvVXVZcHlWbUFRNmtiNzFjNnktWFdabGZsTXBYenNsdHpUek1UR2t6QTB4X0xWR282SXZ6UUt3aTF4SV9yeTE4OXFRdVlRZHdoTTl2S2lvcmdtTVlOcElIbWMzbnh3Qks4WVFadEVZc2p4dExrenlJZTN6UHU4WUYtbE1BMHdoQjVxcDVFNVRBSmI1QQ?oc=5) |
-| US food banks are rushing to stock supplies amid Snap lapse: ‘garner all the resources that we can’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQVEJGVkxpQ2NyMTZvVTFUMlZLajNyZEI4Uk0yWDdydVNFZDJueXBic0FpZnE3cFVvSF9YQlVUQm9rY0FQaEFDODBxUzhCZHE5M2lKV3VoODA0SFVTdEZ5d3VXcW9pSE5BaDhYUEJJU1dtbmhuUUJlRXFzdXUwLVpvS1EtNU5uZFZYaWd5NVdB?oc=5) |
 | Here’s what we know and don’t know about the thwarted potential terror attack in Michigan - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1aMEFXeHBkR0ZGSGFuYVAxY2tsdDNheFdyejE2TW04V3I4a0p4OEFKQ0NJNDc1VUxpTG9aUUtpNzd5b1BXSHJfRV9ucy16RVVwTEJZZzBLN3l4OHVvLWFsQm1CdGNWbHctWUwyQkRCSDR5bURjQ09MNQ?oc=5) |
 | N.Y.C. Mayor’s Race Live Updates: Campaign Enters Final Weekend Before Election Day - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE91aGJsbjFaMHFuVVVMNldYRk84ZzEwcDBkQ3lISjVZWEZIRy1EV0pXRVVvcG9FbldiRk5YNDktYmwtTldnQ0txaVlxUmJucjFqaVdpZGtlUC1oMmdVUHpsNmFNQ3hKa0xWNUo4YWlfUUJXOFZid2pPR0g2U3E?oc=5) |
+| Judge orders arrest of ex-Green Beret accused of plotting to invade Venezuela after he fails to show up in court - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNcUwzckxWSUVYZEtNdFNnYjNXU2dVNnhyNTJicGVacGUxVm9FcnFZVHljdUROdXdxN00wdjRhZDBiZ2JGM2RHODhJcVh0STIxU2NocXNXOU5QaEs3VUhnUjNtYkc5U1hRWmRoRHZsRlAzaGg1WFpjVEZ6X1EtUndZdjRVX0pCSS1uQmtUbVdmY0FXZXNBRENmeWhKMFRaRlFV0gGmAUFVX3lxTFAzMk40MF9RNUs1Z1cyT3lwNVJISDlKcVdESmNGNVpHVFdlRTF1cVd3aFhvc2JINFp4VTMwUzdKUWFiOEhxNlNDcW15ZFZPbFZQTlByWW15ZEtMRW82OHZjVTBfLV9MQVFMYmszSjZhR21SSzl5UzFnMkV5S2UxQlJZRUdUeHc4LVhUbkUxa21oZVo4Qy03VzM4OU50R2dobDBabFFjT1E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
