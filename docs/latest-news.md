@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 14:48:35（北京时间）**
+🕒 更新时间：**2025年11月01日 15:00:42（北京时间）**
 
 ---
 
@@ -10,9 +10,9 @@
 |--------|-------------|
 | Andrew's move out of Royal Lodge may not happen until new year | [阅读全文](https://www.bbc.com/news/articles/c2emmdnw82yo?at_medium=RSS&at_campaign=rss) |
 | Why Sarah Ferguson, Beatrice and Eugenie can't escape the taint of family scandal | [阅读全文](https://www.bbc.com/news/articles/cy8vrzpgxnro?at_medium=RSS&at_campaign=rss) |
-| Scavenging for food in streets - desperation takes hold in Jamaica after hurricane | [阅读全文](https://www.bbc.com/news/articles/c0jdd186l0go?at_medium=RSS&at_campaign=rss) |
+| 'We need food, we have no food' - desperation takes hold in Jamaica after hurricane | [阅读全文](https://www.bbc.com/news/articles/c0jdd186l0go?at_medium=RSS&at_campaign=rss) |
 | Cruise cancelled following death of woman left behind on island | [阅读全文](https://www.bbc.com/news/articles/c5y44ly3vg2o?at_medium=RSS&at_campaign=rss) |
-| Ex-sergeant major jailed for six months for sexual assault of soldier who took her own life | [阅读全文](https://www.bbc.com/news/articles/cvgd1zk5nrgo?at_medium=RSS&at_campaign=rss) |
+| Samia wins Tanzania election with 98% of votes amid unrest | [阅读全文](https://www.bbc.com/news/articles/cm2ww0e0jewo?at_medium=RSS&at_campaign=rss) |
 | Halloween 2025: All the celebrity costumes at Heidi Klum's party | [阅读全文](https://www.bbc.com/news/articles/c4gpwn5v072o?at_medium=RSS&at_campaign=rss) |
 | Strictly pros transform into ghouls for Halloween week - and a Celebrity Traitor guest stars | [阅读全文](https://www.bbc.com/news/articles/c2lp72n0p0vo?at_medium=RSS&at_campaign=rss) |
 | How will Andrew's titles be removed and what happens next? | [阅读全文](https://www.bbc.com/news/articles/c5ylk9r336zo?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | Air traffic controller shortages lead to broader US flight delays as shutdown nears one-month mark - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPV3ZibnBaYnA1c0JyUTRtblhkTDFneTlla0ZUZ19qWDhVbGlEbi05UWtkOFJJZzVWdXp0eV9hS05UVkVsVzgtNXBfVGtoTTlFOXBjdTBUNW5QWU9lQUJiR2w2dGZZV2lYVjVlZ21RTDdGSWFpYTBUb0ExSldXWTNkYzUwck5DU1NQSUNMVk9lbzQ2eGR3eGstaFRrVzg5UnFkcEtGa2xINHZMQ3M?oc=5) |
 | Ohio approves new House map giving Republicans a leg up in two more seats - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNNy1MV2EtZXBOdzdUdDhfT0twUl9zQjZVQlBuXzNaRTE1WUZrM1lTblNCLURqU0kyREkzdnc0YkNZTEsza0wyal9IU1ZhYlp5REZFd0hPa21oWmc2VmhHQTJDQk9EX0pXVDRuZ0V0Y21rX1QwR0FIeS1TTERFenQxekVXOFNOeWVVak9kZXN4RQ?oc=5) |
 | High schoolers in Alabama town spark good-natured Halloween prank war with local police - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNYzROcGtfdlhGX0RlVDJ3a19oWEY0WExSUUxaMVBTX1lHZU4zUGo1WTV1NV9fUGlQTXJPcTZVTFU1LUI5TUx4ckYxUXM4VGUwQ1RpNHBDWGFCQWQtZnV2WTllSER2OVREc0d6eFk4NHZfS0tSbnVJa056MllENXBublVRWnlIWnlzc1VZNmJ0WdIBlAFBVV95cUxPbVVnaGFCcC1rMUV4T0FMcTA4WElyVjZ6eUs5RU5SZ1dyakQyc0NJLW1LaVdXTm1yQllHVGJKMXVmQXpybVNxZE1KTVJHZTFZcmg5eEdHLUJKWUlUazFzd3dPb1Q1RzVKdnBVZ19Zbmxvd0JEaXR3dnYwMm92V0hQZWwxOVMtUjB6OHd4ci1mUEJpYS02?oc=5) |
-| Judge grants Connecticut woman accused of holding stepson captive access to new alias, address - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNTmhVTEhLOV9YZFVSRnF1em8wYWw3dWctMGpEbl9DMXdhQjZJR3pwLWdvYXBqRDk4LVI1aFY4QTJqRmZWbFVlMmppMlhibDk3MEJ2V1BLSC1DTk5GOHdtdG1kc0xzbjdyQzRVeFd4RUpNM2FycFJpaFViLWxyTjRoWlB6VV9MbGhIQi10QTlhcmUtNzdHUXJkSGxYc0VnWkxWY2QyQU0zbHBhbHAtTnhCSFFqYk1qVDRy0gFWQVVfeXFMTWdoazJtTWd0NzhHbWpmMGR3WGZYZHV5OTJLUER6d2gyLU02bjQ5NWJlRUZFM0pfZU9hNjMzQ2RTdXp0cjVlUGtQMEdHY3hQUVVjSHU0cUE?oc=5) |
+| Obamacare prices are set to spike – here's why - Fox Business | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5KakstZ1hfdS1GV1g1cXhhS0tfa0xxX3B6NDZJTDNOZTVjQVI3VUtVQklKSmZLR1FNVVptTGI3N2pqR0NWYjd0RzFZQncxc1hvT0pURHRpSE1YUDVKY2NDR1g1QXZHNHFtQXVJV0o2WDFfMGU3T2poSjRPejnSAYIBQVVfeXFMTWFuOGZjYW1feW5fNTB3OFl5LWN2WkhhZEExUHVvVWV0d2Q4UnFGMm5xS0lWdEFhQmNjV2Q3dDdkTXh1dENHd1BWRi13ZWRfaXZ4bzgxUjlGN1pSWG9sMG1TNXhFUkh1S3czcjNmRW1WU2VWYVFwbVBWWUs0Yy1YUlRyZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
