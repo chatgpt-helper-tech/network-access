@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 17:24:27（北京时间）**
+🕒 更新时间：**2025年11月01日 17:37:10（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Andrew should answer Epstein questions in US, Democrats say | [阅读全文](https://www.bbc.com/news/articles/c3dnnpvjkjvo?at_medium=RSS&at_campaign=rss) |
 | Why Sarah Ferguson, Beatrice and Eugenie can't escape the taint of family scandal | [阅读全文](https://www.bbc.com/news/articles/cy8vrzpgxnro?at_medium=RSS&at_campaign=rss) |
-| 'We need food, we have no food' - desperation takes hold in Jamaica after hurricane | [阅读全文](https://www.bbc.com/news/articles/c0jdd186l0go?at_medium=RSS&at_campaign=rss) |
+| 'We have no food' - desperation takes hold in Jamaica after hurricane | [阅读全文](https://www.bbc.com/news/articles/c0jdd186l0go?at_medium=RSS&at_campaign=rss) |
 | Cruise cancelled following death of woman left behind on island | [阅读全文](https://www.bbc.com/news/articles/c5y44ly3vg2o?at_medium=RSS&at_campaign=rss) |
 | Homes without lounges now a reality for renters | [阅读全文](https://www.bbc.com/news/articles/c93063q2lzeo?at_medium=RSS&at_campaign=rss) |
 | Halloween 2025: All the celebrity costumes at Heidi Klum's party | [阅读全文](https://www.bbc.com/news/articles/c4gpwn5v072o?at_medium=RSS&at_campaign=rss) |
@@ -25,14 +25,14 @@
 |--------|-------------|
 | Trump administration must release billions in SNAP funds, judge says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOeUdGNW11ekVsZEhibHpfLU5NVEpvSUdqTjBYallVRUJTOVo4SVdQdGhfQVpSbmdoeTdQWG50YlZFU2stN0R0ZUY2N3NMMjN2LVd1OXNmdUI1UU5XcXY3QnV3UzZWRlFoaFRGSUdJN0dTSzY1YWRiZVRDcHdfQkZTbzJlQU13X1c3d2Z6b3hDY2s?oc=5) |
 | Trump wants to shatter the filibuster, another Senate norm. Republicans are pushing back. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFA4NE1BX1lybU9iSUtEMGdfbnRnOXZXTm9NS2xfOXhkQVFrc2ZVdng2Zm9pTkVCVkV4OTdmcUlsR2Z6Y0M0Z1ZKZDZJRDdxcVhJTjNiTzhYMjB1bDcwV2lFWVRQd3lCV1k3alRaV3FZbWFUQk1GaVE?oc=5) |
-| Federal judge rules Trump can’t require citizenship proof on the federal voting form - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOVXhtc2VRLXZDdmdqQUVUMDZxUk0tLTJHN3A1ZUhqQlpXdzlCZGRGLWt3N2lZa2NiX1N0WEl0SUEwX3NBRlNHS2V4OWZDUGpackJHcmZLSFlkZURRdzdrNi0xZ3hZeHN6T19tMG9rR1E4eDBTdzJwX0t2dURoRWtkdUViWkFuU241QXA3emxzemp4VlNIbm1zVGI5VExGTFdOUGZvZU5Zc3UteEtmdDJCbWhYbw?oc=5) |
 | Trump Remodels Lincoln Bathroom With Marble In Latest White House Renovation: Photos - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNaE9nQWpmaEluOE81WUNkck1nVzlTVXlKNUs2TlE1SV9iMEpneDY2RTNFMHljLU5YWDA3OXQ0ZkFkZEJxOV84c3NHTVhSWVJwYTQwQjZUTFVyLU9rc2dfOGNHUjhhUnBJcF9DcWhIelJ3Z0ZJT1BBMGZINEF5OEVBSWpBNUNTUzJzNElScEhyelFtc1RxbkpsN281Z1lsY0hUVWtTRVVmTFVZZV9EMllYYVFGWElaQzFUWWZ6dkVxOG4yZUlMTk4zaXU0QWpzQQ?oc=5) |
 | Kash Patel says FBI thwarted alleged ‘terrorist attack’ in Michigan - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOYmVTSTE0VzcxeG1wSU5TbDNLa21Rb25IcDgzUVZJVkpXTUZWQnUzZ3IyRVBqeWRmZmpFRkoyeXdDRUlBcTZyTTRIMTRtT2VDSlhJeDFhTEpCNTNNMTJOd2NzdDNqa1V3Mm4zdXBLVFozMlpXSWRaNEhhN0ZaN3pmRmZKUTNRcnJCTWZlQnRVOUllWEZYaEs3TXVTV19CUnlLVWxCMDd6QVBKVjDSAbABQVVfeXFMUHpJV3NoTTJQVm5jdmhBNXpyYndUay1UMXFTSE5LTS1QUjZQZmZBN3ppMHAwMkNLVmwzMmE2M2Izak1CeG00Y01fRDhJNm95dzdoTDkyV05LZnFkNnIxTEdKQzBlTW1rSXNzTElUcEhjQ2Z4YzQ2SXlWTm9VN2FGZTUydThNU1h0SkR2ckMwdEdzcGZ2Q25GU0hKWkNWS1BPdU1FX2JjZ0lwYjgydzZtX3g?oc=5) |
-| ‘How do you rebuild all this?’ Black River residents assess damage after Hurricane Melissa - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNQjlaUTN5WWczbV9MZ2hsZGZWc0E0TzBfcUFPYUlMQzZvb1c3ek54M3ZPd3NzTDNfaEllRzRvUnpBei1Dd3IxTUdjNzNNYndicHpXLTFFbmxucl9DMUdPOXlZb1dQSGJxVGU0bVRqQldBc1VpMFQ0LUNuQXJERzBZblJNT3hNb3pOb0Q2R1JmY01DMG0zS3pTazNFWkREUVp0eUdaeUJ0UV9pTlNBQ3JXekV3dw?oc=5) |
+| In One Jamaican Town, Hurricane Melissa Left Behind Floodwaters and Dead Livestock - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQaUs0bmNXeFFZTGJtRTAzaEZpdm1TM0NFSTNmNVBaVF95RTJiUlQxUTJTNFpOam9RMXhoU28tVUNUQ1BfRUwxQXpwUGJYZUJITHFMSWN3clBsNEczVmJpTTRaVW1uYl9MZXFob3hIOERlTkdVX3NSS19DMGwwY0RvRmFyR2xmZXJZdGpoOVhBb3NvMzA?oc=5) |
+| Federal judge rules Trump can’t require citizenship proof on the federal voting form - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOVXhtc2VRLXZDdmdqQUVUMDZxUk0tLTJHN3A1ZUhqQlpXdzlCZGRGLWt3N2lZa2NiX1N0WEl0SUEwX3NBRlNHS2V4OWZDUGpackJHcmZLSFlkZURRdzdrNi0xZ3hZeHN6T19tMG9rR1E4eDBTdzJwX0t2dURoRWtkdUViWkFuU241QXA3emxzemp4VlNIbm1zVGI5VExGTFdOUGZvZU5Zc3UteEtmdDJCbWhYbw?oc=5) |
 | Air traffic controller shortages lead to broader US flight delays as shutdown nears one-month mark - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPV3ZibnBaYnA1c0JyUTRtblhkTDFneTlla0ZUZ19qWDhVbGlEbi05UWtkOFJJZzVWdXp0eV9hS05UVkVsVzgtNXBfVGtoTTlFOXBjdTBUNW5QWU9lQUJiR2w2dGZZV2lYVjVlZ21RTDdGSWFpYTBUb0ExSldXWTNkYzUwck5DU1NQSUNMVk9lbzQ2eGR3eGstaFRrVzg5UnFkcEtGa2xINHZMQ3M?oc=5) |
-| Republicans notch redistricting win in Ohio — but it could have been worse for Democrats - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQN1lxZE5sSDloZmpwQzRsakh4OFhaNXBmeHNBQWxRYkNOd2ozY3hzeWJCenZfUlh3QmNOY3dLN001RUN1VGhxdjlaTk5aQTZGa3ZDaU1qajlUVTlyd0IxTENJRWl0Q2NQN0FSMHZZSl90QU1VeUt2OG1VTlBSeTBTakpCbVVXakg5bXU3cjdnNk9GUQ?oc=5) |
 | Judge grants Connecticut woman accused of holding stepson captive access to new alias, address - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNTmhVTEhLOV9YZFVSRnF1em8wYWw3dWctMGpEbl9DMXdhQjZJR3pwLWdvYXBqRDk4LVI1aFY4QTJqRmZWbFVlMmppMlhibDk3MEJ2V1BLSC1DTk5GOHdtdG1kc0xzbjdyQzRVeFd4RUpNM2FycFJpaFViLWxyTjRoWlB6VV9MbGhIQi10QTlhcmUtNzdHUXJkSGxYc0VnWkxWY2QyQU0zbHBhbHAtTnhCSFFqYk1qVDRy0gFWQVVfeXFMTWdoazJtTWd0NzhHbWpmMGR3WGZYZHV5OTJLUER6d2gyLU02bjQ5NWJlRUZFM0pfZU9hNjMzQ2RTdXp0cjVlUGtQMEdHY3hQUVVjSHU0cUE?oc=5) |
 | Trump faces critical point in government shutdown, SNAP cutoff - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOdkRJYkktMVQydzVFVTc3Z1NGTzI1MGkyM1l3cm9kbllvUmN1ODJ2RVlydEZqX1ExLTRDdGc4Y2lkRFQ0Z0I1QU9HUE5nX1ZIMThXQkd6Q1JyTG40c2V2N0FMTHpXU2g4eVdvYXRTU3NRTWx6TXJBSExzZ3MxU0Q3cjFJd1JFenpDVlIwUmxJYkV0aDFaRm13eHJSNkFxOGVNWVY2RTVTSHBQY2Jyb1HSAbMBQVVfeXFMUFF6Q1ViLVY5ekNjVUt2akNmNlQzZkNCUWxXaER4cDVIck1zWi1FRGJVa1VsOFFCck95Zk9wSGQzY1RfUVZqLTAwYy1FYVFEMVRwTmxjdkNMNENVSmE1Y0trUFJpYTZSZjZzNWlGYlNva3p0a0tXdFZJSXFNY3dsdEFvZDFaNGRFdDRUSzJaeGtJTlN4V3NDWTNzMkJfR2VlYmM1c2VXZXgzc0tzVE5kd3JTUmc?oc=5) |
+| Xi, Lee Will Hold Talks in South Korea Saturday to Rebuild Ties - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQM1hTMWlCQVVrOEMtVG9QLWlkem45VUtUcGotalpLTGxtbFNuTDBvVjd0blZ2YmVzcHhhWmZpMVZXWTVKRlR4cXdSUGFpSkRSZ3psNWxrQXJzVjBVVk5oVDk0ODJXQWVnYTJXb0F4cjc5aER4TE05VnE1bW92Z01lbHFReGVVbjBHTG0xQlhCYlhzRXZsNHNIaXVsbVl0YndBX2RxZDVFZE8xcnByTnJwbVBUcw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
